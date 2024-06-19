@@ -1,7 +1,7 @@
 ---
 title: "How To Respond If You See Myself in a Facebook Live Video"
-date: 2024-05-20T14:48:27.692Z
-updated: 2024-05-21T14:48:27.692Z
+date: 2024-06-09T03:37:57.539Z
+updated: 2024-06-10T03:37:57.539Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes How To Respond If You See Myself in a Facebook Live Video"
 excerpt: "This Article Describes How To Respond If You See Myself in a Facebook Live Video"
 keywords: "\"Self-Appearance FB Live,Reacting to Live Video,Online Privacy Response,Social Media Video Reaction,Handling Live Feed Incident,Dealing with Video Encounter,Personal Info in Facebook Live\""
-thumbnail: https://www.lifewire.com/thmb/NOc5RCOPURestyDsC5sxK7KzGY8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-971165690-1e0af1d9299f4fdba1225c2d20c739f2.jpg
+thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89ced90101624b46320eed1514.jpg
 ---
 
 ## How To Respond If You See Myself in a Facebook Live Video

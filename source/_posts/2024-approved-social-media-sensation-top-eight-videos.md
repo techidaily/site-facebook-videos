@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Social Media Sensation  Top Eight Videos\""
-date: 2024-05-20T15:53:22.743Z
-updated: 2024-05-21T15:53:22.743Z
+date: 2024-06-09T03:37:51.573Z
+updated: 2024-06-10T03:37:51.573Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Social Media Sensation: Top Eight Videos\""
 excerpt: "\"This Article Describes 2024 Approved: Social Media Sensation: Top Eight Videos\""
 keywords: "Social Media Fame,Viral Video Hits,Trending Content,Popular YouTube Tubes,Influencer Vids,Meme Video Top List,Sensational Eight Videos"
-thumbnail: https://www.lifewire.com/thmb/QwdFnvVc3uGZfemYWxjwBZKnbaw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/facebooksharing-5c0f9f3346e0fb0001fb71fe.jpg
+thumbnail: https://thmb.techidaily.com/af14611bf221d9521ecefac4bb5738408a7016fb6a0da262331d951510430549.jpg
 ---
 
 ## Social Media Sensation: Top Eight Videos

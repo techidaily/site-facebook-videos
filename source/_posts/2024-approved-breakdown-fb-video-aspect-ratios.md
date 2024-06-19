@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Breakdown  FB Video Aspect Ratios\""
-date: 2024-05-20T14:25:01.300Z
-updated: 2024-05-21T14:25:01.300Z
+date: 2024-06-09T03:37:55.776Z
+updated: 2024-06-10T03:37:55.776Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Breakdown: FB Video Aspect Ratios\""
 excerpt: "\"This Article Describes 2024 Approved: Breakdown: FB Video Aspect Ratios\""
 keywords: "Social Media Vids Ratio,Facebook Video Format,Videograph Feature Layout,Content Video Proportion,Profile Video Dimensions,Platform Video Aspects,Media Display Ratios"
-thumbnail: https://www.lifewire.com/thmb/PGv99t-EJhy91apG-ZcQliud5f0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-clean-a-flat-screen-tv-or-computer-monitor-2624703_final-5c18343bc9e77c00016deb61.png
+thumbnail: https://thmb.techidaily.com/377e38553991337f1398bdbfe5a8f44bdc61d9fc38dd827fd098be11d1cb15df.png
 ---
 
 ## Breakdown: FB Video Aspect Ratios

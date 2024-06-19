@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Seeing My Friends' Video and Pics on Chat Apps\""
-date: 2024-05-20T15:45:17.958Z
-updated: 2024-05-21T15:45:17.958Z
+date: 2024-06-09T03:37:54.435Z
+updated: 2024-06-10T03:37:54.435Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Seeing My Friends' Video and Pics on Chat Apps\""
 excerpt: "\"This Article Describes 2024 Approved: Seeing My Friends' Video and Pics on Chat Apps\""
 keywords: "Friend Videos On Chats,Chat App Images View,Social Media Video Share,Friends Photo in Chat,Chat Platform Pics Watch,Peer Pictures on Messaging,Online Friends Visuals Access"
-thumbnail: https://www.lifewire.com/thmb/zBEl_bEu07nfTMzj3iet9cEOY3E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Kruzadar2-997fddec8bfa45e5895b020f282d02aa.jpg
+thumbnail: https://thmb.techidaily.com/29ac8237603a8a16889982067f296c3f071e4f84b086086a9248bc69fcf254fa.jpg
 ---
 
 ## Seeing My Friends' Video and Pics on Chat Apps

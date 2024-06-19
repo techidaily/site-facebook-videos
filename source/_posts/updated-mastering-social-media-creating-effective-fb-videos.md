@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Social Media  Creating Effective FB Videos\""
-date: 2024-05-20T15:02:10.420Z
-updated: 2024-05-21T15:02:10.420Z
+date: 2024-06-09T03:37:55.334Z
+updated: 2024-06-10T03:37:55.334Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Mastering Social Media: Creating Effective FB Videos\""
 excerpt: "\"This Article Describes [Updated] Mastering Social Media: Creating Effective FB Videos\""
 keywords: "Video Mastery on Facebook,FB Content Strategy,Engaging FB Video Tactics,Effective Social Media Video,Crafting FB Video Success,Social Media Video Guide,Proper FB Video Techniques"
-thumbnail: https://www.lifewire.com/thmb/WMzZ-SOEBx-a8C7NBUU9VKrzq4s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ApplMapsVGoogleMaps-6dc7ea69e8824c41a271443113487a2f.jpg
+thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7d66b97529a73f9cf277751a.jpg
 ---
 
 ## Mastering Social Media: Creating Effective FB Videos

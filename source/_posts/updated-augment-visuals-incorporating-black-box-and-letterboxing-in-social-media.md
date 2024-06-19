@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Augment Visuals  Incorporating Black Box & Letterboxing in Social Media\""
-date: 2024-05-20T15:42:40.799Z
-updated: 2024-05-21T15:42:40.799Z
+date: 2024-06-09T03:37:51.985Z
+updated: 2024-06-10T03:37:51.985Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Augment Visuals: Incorporating Black Box & Letterboxing in Social Media\""
 excerpt: "\"This Article Describes [Updated] Augment Visuals: Incorporating Black Box & Letterboxing in Social Media\""
 keywords: "Augmented Reality Images,Black Box Cinematography,Letterbox Techniques,Visual Enhancement Tactics,Social Media Image Filtering,Borders in Posts,Creative Image Formats"
-thumbnail: https://www.lifewire.com/thmb/tYwkSg_e9ADiBOgZ3RzB_4oGvlA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-116781276-57d9584e5f9b589b0ae3e357.jpg
+thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d5597ded286e2b977dc206141e5.jpg
 ---
 
 ## Augment Visuals: Incorporating Black Box & Letterboxing in Social Media

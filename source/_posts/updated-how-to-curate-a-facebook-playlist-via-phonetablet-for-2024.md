@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Curate a Facebook Playlist via Phone/Tablet for 2024"
-date: 2024-05-20T15:13:47.203Z
-updated: 2024-05-21T15:13:47.203Z
+date: 2024-06-09T03:37:54.638Z
+updated: 2024-06-10T03:37:54.638Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How to Curate a Facebook Playlist via Phone/Tablet for 2024"
 excerpt: "This Article Describes [Updated] How to Curate a Facebook Playlist via Phone/Tablet for 2024"
 keywords: "Social Media List Creation,Mobile Playlist Curation,Digital Music Compilation,Online Shuffle Selection,Audio Selections for FB,Streaming Curated Plans,Phone/Tablet Tunes Mix"
-thumbnail: https://www.lifewire.com/thmb/YsX3uDiAAHjw-N4oV2S-6MBKhH4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Phonewithinstagram-6c34b2d8e92d4067ba96a232ac2cd966.jpg
+thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751591496c468d996da741d28a.jpg
 ---
 
 ## How to Curate a Facebook Playlist via Phone/Tablet

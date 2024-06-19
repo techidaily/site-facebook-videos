@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Lighten Your Sentence with Satire  Ranking Funniest Facebook Detentions\""
-date: 2024-05-20T14:39:50.268Z
-updated: 2024-05-21T14:39:50.268Z
+date: 2024-06-09T03:37:55.726Z
+updated: 2024-06-10T03:37:55.726Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Lighten Your Sentence with Satire: Ranking Funniest Facebook Detentions\""
 excerpt: "\"This Article Describes [Updated] Lighten Your Sentence with Satire: Ranking Funniest Facebook Detentions\""
 keywords: "\"Satirical FB Detention Rankings,Humorous Sentence Lightening,FB Ban Humor Ranking,Laugh Away Detentions Online,Funny Punishment Reassessment,Wit-Infused Facebook Penalties,Jocular Banlightenment Strategies\""
-thumbnail: https://www.lifewire.com/thmb/jhGXgyCjWSFdhfPa2Q6YATjpP3E=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Familyplayingvideogames-b0cc2d7f9abe42db8cc4fcc05af223bc.jpg
+thumbnail: https://thmb.techidaily.com/5e6778b56bd7ea57ea083d57b5f2921418b00d25e671abbc75a29215718a300d.jpg
 ---
 
 ## Lighten Your Sentence with Satire: Ranking Funniest Facebook Detentions

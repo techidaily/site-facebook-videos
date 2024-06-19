@@ -1,7 +1,7 @@
 ---
 title: "Quick Online MP3 Generator From FB Videos, 2023 Updates"
-date: 2024-05-20T15:16:20.598Z
-updated: 2024-05-21T15:16:20.598Z
+date: 2024-06-09T03:37:58.163Z
+updated: 2024-06-10T03:37:58.163Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Quick Online MP3 Generator From FB Videos, 2023 Updates"
 excerpt: "This Article Describes Quick Online MP3 Generator From FB Videos, 2023 Updates"
 keywords: "MP3 Video Converter,FB Video Mp3,Quick Audio Extractor,Online MP3 Creator,MP3 Generator App,Convert Video to MP3,Instant MP3 Download"
-thumbnail: https://www.lifewire.com/thmb/GbVFfsw-VqZ6h_An8ml2L5jKFLc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-meet-loading-3ac4fea9077e459c8637ff545365d673.png
+thumbnail: https://thmb.techidaily.com/d8e6435243e7bdae68e29ae66158699a00161b12482bc1fecd3d439c888dea97.png
 ---
 
 ## Quick Online MP3 Generator From FB Videos, 2023 Updates

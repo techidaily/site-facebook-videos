@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DirectFace VidCutter Utility for 2024"
-date: 2024-05-20T15:01:30.444Z
-updated: 2024-05-21T15:01:30.444Z
+date: 2024-06-09T03:37:58.486Z
+updated: 2024-06-10T03:37:58.486Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] DirectFace VidCutter Utility for 2024"
 excerpt: "This Article Describes [Updated] DirectFace VidCutter Utility for 2024"
 keywords: "FaceCuttingTool,DirectVideoEditor,QuickVidCutter,StreamlinedEditing,VideoTrimUtility,DirectFaceEdit,FastCutForStreaming"
-thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1307216070-0e099dda13034522b872849a6b02d975.jpg
+thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8de831308f2fd3fe15c5bbed.jpg
 ---
 
 ## DirectFace VidCutter Utility

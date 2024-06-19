@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Ultimate List of Firefox Plugins for Easy Facebook Video Retrieval, 2023 Edition"
-date: 2024-05-20T15:12:49.402Z
-updated: 2024-05-21T15:12:49.402Z
+date: 2024-06-09T03:37:54.699Z
+updated: 2024-06-10T03:37:54.699Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, The Ultimate List of Firefox Plugins for Easy Facebook Video Retrieval, 2023 Edition"
 excerpt: "This Article Describes [New] In 2024, The Ultimate List of Firefox Plugins for Easy Facebook Video Retrieval, 2023 Edition"
 keywords: "Firefox Plugin Guide,FB Video Extractor,Video Grab Browser,Social Media FF Plugin,Easy FF Video Download,Latest FF Tools 2023,Secure Facebook FF"
-thumbnail: https://www.lifewire.com/thmb/pB84IVlbNt7SUn9y37ax7gJTFn0=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-choose-your-ideal-phonecase-ca91460721b143b0b0ae61b5baf11b3c.jpg
+thumbnail: https://thmb.techidaily.com/a04f09fd3f332adf9ea1d2c4b6687272d88f08a364f88560f34c633d621d6cbc.jpg
 ---
 
 ## The Ultimate List of Firefox Plugins for Easy Facebook Video Retrieval, 2023 Edition

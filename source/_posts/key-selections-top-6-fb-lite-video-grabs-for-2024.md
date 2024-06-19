@@ -1,7 +1,7 @@
 ---
 title: "\"Key Selections  Top 6 FB Lite Video Grabs for 2024\""
-date: 2024-05-20T15:42:52.932Z
-updated: 2024-05-21T15:42:52.932Z
+date: 2024-06-09T03:37:58.074Z
+updated: 2024-06-10T03:37:58.074Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Key Selections: Top 6 FB Lite Video Grabs for 2024\""
 excerpt: "\"This Article Describes Key Selections: Top 6 FB Lite Video Grabs for 2024\""
 keywords: "FB Lite Videos,Top FB Content,Video SEO,Social Media Grabbing,Popular FB Posts,Engaging FB Share,Lite Video Tactics"
-thumbnail: https://www.lifewire.com/thmb/Wrv6Rby5K8-rR9VDRqGpwRTiO_M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/14511925043_956d7ff9af_k-580112be3df78cbc28cc6e94.jpg
+thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538838ce8ab82c47df34846229.jpg
 ---
 
 ## Key Selections: Top 6 FB Lite Video Grabs

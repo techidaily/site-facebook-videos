@@ -1,7 +1,7 @@
 ---
 title: "\"Unmarked Eyes  Facebook Story Viewer for 2024\""
-date: 2024-05-20T15:07:48.524Z
-updated: 2024-05-21T15:07:48.524Z
+date: 2024-06-09T03:37:56.108Z
+updated: 2024-06-10T03:37:56.108Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Unmarked Eyes: Facebook Story Viewer for 2024\""
 excerpt: "\"This Article Describes Unmarked Eyes: Facebook Story Viewer for 2024\""
 keywords: "FB Story Unseen,Hidden Eye Viewer,EyeVidz No Marks,Secret Snap Reader,Covert Post View,Invisible Facebook Watcher,Stealthy Story Sight"
-thumbnail: https://www.lifewire.com/thmb/rqyqthwQQWoFP9hOZir1yhPCils=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/cq5dam.web.1280.1280-5c2a5a7b4cedfd0001df64bd.jpeg
+thumbnail: https://thmb.techidaily.com/0be1e99c17baad20df818e64c74b29c212a06e76be2a092d41b1fc888150e8a5.jpeg
 ---
 
 ## Unmarked Eyes: Facebook Story Viewer

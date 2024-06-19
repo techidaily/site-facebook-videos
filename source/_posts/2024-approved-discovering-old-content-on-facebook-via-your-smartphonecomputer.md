@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Discovering Old Content on Facebook via Your Smartphone/Computer\""
-date: 2024-05-20T15:49:30.728Z
-updated: 2024-05-21T15:49:30.728Z
+date: 2024-06-09T03:37:57.155Z
+updated: 2024-06-10T03:37:57.155Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Discovering Old Content on Facebook via Your Smartphone/Computer\""
 excerpt: "\"This Article Describes 2024 Approved: Discovering Old Content on Facebook via Your Smartphone/Computer\""
 keywords: "FB Old Content Find,Old FB Posts Search,History FB Access,Retrieve FB Archives,View Past Facebook Data,Access FB Legacy,Explore FB Past Content"
-thumbnail: https://www.lifewire.com/thmb/wAMAGSxPA1Fx2QobaiyABiSggJ4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-753288077-5bb0f9b2cff47e00261aa8fc.jpg
+thumbnail: https://thmb.techidaily.com/0004bab4ed76fb3b0e7b5e78faee5c8cd34739a5594338591ba06831ec971383.jpg
 ---
 
 ## Discovering Old Content on Facebook via Your Smartphone/Computer

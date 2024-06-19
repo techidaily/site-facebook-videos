@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 2023'S Social Media Video Extractor for All Platforms"
-date: 2024-05-20T15:38:13.386Z
-updated: 2024-05-21T15:38:13.386Z
+date: 2024-06-09T03:37:55.307Z
+updated: 2024-06-10T03:37:55.307Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] 2023'S Social Media Video Extractor for All Platforms"
 excerpt: "This Article Describes [Updated] 2023'S Social Media Video Extractor for All Platforms"
 keywords: "\"Video Extractor 2023,Multi-Platform Extractor,Social Media Extractor,Cross-Platform Video,Extract All Videos,Social Platforms Tool,Video Extraction Software\""
-thumbnail: https://www.lifewire.com/thmb/fL3sieVuZApZBM3scIUavadDQsQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/googlebardgmail-5a6d6f4364b84af5918abd606bacfc47.jpg
+thumbnail: https://thmb.techidaily.com/a34b3784d5ea8d0b2be6eaec5083d1cf0c7c6de5e3aae650ea39b1f4ae6fa12f.jpg
 ---
 
 ## 2023'S Social Media Video Extractor for All Platforms
