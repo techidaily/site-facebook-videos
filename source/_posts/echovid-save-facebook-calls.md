@@ -1,7 +1,7 @@
 ---
 title: "\"EchoVid - Save Facebook Calls\""
-date: 2024-05-20T14:31:34.054Z
-updated: 2024-05-21T14:31:34.054Z
+date: 2024-07-03T21:21:39.657Z
+updated: 2024-07-04T21:21:39.657Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes EchoVid - Save Facebook Calls\""
 excerpt: "\"This Article Describes EchoVid - Save Facebook Calls\""
 keywords: "EchoVideo Save Call,Facebook Calls Recording,Free Video Callback,Social Chat Saving,Record Online Chats,FB Callback Feature,EchoVid Callback Service,EchoVideo SaveCall,FacebookCallsRecording,FreeVideoCallback,SocialChatSaving,RecordOnlineChats,FBCallbackFeature,EchoVidCallbackService"
-thumbnail: https://www.lifewire.com/thmb/nLpKesmQSuo3IFqmqAKkvYey-vw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1252378476-858b12c063df49e5b63f3514a07a01f7.jpg
+thumbnail: https://thmb.techidaily.com/5c86eead36fe273b4ffc3fa6b58927f405a2b86a9e9fd87736937318bdb673f7.jpg
 ---
 
 ## EchoVid - Save Facebook Calls

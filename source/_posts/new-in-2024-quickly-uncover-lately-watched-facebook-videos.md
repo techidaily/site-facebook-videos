@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Quickly Uncover Lately Watched Facebook Videos"
-date: 2024-05-20T14:49:25.596Z
-updated: 2024-05-21T14:49:25.596Z
+date: 2024-07-03T21:21:38.964Z
+updated: 2024-07-04T21:21:38.964Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Quickly Uncover Lately Watched Facebook Videos"
 excerpt: "This Article Describes [New] In 2024, Quickly Uncover Lately Watched Facebook Videos"
 keywords: "FB Video Trends,Latest FB Videos,FB Watched Vids,Recent FB Video Views,Popular FB Videos,New FB Video Insights,Watched FB Content"
-thumbnail: https://www.lifewire.com/thmb/cUvOp5w_un_axYCn4Sqmbh92qqo=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/cable-vs-streaming-what-s-the-difference-5082949-1-66e52f4a2cd645908b38fbaf7fdf7e06.jpg
+thumbnail: https://thmb.techidaily.com/571a13bc6404d66e8575f828248d5c770574159f8a7664c56c7e33516dab19ed.jpg
 ---
 
 ## Quickly Uncover Lately Watched Facebook Videos

@@ -1,7 +1,7 @@
 ---
 title: "\"Social Simulacrum Sculpting  Crafting Exaggerated Profiles\""
-date: 2024-05-20T15:21:51.487Z
-updated: 2024-05-21T15:21:51.487Z
+date: 2024-07-03T21:21:42.469Z
+updated: 2024-07-04T21:21:42.469Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Social Simulacrum Sculpting: Crafting Exaggerated Profiles\""
 excerpt: "\"This Article Describes Social Simulacrum Sculpting: Crafting Exaggerated Profiles\""
 keywords: "\"Social Sculpture,Pro Profile Fabrication,Exaggerated Identity,Virtual Persona Design,Simulated Sociality,Artificial Self-Image,Distorted Online Persona\""
-thumbnail: https://www.lifewire.com/thmb/MJ8Mk3rhLZM794sdM7oyk7ejKPQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-97096677-56e308935f9b5854a9f8c07e.jpg
+thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c11451977d41c23dfeca435c0f3.jpg
 ---
 
 ## Social Simulacrum Sculpting: Crafting Exaggerated Profiles

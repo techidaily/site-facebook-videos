@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Social Media Savvy  Crafting Your Best Self with Top Tips for Bios\""
-date: 2024-05-20T15:23:26.856Z
-updated: 2024-05-21T15:23:26.856Z
+date: 2024-07-03T21:21:42.775Z
+updated: 2024-07-04T21:21:42.775Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Social Media Savvy: Crafting Your Best Self with Top Tips for Bios\""
 excerpt: "\"This Article Describes [Updated] Social Media Savvy: Crafting Your Best Self with Top Tips for Bios\""
 keywords: "Social Media Strategies,Bio Writing Skills,Personal Branding Online,Engaging Social Profiles,Effective Online Presence,Top Bios Tips,Self Image in Media"
-thumbnail: https://www.lifewire.com/thmb/XUXpJP1xyzXNqvCpvexeMODTRe8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1264479367-d2278fd5760d4949b4887c2a06002972.jpg
+thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0f1b1dda3ab1c9790066eccf.jpg
 ---
 
 ## Social Media Savvy: Crafting Your Best Self with Top Tips for Bios

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Initiating Virtual Gatherings in Messenger\""
-date: 2024-05-20T14:39:08.952Z
-updated: 2024-05-21T14:39:08.952Z
+date: 2024-07-03T21:21:39.893Z
+updated: 2024-07-04T21:21:39.893Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Initiating Virtual Gatherings in Messenger\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Initiating Virtual Gatherings in Messenger\""
 keywords: "\"Virtual Meetings via Messaging,Messenger Group Chat,Online Social Interaction,Video Conference on MSG,Digital Gathering Hub,SMS-Based Forum Creation,In-App Communication Event\""
-thumbnail: https://www.lifewire.com/thmb/URpxAt_UNeiJBr0hk-AFwm2D8lg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-change-your-tiktok-username-and-profile-picture-048cd3c3b4854846ab46f920e862332f.jpg
+thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a7bd1aa24fbe3ea34de877b1.jpg
 ---
 
 ## Initiating Virtual Gatherings in Messenger

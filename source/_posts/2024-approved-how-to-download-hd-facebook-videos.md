@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Download HD Facebook Videos?\""
-date: 2024-05-20T15:52:22.794Z
-updated: 2024-05-21T15:52:22.794Z
+date: 2024-07-03T21:21:38.874Z
+updated: 2024-07-04T21:21:38.874Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How to Download HD Facebook Videos?\""
 excerpt: "\"This Article Describes 2024 Approved: How to Download HD Facebook Videos?\""
 keywords: "HD Video Download,HD FB Video,FB Video Save,Save HD FB Video,HD FB Video Download,Extract HD Facebook,Download HD Social"
-thumbnail: https://www.lifewire.com/thmb/5XcgcbUa63FAQkMNaQPACrX_mYQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/hashtag-56a9fe065f9b58b7d0006572.jpg
+thumbnail: https://thmb.techidaily.com/6dd8f57eda55f51f780fa0fbffb1950bf2ad081249b06af69891f71aad7773d2.jpg
 ---
 
 ## How to Download HD Facebook Videos?

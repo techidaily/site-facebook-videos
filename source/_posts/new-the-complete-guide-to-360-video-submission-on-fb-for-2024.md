@@ -1,7 +1,7 @@
 ---
 title: "[New] The Complete Guide to 360 Video Submission on FB for 2024"
-date: 2024-05-20T15:43:42.654Z
-updated: 2024-05-21T15:43:42.654Z
+date: 2024-07-03T21:21:36.868Z
+updated: 2024-07-04T21:21:36.868Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] The Complete Guide to 360 Video Submission on FB for 2024"
 excerpt: "This Article Describes [New] The Complete Guide to 360 Video Submission on FB for 2024"
 keywords: "\"FB 360 Video Guide,Submit 360 Videos FB,FB 360 Videography,Facebook 360 Upload Tips,Filming for FB in 360°,FB 360 Content Submission,Guide: FB 360 Video Posting\""
-thumbnail: https://www.lifewire.com/thmb/lBmdBWtZRVaUBwmmvKncOYEZUEI=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Gaming_GettyImages-951533434_ORIG-HERO_Westend61_CROPPED_Sharpened-7deada36d17e4feab8029945aabcb2b5.jpg
+thumbnail: https://thmb.techidaily.com/7dae447899f95c82a6cf6fb6c187f3946b55a92e5def14d160bc07a7e668b288.jpg
 ---
 
 ## The Complete Guide to 360 Video Submission on FB

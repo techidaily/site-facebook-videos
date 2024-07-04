@@ -1,7 +1,7 @@
 ---
 title: "\"Accessing Global Events  Facebook Live on Roku Devices for 2024\""
-date: 2024-05-20T15:27:14.950Z
-updated: 2024-05-21T15:27:14.950Z
+date: 2024-07-03T21:21:37.780Z
+updated: 2024-07-04T21:21:37.780Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Accessing Global Events: Facebook Live on Roku Devices for 2024\""
 excerpt: "\"This Article Describes Accessing Global Events: Facebook Live on Roku Devices for 2024\""
 keywords: "\"FB Live Global Access,Roku FB Live Events,Global FB Streaming,Roku Live Broadcasting,International FB Roku,Roku FB News Network,Cross-Platform FB Live\""
-thumbnail: https://www.lifewire.com/thmb/NbdHSQAycy6SClhRHsj3CQyiEGg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/DeShuna-Spencer-78f0319607be48ec97dcc6ce1b0d1c75.png
+thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9acdb56f193b79911b70ed6c.png
 ---
 
 ## Accessing Global Events: Facebook Live on Roku Devices

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Today's Top Social Media Stars  A Look at 8 Hits for 2024\""
-date: 2024-05-20T15:39:19.400Z
-updated: 2024-05-21T15:39:19.400Z
+date: 2024-07-03T21:21:42.033Z
+updated: 2024-07-04T21:21:42.033Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Today's Top Social Media Stars: A Look at 8 Hits for 2024\""
 excerpt: "\"This Article Describes [New] Today's Top Social Media Stars: A Look at 8 Hits for 2024\""
 keywords: "Star Social Media,Top Social Heroes,Hit Social Titans,Trending Social Stars,Celeb Social Figures,Viral Social Influencers,Popular Social Icons"
-thumbnail: https://www.lifewire.com/thmb/WSLZcqxwmXkq850tQOgpRjODDjE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/football-referee-signaling-touchdown-in-stadium-599944339-5a84cb9e875db900367df025.jpg
+thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b85a4b94012ab008856dbcd1d.jpg
 ---
 
 ## Today's Top Social Media Stars: A Look at 8 Hits

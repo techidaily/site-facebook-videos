@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Capture Your Feed on Devices Using OBS Studio"
-date: 2024-05-20T14:54:19.830Z
-updated: 2024-05-21T14:54:19.830Z
+date: 2024-07-03T21:21:38.134Z
+updated: 2024-07-04T21:21:38.134Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] How to Capture Your Feed on Devices Using OBS Studio"
 excerpt: "This Article Describes [New] How to Capture Your Feed on Devices Using OBS Studio"
 keywords: "OBS Studio Device Recording,Mobile OBS Capture,Live Streaming with OBS,OBS Device Integration,OBS for Phone Recording,Portable Broadcast Tools,Handheld Media Capture OBS"
-thumbnail: https://www.lifewire.com/thmb/JuDr0hs9U3I8ICA1iv0r7GNDCD0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/plugs-feeding-in-to-plug-adaptors-and-sockets--close-up-200436334-001-59059d653df78c545691a3e6.jpg
+thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e9201916667eb608e7a9ffd3.jpg
 ---
 
 ## How to Capture Your Feed on Devices Using OBS Studio
@@ -38,27 +38,27 @@ Here is the step by step guide to go live from PC to facebook with OBS
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
-![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
+![scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 Step 2: Now you need to add sources to the scenes.
 
-![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
+![sources](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
-![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
+![include](https://images.wondershare.com/filmora/article-images/include.jpg)
 
 Step 4: Prefer to use default settings for source and then press OK.
 
-![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
+![default](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
-![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
+![adjust](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
-![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+![video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
 ## B. Stream setting according to Facebook
 
@@ -66,47 +66,47 @@ Once you are done with Part A then it is time to follow the guidelines as below:
 
 Step 1: First of all you need to go to the settings.
 
-![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
+![setting](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
+![bitrate](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
-![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+![resolution](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
-![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
+![facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+![create](https://images.wondershare.com/filmora/article-images/create.jpg)
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
-![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
+![service](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
 
-![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
+![Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+![click preview](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
-![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
+![Click Go1](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
-![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
+![End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
@@ -147,27 +147,27 @@ Here is the step by step guide to go live from PC to facebook with OBS
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
-![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
+![scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 Step 2: Now you need to add sources to the scenes.
 
-![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
+![sources](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
-![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
+![include](https://images.wondershare.com/filmora/article-images/include.jpg)
 
 Step 4: Prefer to use default settings for source and then press OK.
 
-![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
+![default](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
-![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
+![adjust](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
-![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+![video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
 ## B. Stream setting according to Facebook
 
@@ -175,47 +175,47 @@ Once you are done with Part A then it is time to follow the guidelines as below:
 
 Step 1: First of all you need to go to the settings.
 
-![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
+![setting](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
+![bitrate](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
-![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+![resolution](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
-![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
+![facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+![create](https://images.wondershare.com/filmora/article-images/create.jpg)
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
-![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
+![service](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
 
-![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
+![Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+![click preview](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
-![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
+![Click Go1](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
-![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
+![End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
@@ -256,27 +256,27 @@ Here is the step by step guide to go live from PC to facebook with OBS
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
-![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
+![scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 Step 2: Now you need to add sources to the scenes.
 
-![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
+![sources](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
-![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
+![include](https://images.wondershare.com/filmora/article-images/include.jpg)
 
 Step 4: Prefer to use default settings for source and then press OK.
 
-![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
+![default](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
-![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
+![adjust](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
-![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+![video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
 ## B. Stream setting according to Facebook
 
@@ -284,47 +284,47 @@ Once you are done with Part A then it is time to follow the guidelines as below:
 
 Step 1: First of all you need to go to the settings.
 
-![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
+![setting](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
+![bitrate](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
-![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+![resolution](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
-![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
+![facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+![create](https://images.wondershare.com/filmora/article-images/create.jpg)
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
-![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
+![service](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
 
-![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
+![Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+![click preview](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
-![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
+![Click Go1](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
-![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
+![End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
@@ -365,27 +365,27 @@ Here is the step by step guide to go live from PC to facebook with OBS
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
-![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
+![scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
 
 Step 2: Now you need to add sources to the scenes.
 
-![ sources ](https://images.wondershare.com/filmora/article-images/sources.jpg)
+![sources](https://images.wondershare.com/filmora/article-images/sources.jpg)
 
 Step 3: It is possible to include windows capture, audio input and webcam as per need.
 
-![ include](https://images.wondershare.com/filmora/article-images/include.jpg)
+![include](https://images.wondershare.com/filmora/article-images/include.jpg)
 
 Step 4: Prefer to use default settings for source and then press OK.
 
-![default  ](<https://images.wondershare.com/filmora/article-images/default> .jpg)
+![default](<https://images.wondershare.com/filmora/article-images/default> .jpg)
 
 Step 5: Once you have done settings for all sources then they must be adjusted on screen in right order.
 
-![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
+![adjust](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
-![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
+![video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
 
 ## B. Stream setting according to Facebook
 
@@ -393,47 +393,47 @@ Once you are done with Part A then it is time to follow the guidelines as below:
 
 Step 1: First of all you need to go to the settings.
 
-![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
+![setting](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
-![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
+![bitrate](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
-![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
+![resolution](https://images.wondershare.com/filmora/article-images/resolution.jpg)
 
 Step 4: Now you need to visit the facebook page and then click on the video, go to publishing tools and then from top right corner hit +Live option.
 
-![ facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
+![facebook](https://images.wondershare.com/filmora/article-images/facebook.jpg)
 
 Step 5: It is time to move to the ‘create live video’ page. You have to copy the stream key from the specified location. Prefer to keep this page open.
 
-![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
+![create](https://images.wondershare.com/filmora/article-images/create.jpg)
 
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
-![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
+![service](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 ## C. Preview and Test your before go live
 
 Step 1: It is time to hit the button “Start Streaming”.
 
-![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
+![Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
 Step 2: Now move back to your facebook page and then choose to preview.
 
-![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
+![click preview](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
-![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
+![Click Go1](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
-![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
+![End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 

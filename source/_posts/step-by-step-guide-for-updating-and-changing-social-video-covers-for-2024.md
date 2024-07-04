@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide for Updating and Changing Social Video Covers for 2024\""
-date: 2024-05-20T14:35:23.081Z
-updated: 2024-05-21T14:35:23.081Z
+date: 2024-07-03T21:21:38.646Z
+updated: 2024-07-04T21:21:38.646Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Step-by-Step Guide for Updating and Changing Social Video Covers for 2024\""
 excerpt: "\"This Article Describes Step-by-Step Guide for Updating and Changing Social Video Covers for 2024\""
 keywords: "Video Cover Update Guide,Social Media Video Revision,Editing Video Covers,Video Layout Change Tips,Social Video Design Update,Video Cover Modification,Revamping Video Covers"
-thumbnail: https://www.lifewire.com/thmb/TtsVrd32qSZ-IgZ8x0AB3dHyQVs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-make-a-song-your-ringtone-on-android-4777573-5d571b57c5a5436e91ebb7fcae1c2b6b.jpg
+thumbnail: https://thmb.techidaily.com/878905428de37ec37afcf7b8018e7d924bf2c1ca322a8100dfaafbd0ac4bcb97.jpg
 ---
 
 ## Step-by-Step Guide for Updating and Changing Social Video Covers
@@ -37,7 +37,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -131,7 +131,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -225,7 +225,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 
@@ -319,7 +319,7 @@ Facebook lets its users [create a profile video](https://tools.techidaily.com/wo
 
    1. Once you have updated to the latest version of Facebook on your iOS device, you need to open the FB app and tap the ‘More’ button in the bottom right.
 
-![facebook profile 1 ](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
+![facebook profile 1](https://images.wondershare.com/filmora/article-images/facebook-profile-1.jpg)
 
    1. Tap the ‘View your profile’ button on top.
 

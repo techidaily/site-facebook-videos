@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Cutting-Edge Five  New Features in Facebook's Sight for 2024\""
-date: 2024-05-20T14:38:09.056Z
-updated: 2024-05-21T14:38:09.056Z
+date: 2024-07-03T21:21:42.184Z
+updated: 2024-07-04T21:21:42.184Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] The Cutting-Edge Five: New Features in Facebook's Sight for 2024\""
 excerpt: "\"This Article Describes [New] The Cutting-Edge Five: New Features in Facebook's Sight for 2024\""
 keywords: "Facebook Sight Update,Social Media Trends,Innovative Tech UI,Facebook Interface Enhancements,Newest Social Features,Latest FB Design Elements,Social Platform Upgrades"
-thumbnail: https://www.lifewire.com/thmb/l_iYQlQgF06PMgnz1dmoCo6QLTc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/group-of-people-using-smart-phone-at-music-concert-763276353-a33d46d1b7c74a7c9d469879a87f9a27.jpg
+thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a07909c05b7a4646323bdf667e48.jpg
 ---
 
 ## The Cutting-Edge Five: New Features in Facebook's Sight
@@ -29,7 +29,7 @@ thumbnail: https://www.lifewire.com/thmb/l_iYQlQgF06PMgnz1dmoCo6QLTc=/400x300/fi
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -82,7 +82,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -135,7 +135,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 
@@ -188,7 +188,7 @@ Follow @Shanoon Cox
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
+## 1\. Facebook 360
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
 

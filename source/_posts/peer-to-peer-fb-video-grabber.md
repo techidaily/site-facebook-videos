@@ -1,7 +1,7 @@
 ---
 title: "\"Peer-to-Peer FB Video Grabber\""
-date: 2024-05-20T15:31:39.355Z
-updated: 2024-05-21T15:31:39.355Z
+date: 2024-07-03T21:21:43.999Z
+updated: 2024-07-04T21:21:43.999Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Peer-to-Peer FB Video Grabber\""
 excerpt: "\"This Article Describes Peer-to-Peer FB Video Grabber\""
 keywords: "P2P FB Video Capture,FB Video PeerGrab,Social FB Video Grab,Direct FB Video Copy,Instant FB Video Download,Share FB Video Clip,Quick FB Video Export"
-thumbnail: https://www.lifewire.com/thmb/1e0lAWRimhVHbQkTAV-f6BKr0q8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/finger-2081169_1280-1aea4fd076b84091b3468211e7b3b3aa.jpg
+thumbnail: https://thmb.techidaily.com/3ad0b37de8405ddff0a5f39b812ec8d893ee35987fd8e7537df266174c877eec.jpg
 ---
 
 ## Peer-to-Peer FB Video Grabber
