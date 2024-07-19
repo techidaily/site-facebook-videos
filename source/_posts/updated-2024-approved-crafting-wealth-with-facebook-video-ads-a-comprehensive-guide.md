@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Wealth with Facebook Video Ads  A Comprehensive Guide\""
-date: 2024-05-20T14:26:34.560Z
-updated: 2024-05-21T14:26:34.560Z
+date: 2024-07-18T02:21:50.994Z
+updated: 2024-07-19T02:21:50.994Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Crafting Wealth with Facebook Video Ads: A Comprehensive Guide\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Crafting Wealth with Facebook Video Ads: A Comprehensive Guide\""
 keywords: "Wealthy Marketing,Facebook Ad Success,Social Media Growth,Video Ad Profit,Richer ROI Online,Video Strategy Guide,Digital Income Boost"
-thumbnail: https://www.lifewire.com/thmb/zm0oXosNc_Kk0S_gtjeQozsGS6U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Untitled-57f7a83f3df78c690f54ff7d.jpg
+thumbnail: https://thmb.techidaily.com/5d77ad3cc3ffb76dec378c0365a6d9c3d6e615b3b95a196e8f26206ebb83676d.jpg
 ---
 
 ## Crafting Wealth with Facebook Video Ads: A Comprehensive Guide
@@ -27,6 +27,9 @@ Earning money from Facebook videos is a simple and easy way to create passive in
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. What qualifications do you need to monetize your Facebook page?
 
 ### Rules and Requirements for Facebook Video Monetization
@@ -59,6 +62,9 @@ For monetization approval, Facebook pages have to be optimized to meet qualifica
 
 ![tips to optimize facebook page](https://images.wondershare.com/filmora/article-images/2023/A-Comprehensive-Guide-to-Monetize-Your-Facebook-Page-Tips-and-Tricks-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. The potential of Facebook as an Income Source
 
 Facebook reports that content creators make between $1,000 and $10,000 per month. Facebook Reels, Live, and fan subscriptions are some avenues. You can make a monthly income from Facebook by generating long-form video content and even paid online events. It's possible to earn thousands if you produce content regularly.
@@ -79,8 +85,14 @@ According to Meta, you need 10,000 followers to monetize your Facebook page. You
 
 Sharing your page with your friends is one way. To get your posts shared, curate content that you and your target audience will enjoy. The key to maintaining a following is regular engagement with your posts once you've built one. Every industry requires frequent engagement to grow a following.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Proven Ways to Earn Money from Facebook Videos
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Best Ways to Monetize a Facebook Page
 
 Your Facebook monetization strategy should include videos since they drive more traffic than images. You should use videos on your Facebook page to make money.
@@ -103,12 +115,18 @@ Fan subscriptions with gated content are great ways to monetize Facebook pages. 
 
 Your subscription groups should have promotional videos and thank you videos. Your target audience should know what the perks are and be grateful for their support.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![fan subscriptions](https://images.wondershare.com/filmora/article-images/2023/A-Comprehensive-Guide-to-Monetize-Your-Facebook-Page-Tips-and-Tricks-4.jpg)
 
 #### 2\. Facebook Ads
 
 To monetize on Facebook, it is essential to use Facebook Ads. By using precision targeting, you are able to present your content, products, and services. The target demographic is the one who is most likely to engage or make a purchase. By doing so, advertising budgets can be used more efficiently and profits can be increased.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook ads for facebook monetization](https://images.wondershare.com/filmora/article-images/2023/A-Comprehensive-Guide-to-Monetize-Your-Facebook-Page-Tips-and-Tricks-5.jpg)
 
 #### 3\. Collabo Manager for Brands
@@ -135,6 +153,18 @@ A Facebook page can also be monetized through live streams. You can use stars to
 
 Earn commissions by joining affiliate networks or brand programs. An affiliate commission is earned when Facebook users click the link or make a purchase.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips and Best Practices to Implement these Strategies
 
 * Your Facebook page should prioritize video content to boost traffic and engagement.
@@ -155,6 +185,9 @@ Are you ready to shine on Facebook with your content? The versatile video editin
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Features of Wondershare Filmora
 
 In terms of Facebook monetization, Filmora stands out for the following features:
@@ -204,6 +237,9 @@ Facebook's Monetization Eligibility Standards include at their most basic level,
 
 You should stay updated about Facebook monetization rules and requirements. It’s possible that these requirements can change with time.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![requirements for facebook monetization](https://images.wondershare.com/filmora/article-images/2023/A-Comprehensive-Guide-to-Monetize-Your-Facebook-Page-Tips-and-Tricks-1.jpg)
 
 ### The Best Ways to Optimize Your Facebook Page
@@ -219,6 +255,9 @@ For monetization approval, Facebook pages have to be optimized to meet qualifica
 
 ![tips to optimize facebook page](https://images.wondershare.com/filmora/article-images/2023/A-Comprehensive-Guide-to-Monetize-Your-Facebook-Page-Tips-and-Tricks-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. The potential of Facebook as an Income Source
 
 Facebook reports that content creators make between $1,000 and $10,000 per month. Facebook Reels, Live, and fan subscriptions are some avenues. You can make a monthly income from Facebook by generating long-form video content and even paid online events. It's possible to earn thousands if you produce content regularly.
@@ -239,8 +278,14 @@ According to Meta, you need 10,000 followers to monetize your Facebook page. You
 
 Sharing your page with your friends is one way. To get your posts shared, curate content that you and your target audience will enjoy. The key to maintaining a following is regular engagement with your posts once you've built one. Every industry requires frequent engagement to grow a following.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Proven Ways to Earn Money from Facebook Videos
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The Best Ways to Monetize a Facebook Page
 
 Your Facebook monetization strategy should include videos since they drive more traffic than images. You should use videos on your Facebook page to make money.
@@ -295,6 +340,9 @@ A Facebook page can also be monetized through live streams. You can use stars to
 
 Earn commissions by joining affiliate networks or brand programs. An affiliate commission is earned when Facebook users click the link or make a purchase.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips and Best Practices to Implement these Strategies
 
 * Your Facebook page should prioritize video content to boost traffic and engagement.
@@ -305,6 +353,9 @@ Earn commissions by joining affiliate networks or brand programs. An affiliate c
 * Streams can be repurposed and viewers can buy stars.
 * Earn commissions by clicking links and making purchases through affiliate programs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4\. Wondershare Filmora: Elevating Your Videos and Images for Facebook Monetization
 
 Are you ready to shine on Facebook with your content? The versatile video editing software Wondershare Filmora is here to introduce you. Your Facebook posts will be elevated with this app, from thumbnails to full-length videos. Filmora has an arsenal of features that you can use to create captivating content including videos and images. To monetize your efforts, you need a video that stands out and attracts views and likes.
@@ -335,6 +386,9 @@ Wondershare Filmora seamlessly integrates AI Copywriting, powered by the ChatGPT
 
 There are over 70 AI portrait and sticker effects available in Wondershare Filmora's AI Portrait feature. Furthermore, your images can be automatically recognized for faces. You can add AR stickers seamlessly to your content to enhance its visual appeal.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 To conclude, you can monetize your Facebook videos and page. Passive income can be generated in a straightforward manner. Keep your audience engaged, create engaging content, and maintain consistency. Advertisements, fan subscriptions, and more are all monetization options on Facebook.
@@ -366,3 +420,46 @@ Title- A Comprehensive Guide to Monetize Your Facebook Page: Tips and Tricks
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2023-how-to-fix-live-video-interrupted-on-facebook-for-2024/"><u>[New] 2023 | How to Fix Live Video Interrupted on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fb-melody-cache-legally/"><u>[New] 2024 Approved  FB Melody Cache (Legally)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-key-strategies-for-impactful-facebook-video-marketing/"><u>[New] 2024 Approved  Key Strategies for Impactful Facebook Video Marketing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-lightning-leap-into-facebook-id-sleuthing/"><u>[New] 2024 Approved  Lightning Leap Into Facebook ID Sleuthing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-maximizing-engagement-essential-strategies-for-facebook-video-promotion/"><u>[New] 2024 Approved  Maximizing Engagement  Essential Strategies for Facebook Video Promotion</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-melody-mix-up-how-to-tune-your-facebook-videos-with-songs/"><u>[New] 2024 Approved  Melody Mix-Up  How to Tune Your Facebook Videos with Songs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mend-facebook-story-playback-pauses/"><u>[New] 2024 Approved  Mend Facebook Story Playback Pauses</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mirth-in-monotony-the-top-20-fb-detention-reprieve-humor/"><u>[New] 2024 Approved  Mirth in Monotony  The Top 20 Fb Detention Reprieve Humor</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-peering-into-facebooks-2023-video-landscape-a-focus-on-short-clips/"><u>[New] 2024 Approved  Peering Into Facebook's 2023 Video Landscape  A Focus on Short Clips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-seamless-integration-making-your-youtube-videos-available-on-facebook/"><u>[New] 2024 Approved  Seamless Integration  Making Your YouTube Videos Available on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-explore-the-best-facebook-lite-video-downloader-picks-of-2023-for-2024/"><u>[New] Explore the Best Facebook Lite Video Downloader Picks of 2023 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-exploring-legal-restrictions-for-broadcasting-content-online-for-2024/"><u>[New] Exploring Legal Restrictions for Broadcasting Content Online for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-framework-for-crafting-chat-hangouts-on-whatsapp-for-2024/"><u>[New] Framework for Crafting Chat Hangouts on WhatsApp for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-evasive-examiner-of-fb-narratives/"><u>[New] In 2024, Evasive Examiner of FB Narratives</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-auto-play-on-fb-video-streams/"><u>[New] In 2024, Mastering Auto-Play on FB Video Streams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mend-iphones-facebook-video-displays/"><u>[New] In 2024, Mend iPhones' Facebook Video Displays</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-process-of-setting-up-messenger-hubs/"><u>[New] In 2024, Navigating the Process of Setting Up Messenger Hubs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-to-facebooks-story-archives-quickly/"><u>[New] In 2024, Navigating to Facebook's Story Archives Quickly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-prevent-video-playback-issues-in-android-apps/"><u>[New] In 2024, Prevent Video Playback Issues in Android Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-one-stop-solution-mastering-gif-downloads-across-all-devices-and-systems-for-2024/"><u>[New] One-Stop Solution  Mastering GIF Downloads Across All Devices & Systems for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-optimizing-television-access-to-facebook-events-for-2024/"><u>[New] Optimizing Television Access to Facebook Events for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-quick-and-easy-the-5-best-tools-for-facebook-live-videos-for-2024/"><u>[New] Quick & Easy  The 5 Best Tools for Facebook Live Videos for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-zoom-for-beginners-managing-breakout-groups/"><u>[New] Zoom for Beginners  Managing Breakout Groups</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-your-vantage-point-to-the-worlds-sharing-immersive-photos-online/"><u>[Updated] 2024 Approved  From Your Vantage Point to the World's  Sharing Immersive Photos Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-elitemac-pro-the-best-in-high-quality-video-and-audio-recording/"><u>[Updated] In 2024, EliteMac Pro  The Best in High-Quality Video & Audio Recording</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-hastening-social-media-sharing-between-fb-and-tiktok/"><u>[Updated] In 2024, Hastening Social Media Sharing Between FB and TikTok</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-online-converter-turn-facebook-vids-into-mp3/"><u>[Updated] In 2024, Online Converter  Turn Facebook Vids Into MP3</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-pioneering-posts-a-facebook-guide-to-going-viral/"><u>[Updated] In 2024, Pioneering Posts  A Facebook Guide to Going Viral</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-mastering-the-art-of-instagram-video-sharing-for-2024/"><u>[Updated] Mastering the Art of Instagram Video Sharing for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-adepts-handbook-to-fullscreen-features-in-premiere-pro/"><u>2024 Approved  Adept's Handbook to Fullscreen Features in Premiere Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lens-wisdom-advanced-insights-into-capturing-and-editing-art/"><u>2024 Approved  Lens Wisdom  Advanced Insights Into Capturing & Editing Art</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-honor-magic-6-lite-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Honor Magic 6 Lite Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-advanced-authorized-streaming-systems/"><u>In 2024, Advanced Authorized Streaming Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-tailored-transitions-5-innovative-techniques-for-video-length-optimization-on-vimeo/"><u>In 2024, Tailored Transitions  5 Innovative Techniques for Video Length Optimization on Vimeo</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-recording-google-voice-calls-techniques-for-smartphones-and-desktops-for-2024/"><u>New Recording Google Voice Calls Techniques for Smartphones & Desktops for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-poco-f5-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Poco F5 Pro 5G? Fixed | Dr.fone</u></a></li>
+</ul></div>

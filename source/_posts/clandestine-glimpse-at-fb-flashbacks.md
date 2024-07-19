@@ -1,7 +1,7 @@
 ---
 title: "Clandestine Glimpse at Fb Flashbacks"
-date: 2024-06-25T06:16:08.015Z
-updated: 2024-06-26T06:16:08.015Z
+date: 2024-07-18T06:44:17.091Z
+updated: 2024-07-19T06:44:17.091Z
 tags:
   - ai video
   - ai facebook
@@ -36,8 +36,14 @@ Just like you can upload something on your story for others to see, you can also
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -69,6 +75,9 @@ When you turn on the airplane mode of your device, your phone will no longer be 
 
 **Step 2:** Now, turn on the airplane mode to go offline, and then open the home page again and click on any story you want to see. The story will begin to play.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![View Facebok Story anonymously via offline](https://images.wondershare.com/filmora/article-images/view-facebook-story-anonymously-via-offline.jpg)
 
 Once you are done, force close the Facebook application so that it doesn't run in the background when you disable the Airplane Mode. Because if you do that, your name can get registered. So, close the app completely. Please note that when the Airplane mode is on, some stories will not load. To watch them, you need to turn on and off the airplane mode again.
@@ -83,6 +92,9 @@ As the name suggests, rather than watching the entire story, you need to stop wa
 
 **Step 3:** Quickly swipe right or left and make sure the story doesn't end. This way, Facebook won't register you.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 3: Block Them
 
 This is another method to stop appearing as one of the viewers. This method will let you view the whole story; however, since it involves blocking the user, they will be removed from your friend list completely. So, try it if only you are fine with removing that person from your friends' list. Here's how to follow this method:
@@ -91,6 +103,9 @@ This is another method to stop appearing as one of the viewers. This method will
 
 **Step 2:** Once done, block the person. If you want, you can unblock them after 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 4: Deactivate your Facebook Account to View Story Anonymously
 
 For the last resort, you can deactivate your account and reactivate it after a while so that your name doesn't appear on the viewer's list. Even though this is an extreme step to take, but it keeps you anonymous. So, here's how you can do this method:
@@ -121,6 +136,9 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 **Step 2:** Click on a profile, and the story will be displayed.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![View Facebok Story via Messenger](https://images.wondershare.com/filmora/article-images/view-facebook-story-messenger.jpg)
 
 ### Method 3: Open Facebook Mobile App to View Stories
@@ -129,8 +147,14 @@ There are three easy ways to see someone's story on Facebook. One way is to use 
 
 **Step 2:** Please click on any of the stories that you want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![View Facebok Story on mobile](https://images.wondershare.com/filmora/article-images/view-facebook-story-mobile-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to Check Facebook Story Views?
 
 Facebook allows you to check who viewed your stories. This is known as **Facebook story viewers.** This option will be available on your story. Here's how to check Facebook story viewers.
@@ -139,6 +163,9 @@ Facebook allows you to check who viewed your stories. This is known as **Faceboo
 
 **Step 2:** Now, click on the viewers' option that you see towards the bottom left.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![View who have seen my Facebok Story](https://images.wondershare.com/filmora/article-images/check-who-viewed-facebook-story.jpg)
 
 Now, you can see the list of people's names who have seen your story. This step will remain the same for both computer and mobile app users.
@@ -185,3 +212,44 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-legal-implications-and-tips-when-archiving-whatsapp-call-recordings/"><u>[New] 2024 Approved  Legal Implications & Tips When Archiving WhatsApp Call Recordings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-visual-vault-visitor/"><u>[New] 2024 Approved  Visual Vault Visitor</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-capturing-history-securely-saving-old-printed-images/"><u>[New] Capturing History  Securely Saving Old Printed Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-supercharging-instagram-videos-on-the-go-mobile/"><u>[New] In 2024, Supercharging Instagram Videos on the Go (Mobile)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-cybernetic-video-capture-tools-for-2024/"><u>[New] Top Cybernetic Video Capture Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-viral-ventures-from-likes-to-lore-in-the-facebook-landscape-for-2024/"><u>[New] Viral Ventures  From Likes to Lore in the Facebook Landscape for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-youtubes-yummy-1-8-video-selection-for-2024/"><u>[New] YouTube's Yummy  #1-#8 Video Selection for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-proving-ground-discovering-the-top-10-reel-making-apps/"><u>[Updated] 2024 Approved  Proving Ground  Discovering the Top 10 Reel-Making Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unlock-fb-status-videos-downloading-made-easy/"><u>[Updated] 2024 Approved  Unlock FB Status Videos  Downloading Made Easy</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-vidharvest-instagram-live-fb/"><u>[Updated] 2024 Approved  VidHarvest  Instagram Live (FB)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-craft-a-striking-thumbnail-for-youtube-videos/"><u>[Updated] Craft a Striking Thumbnail for YouTube Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-formulating-final-fact-finding-flourishes-for-2024/"><u>[Updated] Formulating Final Fact-Finding Flourishes for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-10-channels-to-watch-on-igtv-daily/"><u>[Updated] Top 10 Channels to Watch on IGTV Daily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unravel-the-mysteries-of-efficient-story-connectivity-for-2024/"><u>[Updated] Unravel the Mysteries of Efficient Story Connectivity for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiled-top-5-visual-treats-on-social-medias-giant-for-2024/"><u>[Updated] Unveiled  Top 5 Visual Treats on Social Media's Giant for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-the-secrets-to-a-flawless-fb-live-session-for-2024/"><u>[Updated] Unveiling the Secrets to a Flawless FB Live Session for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-part-ways-with-discord-platform/"><u>2024 Approved  Part Ways with Discord Platform</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/2024-approved-10-best-free-subtitle-makers-to-add-subtitles-to-video-online/"><u>2024 Approved 10 Best Free Subtitle Makers to Add Subtitles to Video Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/cutting-edge-techniques-quickly-developing-quality-captions-for-facebook-posts/"><u>Cutting-Edge Techniques  Quickly Developing Quality Captions for Facebook Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/effective-methods-for-transferring-youtube-videos-to-the-social-network/"><u>Effective Methods for Transferring YouTube Videos to the Social Network</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/expertly-choosing-the-leading-5-facebook-video-grabers/"><u>Expertly Choosing the Leading 5 Facebook Video Grabers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/harness-the-hype-tactics-to-supercharge-your-social-media-status/"><u>Harness the Hype  Tactics to Supercharge Your Social Media Status</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-create-messenger-rooms/"><u>How to Create Messenger Rooms?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-and-update-hardware-device-drivers-manually-in-windows-11-by-drivereasy-guide/"><u>How to install and update hardware device drivers manually in Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>In 2024, Comparing Micro-Video Formats  The Battle of TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-marketing-metrics-the-next-chapter-with-facebook-2024/"><u>Mastering Marketing Metrics  The Next Chapter with Facebook, 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/privacy-first-reader-of-facebook-snapshots/"><u>Privacy-First Reader of Facebook Snapshots</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/resolving-face-swap-glitches-in-facebook-chat/"><u>Resolving Face Swap Glitches in Facebook Chat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/safeguarding-your-digital-footprint-on-youtube-for-2024/"><u>Safeguarding Your Digital Footprint on YouTube for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sculpted-sentences-turning-text-into-3d-art/"><u>Sculpted Sentences  Turning Text Into 3D Art</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/speech-recognition-a-game-changer-for-visual-presentations-for-2024/"><u>Speech Recognition  A Game Changer for Visual Presentations for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/syncing-fb-vids-with-whatsapp-a-step-by-step-guide/"><u>Syncing FB Vids with WhatsApp  A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-funny-face-of-freedom-top-20-pranks-at-facebooks-barracks/"><u>The Funny Face of Freedom  Top 20 Pranks at Facebook's Barracks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-path-to-retrospective-facebook-content-mobile-plus-laptop/"><u>The Path to Retrospective Facebook Content (Mobile + Laptop)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-quest-for-content-videos-in-social-media-network/"><u>The Quest for Content  Videos in Social Media Network</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-question-of-streaming-fb-moviesvideos-via-tv/"><u>The Question of Streaming FB Movies/Videos via TV</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/unlocking-the-secret-to-balanced-images-aspect-ratio-calculation-for-2024/"><u>Unlocking the Secret to Balanced Images Aspect Ratio Calculation for 2024</u></a></li>
+</ul></div>

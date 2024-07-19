@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Visual Appeal  Incorporating Black Bar & Box in Social Feeds\""
-date: 2024-05-20T14:46:22.941Z
-updated: 2024-05-21T14:46:22.941Z
+date: 2024-07-18T03:21:12.080Z
+updated: 2024-07-19T03:21:12.080Z
 tags:
   - ai video
   - ai facebook
@@ -19,6 +19,14 @@ thumbnail: https://www.lifewire.com/thmb/hndfovaQV_DsrmQv5Imdq0HljaE=/300x200/fi
 
 # 2 Ways to Add a Letterbox for Facebook Videos
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -47,6 +55,9 @@ This method is suitable for users whose source videos are not in square format (
 
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
@@ -55,10 +66,16 @@ This method is suitable for users whose source videos are not in square format (
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
 * 5\. Export the square video to local computer in mp4 or other supported formats
@@ -67,6 +84,9 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
 ## Method 2: Create a Letterbox by Adding Text Shapes
@@ -75,10 +95,16 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 1\. Start the project at 1:1 square or Instagram mode, and import your source video
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
@@ -92,6 +118,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
@@ -100,8 +129,14 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
@@ -124,10 +159,16 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 **Adding a letterbox** simply means transferring a widescreen aspect ratio video or footage to a video format with a standard width, without cropping or changing the aspect ratio of the original footage. An increasing number of people prefer to create a letterbox for their video and upload it to Facebook, as it imparts a cinematic look to the video, and is easy to get more likes. You can see the difference between before and after adding a letterbox
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pic-compare](https://images.wondershare.com/filmora/article-images/pic-compare.jpg)
 
 Want to have a try? Come on!
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
@@ -146,10 +187,16 @@ This method is suitable for users whose source videos are not in square format (
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add-letterbox-title](https://images.wondershare.com/filmora/article-images/add-letterbox-title.jpg)
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
@@ -164,6 +211,9 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -174,11 +224,17 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
@@ -197,12 +253,21 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -223,10 +288,16 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 Want to have a try? Come on!
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -241,6 +312,9 @@ This method is suitable for users whose source videos are not in square format (
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![automatic-letterbox](https://images.wondershare.com/filmora/article-images/automatic-letterbox.jpg)
 
 * 4\. Add a subtitle under **Titles** tab to the letterbox at the top and bottom and custom the texts you want.
@@ -257,8 +331,14 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![post-on-facebook](https://images.wondershare.com/filmora/article-images/post-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Method 2: Create a Letterbox by Adding Text Shapes
 
 This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). Let us see the steps below:
@@ -274,6 +354,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-doll-subtitle](https://images.wondershare.com/filmora/article-images/add-doll-subtitle.jpg)
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
@@ -290,6 +373,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 ## To Sum up
@@ -298,6 +384,9 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -318,16 +407,25 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 Want to have a try? Come on!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
 
 * 1\. Open Filmora, start the project at **1:1** square or Instagram mode
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
@@ -344,6 +442,9 @@ This method is suitable for users whose source videos are not in square format (
 
 And you can also go to the **Elements** tab, and add some creative elements such as emoji to the letterbox.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
 * 5\. Export the square video to local computer in mp4 or other supported formats
@@ -364,6 +465,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
@@ -373,10 +477,16 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 * 5\. You will see that the subtitle appears on the video in real time. Here you can adjust the width and height of the subtitle. Make it so that that black bar covers the lower end of the video completely and delete the text
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
@@ -424,3 +534,53 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-crafting-a-memorable-look-back-experience-on-fb/"><u>[New] 2024 Approved  Crafting a Memorable Look Back Experience on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-cut-to-the-chase-download-fb-videos-as-mp4/"><u>[New] 2024 Approved  Cut to the Chase - Download FB Videos as MP4</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-direct-links-sharing-twitch-content-with-friends-on-fb/"><u>[New] 2024 Approved  Direct Links  Sharing Twitch Content with Friends on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-discreetly-see-fb-snapshots/"><u>[New] 2024 Approved  Discreetly See FB Snapshots</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easy-steps-for-extracting-your-fb-status-videos/"><u>[New] 2024 Approved  Easy Steps for Extracting Your FB Status Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficiency-in-conversion-a-compact-list-of-the-top-10-video-transformers/"><u>[New] 2024 Approved  Efficiency in Conversion  A Compact List of the Top 10 Video Transformers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-automatic-youtube-playback-made-simple-for-social-networking-sites-like-facebook-for-2024/"><u>[New] Automatic YouTube Playback Made Simple for Social Networking Sites Like Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-beginning-to-connect-a-comprehensive-facebook-setup-walkthrough-for-2024/"><u>[New] Beginning to Connect  A Comprehensive Facebook Setup Walkthrough for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-boosting-engagement-the-art-of-sharing-videos-on-instagram-for-2024/"><u>[New] Boosting Engagement  The Art of Sharing Videos on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-dial-up-discovery-mastering-quick-search-on-social-media-for-2024/"><u>[New] Dial-Up Discovery  Mastering Quick Search on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-2023-guide-selecting-no-charge-fb-video-and-photo-artists/"><u>[New] In 2024, 2023 Guide  Selecting No-Charge FB Video & Photo Artists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-correct-fb-chat-display-revealed-as-yourself/"><u>[New] In 2024, Correct FB Chat Display  Revealed as Yourself</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-cutting-edge-tips-for-outshining-others-in-facebooks-social-space/"><u>[New] In 2024, Cutting-Edge Tips for Outshining Others in Facebook's Social Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transcending-boundaries-the-vr-evolutionary-journey-for-2024/"><u>[New] Transcending Boundaries  The VR Evolutionary Journey for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-your-videos-with-the-right-dimension-proportions/"><u>[New] Transform Your Videos with the Right Dimension Proportions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-a-comprehensive-look-at-youtube-to-facebook-file-transfers/"><u>[Updated] 2024 Approved  A Comprehensive Look at YouTube-to-Facebook File Transfers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-achieve-visual-dominance-with-facebooks-full-screen-capability/"><u>[Updated] 2024 Approved  Achieve Visual Dominance with Facebook's Full-Screen Capability</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-beginners-guide-to-streaming-on-fb-live-2023/"><u>[Updated] 2024 Approved  Beginner's Guide to Streaming on FB Live, 2023</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-best-hidden-downloaders-1-8-unveiled/"><u>[Updated] 2024 Approved  Best Hidden Downloaders - #1-8 Unveiled</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-craft-your-facebook-profile-video/"><u>[Updated] 2024 Approved  Craft Your Facebook Profile Video</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-ideal-6-innovative-minecraft-dwellings/"><u>[Updated] 2024 Approved  Ideal 6 Innovative Minecraft Dwellings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-account-alert-regaining-lost-access-on-facebook-for-2024/"><u>[Updated] Account Alert! Regaining Lost Access on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-aspect-ratio-for-video-content-on-social-platforms-for-2024/"><u>[Updated] Aspect Ratio for Video Content on Social Platforms for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-conquering-loud-environments-using-voicemod-on-discord-platforms-for-2024/"><u>[Updated] Conquering Loud Environments  Using VoiceMod on Discord Platforms for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-2023s-leading-applications-for-downloading-facebook-lite-videos/"><u>[Updated] In 2024, 2023'S Leading Applications for Downloading Facebook Lite Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-configure-measure-and-optimize-the-ultimate-guide-to-fb-instream-ads/"><u>[Updated] In 2024, Configure, Measure & Optimize  The Ultimate Guide to FB Instream Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-todays-top-social-media-stars-a-look-at-8-hits/"><u>[Updated] Today's Top Social Media Stars  A Look at 8 Hits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-uncovering-your-just-watched-list-on-facebook/"><u>[Updated] Uncovering Your Just-Watched List on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unleash-potential-effective-desktop-sharing-on-livestreaming-platforms/"><u>[Updated] Unleash Potential  Effective Desktop Sharing on Livestreaming Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-secrets-how-to-dominate-fb-searches-with-these-10-hacks/"><u>[Updated] Unveiling Secrets  How to Dominate FB Searches with These 10 Hacks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-value-oriented-pc-screen-recorders/"><u>[Updated] Value-Oriented PC Screen Recorders</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-video-downloader-supreme-fb-vids-in-mp4-format/"><u>[Updated] Video Downloader Supreme - FB Vids in MP4 Format</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-virtual-venue-video-verifier/"><u>[Updated] Virtual Venue Video Verifier</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-your-route-to-revisiting-fbs-recently-viewed-gems/"><u>[Updated] Your Route to Revisiting Fb’s Recently Viewed Gems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-uncovering-untapped-territories-in-meme-culture/"><u>2024 Approved  Uncovering Untapped Territories in Meme Culture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-visual-vault-verifier/"><u>2024 Approved  Visual Vault Verifier</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-harnessing-skypes-potential-on-pc-and-mac-with-ease/"><u>In 2024, Harnessing Skype's Potential on PC & Mac with Ease</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-transforming-daily-routine-into-a-social-media-journey-on-fb/"><u>In 2024, Transforming Daily Routine Into a Social Media Journey on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unleashing-potential-top-8-efficiency-boosters-for-social-media-tasks/"><u>In 2024, Unleashing Potential  Top 8 Efficiency Boosters for Social Media Tasks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-flip-fundamentals-rotating-videos-for-maximum-engagement-and-reach/"><u>Insta-Flip Fundamentals  Rotating Videos for Maximum Engagement and Reach</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leading-mp4-companies-to-watch-for-2024/"><u>Leading MP4 Companies to Watch for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-hush-zoom-muting-your-devices-voice-output-made-simple-with-our-tips-and-tricks/"><u>New Hush, Zoom! Muting Your Devices Voice Output Made Simple with Our Tips & Tricks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-online-potential-essential-fb-advice-for-businesses-for-2024/"><u>Unlocking Online Potential  Essential FB Advice for Businesses for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-responsibilities-of-each-team-member-during-production/"><u>Updated In 2024, Responsibilities of Each Team Member During Production</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/why-are-status-emojis-blue-understanding-fbs-visual-language-for-2024/"><u>Why Are Status Emojis Blue? Understanding FB's Visual Language for 2024</u></a></li>
+</ul></div>

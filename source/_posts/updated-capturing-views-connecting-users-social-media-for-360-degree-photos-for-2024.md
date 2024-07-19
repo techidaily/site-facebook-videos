@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capturing Views, Connecting Users  Social Media for 360-Degree Photos for 2024\""
-date: 2024-05-20T14:42:22.996Z
-updated: 2024-05-21T14:42:22.996Z
+date: 2024-07-18T03:09:10.767Z
+updated: 2024-07-19T03:09:10.767Z
 tags:
   - ai video
   - ai facebook
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Capturing Views, Connecting Users: Social Media for 360-Degree Photos for 2024\""
 excerpt: "\"This Article Describes [Updated] Capturing Views, Connecting Users: Social Media for 360-Degree Photos for 2024\""
 keywords: "Social Media 360,Degree Viewer,Spherical Photography,User Connectivity,Shareable Images,View Engagement,Photo Interaction"
-thumbnail: https://www.lifewire.com/thmb/AvFsoKTttswUkdcOQKuJ7hslpaQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/phoneinairplanemode-4cf424c7f7cf4366853c8100d57275cc.jpeg
+thumbnail: https://thmb.techidaily.com/df2009c639407c10216adf3ab20aeaa652a10152c64c0456c40360dd20bfbffb.jpeg
 ---
 
 ## Capturing Views, Connecting Users: Social Media for 360-Degree Photos
@@ -31,6 +31,59 @@ thumbnail: https://www.lifewire.com/thmb/AvFsoKTttswUkdcOQKuJ7hslpaQ=/400x300/fi
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+## Taking 360 Photos on iPhone and iPad With Built in Camera App
+
+ Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
+
+ If you are using iPad or iPhone then simple open your camera app and go to Panorama Shooting mode. Start capturing your photo with panoramic photo option but note that you have to follow Facebook photo dimension specifications to develop a live 360 compatible content. However, it is really hard to measure exact dimensions of a panoramic photo when you are working with default settings.
+
+ As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Taking 360 Photos on Android Smartphone with Google Street View
+
+ It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
+
+* First of all get it installed on your device. You will find a plus sign on your app window, hit this and then select Open Camera option. This app can provide you complete guidelines about how to capture 360 degree images. Note that users need to keep their camera still while capturing such shots.
+* Try to move your phone around till the time you notice orange dots on screen. As soon as these dots are there, photos will be captured automatically. There are a tick icon at bottom portion of screen that gets circular border update with every click and once you have captured complete 360 degree motion then it will go green.
+* When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
+* These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Viewing 360 Photos on Facebook
+
+ As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
+
+ You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ You might have come across so many updated features of Facebook, especially the highly interactive 360 photos. These photos tell viewers to move their phone around to get details about surroundings. The trend of sharing regular photos on Facebook has gone now and future is all about 360 content.
+
+ As we all know that 360 photos or videos are captured from special cameras that have 360 degree capability. So, most of you might be thinking that you may need to spend a lot to stay tuned to this feature on your device. But the truth is that you need not to buy any expensive camera unit to produce 360 photos for your Facebook post. It doesn’t even require a special 360 degree app to upload interactive pictures.
+
+ Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -48,6 +101,9 @@ thumbnail: https://www.lifewire.com/thmb/AvFsoKTttswUkdcOQKuJ7hslpaQ=/400x300/fi
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
@@ -121,6 +177,9 @@ Follow @Shanoon Cox
 
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
  It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
@@ -130,47 +189,9 @@ Follow @Shanoon Cox
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
-## Viewing 360 Photos on Facebook
-
- As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
-
- You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- You might have come across so many updated features of Facebook, especially the highly interactive 360 photos. These photos tell viewers to move their phone around to get details about surroundings. The trend of sharing regular photos on Facebook has gone now and future is all about 360 content.
-
- As we all know that 360 photos or videos are captured from special cameras that have 360 degree capability. So, most of you might be thinking that you may need to spend a lot to stay tuned to this feature on your device. But the truth is that you need not to buy any expensive camera unit to produce 360 photos for your Facebook post. It doesn’t even require a special 360 degree app to upload interactive pictures.
-
- Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
-
-## Taking 360 Photos on iPhone and iPad With Built in Camera App
-
- Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
-
- If you are using iPad or iPhone then simple open your camera app and go to Panorama Shooting mode. Start capturing your photo with panoramic photo option but note that you have to follow Facebook photo dimension specifications to develop a live 360 compatible content. However, it is really hard to measure exact dimensions of a panoramic photo when you are working with default settings.
-
- As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
-
-## Taking 360 Photos on Android Smartphone with Google Street View
-
- It is important to capture 360 degree photos in Facebook compatible formats so professionals recommend using Google’s street view camera app for this purpose. It works fine over iOS as well as Android platform and let users enjoy unlimited 360 shoots. To develop 360 degree videos from this application:
-
-* First of all get it installed on your device. You will find a plus sign on your app window, hit this and then select Open Camera option. This app can provide you complete guidelines about how to capture 360 degree images. Note that users need to keep their camera still while capturing such shots.
-* Try to move your phone around till the time you notice orange dots on screen. As soon as these dots are there, photos will be captured automatically. There are a tick icon at bottom portion of screen that gets circular border update with every click and once you have captured complete 360 degree motion then it will go green.
-* When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
-* These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
-
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
@@ -208,3 +229,39 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-collect-audio-files-from-fb-newsfeeds-for-2024/"><u>[New] Collect Audio Files From FB Newsfeeds for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-examining-performance-lg-bp350-screen-review/"><u>[New] Examining Performance  LG BP350 Screen Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-top-10-crafting-engaging-songs-for-fb-videos-for-2024/"><u>[New] FB Top 10  Crafting Engaging Songs for FB Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fbs-viral-anthems-list-crafting-your-number-one-song/"><u>[New] In 2024, FB's Viral Anthems List  Crafting Your Number One Song</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-to-find-videos-on-facebook/"><u>[New] In 2024, How to Find Videos on Facebook?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-insights-into-a-common-symbol-the-blue-emoji-in-fb-chat/"><u>[New] In 2024, Insights Into a Common Symbol  The Blue Emoji in FB Chat</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-interactive-media-adding-audio-to-visual-narratives-for-2024/"><u>[New] Interactive Media  Adding Audio to Visual Narratives for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-interpreting-the-functionality-behind-blue-icons-in-chat-apps-for-2024/"><u>[New] Interpreting the Functionality Behind Blue Icons in Chat Apps for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-master-facebook-seo-essential-techniques-to-skyrocket-engagement-for-2024/"><u>[New] Master Facebook SEO  Essential Techniques to Skyrocket Engagement for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebooks-premier-10-music-clip-showcase/"><u>[Updated] 2024 Approved  Facebook's Premier 10 Music Clip Showcase</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-novice-to-pro-creating-impressive-fb-covers/"><u>[Updated] 2024 Approved  From Novice to Pro  Creating Impressive FB Covers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-facebook-profile-pictures-with-these-expert-creators/"><u>[Updated] 2024 Approved  Mastering Facebook Profile Pictures with These Expert Creators</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-the-future-of-fb-advertising-key-predictions/"><u>[Updated] 2024 Approved  Navigating the Future of FB Advertising – Key Predictions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-nextgen-vidhack-fb-to-mp4-download-with-no-hassle/"><u>[Updated] 2024 Approved  NextGen VidHack  FB to MP4 Download with No Hassle</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-exploring-options-when-facebook-takes-down-my-content-for-2024/"><u>[Updated] Exploring Options When Facebook Takes Down My Content for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-extracting-fb-video-files-from-pcmac-for-2024/"><u>[Updated] Extracting FB Video Files From PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-frameworks-for-dynamic-fb-video-marketing-for-2024/"><u>[Updated] Frameworks for Dynamic FB Video Marketing for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-view-facebook-stories-anonymously-for-2024/"><u>[Updated] How to View Facebook Stories Anonymously for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-authentic-audience-growth-practical-advice-for-content-creators/"><u>[Updated] In 2024, Authentic Audience Growth  Practical Advice for Content Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-cutting-edge-tech-in-daily-life/"><u>[Updated] In 2024, Cutting-Edge Tech in Daily Life</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enjoy-pure-browsing-our-selections-of-7-top-android-adblockers/"><u>[Updated] In 2024, Enjoy Pure Browsing  Our Selections of 7 Top Android AdBlockers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fixing-glitches-seeing-your-own-face-in-fb-live/"><u>[Updated] In 2024, Fixing Glitches  Seeing Your Own Face in FB Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-how-to-engage-fans-through-real-time-streams-mobile-edition/"><u>[Updated] In 2024, How to Engage Fans Through Real-Time Streams  Mobile Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-how-to-view-comprehensively-shared-images-and-movies-by-friends/"><u>[Updated] In 2024, How To View Comprehensively Shared Images and Movies by Friends?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-inventory-of-facebook-video-ratios/"><u>[Updated] In 2024, Inventory of Facebook Video Ratios</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-mastering-fb-live-4-key-recording-techniques/"><u>[Updated] In 2024, Mastering FB Live  4 Key Recording Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-legalities-sharing-vids-on-social-media-platforms-for-2024/"><u>[Updated] Legalities  Sharing Vids on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-expert-approved-highlight-video-makers-for-any-device/"><u>2024 Approved Expert-Approved Highlight Video Makers for Any Device</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhancing-viewer-experience-vertical-videos-in-final-cut-pro-x-for-2024/"><u>Enhancing Viewer Experience  Vertical Videos in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-vivo-y200-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-vr-video-conversion-made-simple-top-tools-and-techniques/"><u>In 2024, VR Video Conversion Made Simple Top Tools and Techniques</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-3d-animation-software-free-and-paid-solutions/"><u>Updated The Ultimate Guide to 3D Animation Software Free and Paid Solutions</u></a></li>
+</ul></div>

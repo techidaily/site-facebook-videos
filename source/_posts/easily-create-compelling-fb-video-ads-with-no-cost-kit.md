@@ -1,7 +1,7 @@
 ---
 title: "\"Easily Create Compelling FB Video Ads with No-Cost Kit\""
-date: 2024-06-25T06:16:02.058Z
-updated: 2024-06-26T06:16:02.058Z
+date: 2024-07-18T06:44:09.879Z
+updated: 2024-07-19T06:44:09.879Z
 tags:
   - ai video
   - ai facebook
@@ -31,10 +31,16 @@ If you have little to no experience with video ads, don’t feel stressed. We’
 
 **You may also like:** [Facebook Jail: 10 Secrets to Avoid Being Blocked / Get Out of It >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Create Video Using the Facebook Video Creation Kit \[step by step tutorial\]
 
 Wondershare Filmora is one of the [best video editing software](https://tools.techidaily.com/wondershare/filmora/download/) for making and editing social media videos sharing on YouTube, Facebook, or Instagram. It features lots of effects, transitions, templates and elements for creating video with fun. You can create videos in different aspect ratio such as 1:1, 9:16, 16:9, 4:3 or [customize the aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) as you like.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Well, although other social media platforms are gaining popularity, Facebook remains the top of the pops, and has [over 1.5 billion daily users](https://newsroom.fb.com/company-info/). Whatever your reason for needing a video ad, you can’t go wrong broadcasting it to this kind of audience.
@@ -66,6 +72,9 @@ At first, you’ll need to select campaign objective, which is what you would li
 * Lead Generation
 * Conversions
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![choosing Facebook campaign marketing objective](https://images.wondershare.com/filmora/article-images/choosing-campaign-marketing-objective.jpg)
 
 Depending on what exactly you want to achieve from your ad, you’ll select a particular objective. Each one aims to help you reach your goal - whether that’s video views, leading people to your website, or getting them to buy your product. Depending on the objective you choose, your pricing could be different.
@@ -80,6 +89,9 @@ Once you’ve gone through the initial info, you need to choose a format for you
 * Single Image or Video
 * Collection group for Fullscreen Mobile Experience
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create Facebook ads - choose format](https://images.wondershare.com/filmora/article-images/create-ad-choose-format.jpg)
 
 Note: if you’ve enabled the Dynamic Creative option under Conversion in Ad Set tab, you’ll see the Single Image or Video format option only, since the Dynamic Creative allows you to upload individual images and headlines and generate combination automatically. Here, we’ll choose Single Image or Video format to show the next steps. Once you’ve got the hang of it, you can experiment with the other two.
@@ -132,16 +144,25 @@ From here, you can upload your own images to fill the placeholders that the temp
 
 You can also add your own logo, and if you’re feeling inspired or want to convey a particular message, choose a sticker to put on your vid!
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video creation kit  stickers](https://images.wondershare.com/filmora/article-images/video-creation-kit-stickers.jpg)
 
 You can also **add text** on this screen and adjust the text color, font and positon based on your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add text on video creation kit](https://images.wondershare.com/filmora/article-images/add-text-on-video-creation-kit.jpg)
 
 Once you click on **Use Video**, and it will start creating it for you in the background.
 
 You’ll be sent back to the original page where you can add text and links, and once you click on **Confirm**, your video ad will be ready!
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips & Tricks to Consider when creating video ads for Facebook
 
 If you’ve never made a video ad using the Facebook Video Creation Kit before, there are some things that you should consider when creating your masterpiece:
@@ -181,6 +202,9 @@ No matter what your business, video is a tool you should be taking advantage of,
 
 Whatever the purpose of your video, you’ll find the Facebook Video Creation Kit to be quite useful for you. You can create your ad using video footage, or simply add some photos for a slideshow effect.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This is great for **promoting products and services, introducing new businesses or ideas, or simply sharing something cool** that you’ve created with your friends. Not only does it showcase your photos or products, you’ll be able to add your **own text, links**, and **info to promote** your stuff exactly the way you want to![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Conclusion
@@ -205,3 +229,70 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-simplified-guide-to-following-facebook-live-broadcasts/"><u>[New] 2024 Approved  Simplified Guide to Following Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-step-by-step-process-for-integrating-music-in-facebook-videos/"><u>[New] 2024 Approved  Step-by-Step Process for Integrating Music in Facebook Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-sweeping-vistas-with-your-iphone-social-media-360-tips/"><u>[New] 2024 Approved  Sweeping Vistas with Your iPhone  Social Media 360 Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-the-power-of-cross-social-media-file-transfers-youtube-and-facebook/"><u>[New] 2024 Approved  Unlocking the Power of Cross-Social Media File Transfers (YouTube & Facebook)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-whatsapp-meeting-room-setup-made-easy/"><u>[New] 2024 Approved  WhatsApp Meeting Room Setup Made Easy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-broadcasting-made-simple-directly-stream-google-meet-to-youtube-for-2024/"><u>[New] Broadcasting Made Simple  Directly Stream Google Meet to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expert-filmmaking-skills-on-youtube-and-diverse-platforms/"><u>[New] Expert Filmmaking Skills on YouTube and Diverse Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-the-ultimate-guide-to-borders-on-insta-pics/"><u>[New] In 2024, Step-By-Step  The Ultimate Guide to Borders on Insta Pics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-ultimate-converter-mp4-videos-to-facebook/"><u>[New] In 2024, Ultimate Converter  MP4 Videos to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-video-framing-technique-adding-bb-and-letterbox-overlays-to-fb/"><u>[New] In 2024, Video Framing Technique  Adding BB and Letterbox Overlays to FB</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-integrated-content-the-brands-on-youtube-movement/"><u>[New] Integrated Content  The Brands on YouTube Movement</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-step-by-step-uploading-to-instagrams-feed-for-2024/"><u>[New] Step-By-Step  Uploading to Instagram's Feed for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-newest-viral-content-on-tiktok-today/"><u>[New] The Newest Viral Content on TikTok Today</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-strategies-for-high-def-facebook-video-for-2024/"><u>[New] Top Strategies for High-Def Facebook Video for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-ultimate-collection-20-chuckle-inducing-detention-cell-photos-for-a-better-day-for-2024/"><u>[New] Ultimate Collection  20 Chuckle-Inducing Detention Cell Photos for a Better Day for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-eye-catching-profile-elements-for-unique-tiktok-users/"><u>[Updated] 2024 Approved  Eye-Catching Profile Elements for Unique TikTok Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-screens-on-record-unveiling-the-leading-screencap-software/"><u>[Updated] 2024 Approved  Screens on Record  Unveiling The Leading Screencap Software</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-perfectly-pair-videos-and-stories/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Perfectly Pair Videos and Stories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-to-a-tailored-facebook-memory-reel/"><u>[Updated] 2024 Approved  Step-by-Step to a Tailored Facebook Memory Reel</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-survey-facebook-video-proportions/"><u>[Updated] 2024 Approved  Survey  Facebook Video Proportions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tackling-muted-frames-on-snapchat-videos-the-ultimate-solution/"><u>[Updated] 2024 Approved  Tackling Muted Frames on Snapchat Videos - The Ultimate Solution</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-quick-and-easy-sharing-of-creative-content/"><u>[Updated] 2024 Approved  The Quick and Easy Sharing of Creative Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tips-and-tricks-broadcasting-high-quality-360-videos-on-fb/"><u>[Updated] 2024 Approved  Tips and Tricks  Broadcasting High-Quality 360 Videos on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-troubleshoot-android-facebook-videos-not-playing/"><u>[Updated] 2024 Approved  Troubleshoot Android  Facebook Videos Not Playing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unlocking-memories-facebook-look-back-editing-steps/"><u>[Updated] 2024 Approved  Unlocking Memories  Facebook Look Back Editing Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-virtual-venue-video-capturer/"><u>[Updated] 2024 Approved  Virtual Venue Video Capturer</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-effective-use-of-adsense-on-youtube-to-boost-channel-income-for-2024/"><u>[Updated] Effective Use of AdSense on YouTube to Boost Channel Income for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-set-up-facebook-cover-videos/"><u>[Updated] In 2024, Set up Facebook Cover Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-spy-on-fb-chronicles-unseen/"><u>[Updated] In 2024, Spy on FB Chronicles, Unseen</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-superior-ff-videograbber-package-easy-and-reliable/"><u>[Updated] In 2024, Superior FF Videograbber Package - Easy and Reliable</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-swift-snapshots-on-the-social-network/"><u>[Updated] In 2024, Swift Snapshots on the Social Network</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-abc-of-advertising-a-trifecta-strategy-to-drive-engagement-on-fb-platforms/"><u>[Updated] In 2024, The ABC of Advertising  A Trifecta Strategy to Drive Engagement on FB Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-top-5-captivating-videos-from-the-world-of-fb/"><u>[Updated] In 2024, Top 5 Captivating Videos From the World of FB</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-insights-into-huawei-p10s-software-optimization-and-updates/"><u>2024 Approved  Insights Into Huawei P10’s Software Optimization and Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-edge-no-8-online-photomontage-toolkit/"><u>2024 Approved  Leading Edge  No. 8 Online Photomontage Toolkit</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-mastering-distance-remote-podcast-broadcast/"><u>2024 Approved  Mastering Distance  Remote Podcast Broadcast</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-media-mash-ups-a-detailed-walkthrough-to-youtube-plus-tiktok-linkage/"><u>2024 Approved  Mastering Media Mash-Ups  A Detailed Walkthrough to YouTube + TikTok Linkage</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-seamless-time-stamp-integration-on-youtube-videos/"><u>2024 Approved  Seamless Time-Stamp Integration on YouTube Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-the-potential-of-vr-video-on-your-iphone/"><u>2024 Approved  Unlock the Potential of VR Video on Your iPhone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/achieve-hollywood-grade-video-a-step-by-step-fcpx-guide-for-2024/"><u>Achieve Hollywood-Grade Video A Step-by-Step FCPX Guide for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/are-you-excited-to-find-out-the-top-class-vhs-video-effects-maker-put-your-worries-at-rest-because-this-article-will-provide-the-best-vhs-effect-makers-for-/"><u>Are You Excited to Find Out the Top-Class VHS Video Effects Maker? Put Your Worries at Rest because This Article Will Provide the Best VHS Effect Makers for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/cure-windows-10-sounds-try-audio-driver-reinstallation/"><u>Cure Windows 10 Sounds: Try Audio Driver Reinstallation</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevating-gameplay-tips-for-using-the-steam-switch-controller-for-2024/"><u>Elevating Gameplay  Tips for Using the Steam Switch Controller for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-confinement-to-comedy-selecting-lighthearted-fb-incarceration-moments/"><u>From Confinement to Comedy  Selecting Lighthearted FB Incarceration Moments</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-create-hit-facebook-song-vids-10-edition/"><u>How to Create Hit Facebook Song Vids - #10 Edition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>In 2024, A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-novice-to-pro-the-complete-creator-hub-guide/"><u>In 2024, From Novice to Pro  The Complete Creator Hub Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-13-pro-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone 13 Pro to Android | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-proven-techniques-for-stunning-timelapses-in-gopro-studio/"><u>In 2024, Proven Techniques for Stunning Timelapses in GoPro Studio</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-nubia-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Nubia Device</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigate-your-way-to-the-best-idevice-apps-for-extracting-content-from-facebook/"><u>Navigate Your Way to the Best iDevice Apps for Extracting Content From Facebook</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-discovering-the-finest-voice-recorders-on-windows-a-comprehensive-list/"><u>New In 2024, Discovering the Finest Voice Recorders on Windows – A Comprehensive List</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/overcoming-the-2023-facebook-security-breach/"><u>Overcoming the 2023 Facebook Security Breach</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/quick-guide-uploading-tiktoks-directly-to-facebook/"><u>Quick Guide  Uploading TikToks Directly to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/selling-success-on-facebook-ideas-and-strategies-to-try/"><u>Selling Success on Facebook  Ideas and Strategies to Try</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-aspect-ratio-effect-enhancing-or-detracting-from-your-videos-message-for-2024/"><u>The Aspect Ratio Effect Enhancing or Detracting From Your Videos Message for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-ultimate-guide-to-youtube-video-distribution-on-fb/"><u>The Ultimate Guide to YouTube Video Distribution on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-10-viral-music-videos-on-social-media/"><u>Top 10 Viral Music Videos on Social Media</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-5-secure-downloader-apps-for-fb-video-extraction/"><u>Top 5 Secure Downloader Apps for FB Video Extraction</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-rotate-avi-in-verticalportrait-orientation-windows-macandroid-iphone-and-online-for-2024/"><u>Updated How to Rotate AVI in Vertical/Portrait Orientation Windows, Mac，Android, iPhone & Online for 2024</u></a></li>
+</ul></div>

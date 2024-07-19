@@ -1,7 +1,7 @@
 ---
 title: "\"Detailed Instructions  Mastering the Art of Uploading VR Media to FB\""
-date: 2024-05-20T14:31:33.236Z
-updated: 2024-05-21T14:31:33.236Z
+date: 2024-07-18T02:36:42.160Z
+updated: 2024-07-19T02:36:42.160Z
 tags:
   - ai video
   - ai facebook
@@ -12,14 +12,110 @@ categories:
 description: "\"This Article Describes Detailed Instructions: Mastering the Art of Uploading VR Media to FB\""
 excerpt: "\"This Article Describes Detailed Instructions: Mastering the Art of Uploading VR Media to FB\""
 keywords: "VR Media Upload Guide,FB VR Content Submission,Virtual Reality FB Posts,FB VR Media Tutorial,Upload VR to Facebook,Mastering FB VR Uploads,FB VR Video Handling"
-thumbnail: https://www.lifewire.com/thmb/2V_G_xN9itHN1yVayRsBfLGLGZ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/20201117103929-532580a0db8346228f20b8d694ee67cb.jpg
+thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42d3ab8c5759ae25bd6bbada4.jpg
 ---
 
 ## Detailed Instructions: Mastering the Art of Uploading VR Media to FB
 
 # How to Make and Upload 360 Video to Facebook
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ The recently updated features of Facebook allow users to update all new stories of life on profile in much interactive way. You can show a different world to all your viewers with [360 videos and photos](https://tools.techidaily.com/wondershare/filmora/download/).
+
+ You will be glad to know that Facebook is now compatible with VR headsets that were earlier limited to Oculus Rift etc. It is time to get started with new experience to enjoy 360 videos on your own Facebook Profile.
+
+* [Part 1: What is 360 Video](#part1)
+* [Part 2: How to Make 360 Video for Facebook](#part2)
+* [Part 3: How to Upload 360 Video to Facebook](#part3)
+* [Part 4: Facebook 360 Video & Gear VR](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What is 360 Degree Video?
+
+ Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
+
+ These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
+
+ So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+## How to make a 360 Degree video on Facebook?
+
+ Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
+
+* Panono
+* 360Fly
+* IC Realtech ALLie
+* [LG 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Giroptic 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Ricoh Theta S](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ All these cameras are capable enough to develop 360 degree footage with ease.
+
+ Most of the reviewers till now have recommended 360Fly for Facebook 360 videos due to its compact size and handy features. Its performance is somewhere linked to GoPro quality. This camera unit is currently available in two models: 360 Camera with 4K ability at $356.69 and 360 HD camera with price tag of $219.95 only. This camera can easily develop Facebook compatible content.
+
+ In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
+
+## How to upload 360 degree videos on Facebook
+
+ Uploading 360 video to Facebook is easy, just follow the steps below:
+
+ Step 1: Users need to follow the same steps as they usually follow to add normal videos to their facebook pages.
+
+ Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
+
+![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
+
+ Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+ Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
+
+ Step 5: Finally click the **Publish** option.
+
+ Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
+
+## Facebook 360 Video & Gear VR
+
+ As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
+
+ You will be glad to know that Facebook 360 is now compatible with Samsung Gear VR device, as earlier it was supposed to work only on iOS platform. So now you can explore the world of 360 videos with ease.
+
+**Related:** [Samsung Gear VR vs. Google Cardboard](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### How to view 360 videos and photos from Facebook on Samsung Gear VR?
+
+ To view 360 video from Facebook on the Samsung Gear VR, you need download the Facebook 360 app from the Oculus Store first and then launch the Facebook 360 app at your Gear VR headset, then you can perform the following actions:
+
+**Explore:** It will help users to discover many interesting 360 videos or photos that are already updated by individual creators or big organizations.
+
+**Following:** It will assist you to go through the 360 content that your friends have recently updated on Facebook 360 app.
+
+**Saved:** With this feature users can get connected to their saved 360 degree content.
+
+**Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
 
 ##### Shanoon Cox
 
@@ -42,6 +138,108 @@ thumbnail: https://www.lifewire.com/thmb/2V_G_xN9itHN1yVayRsBfLGLGZ8=/400x300/fi
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to make a 360 Degree video on Facebook?
+
+ Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
+
+* Panono
+* 360Fly
+* IC Realtech ALLie
+* [LG 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Giroptic 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
+* [Ricoh Theta S](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ All these cameras are capable enough to develop 360 degree footage with ease.
+
+ Most of the reviewers till now have recommended 360Fly for Facebook 360 videos due to its compact size and handy features. Its performance is somewhere linked to GoPro quality. This camera unit is currently available in two models: 360 Camera with 4K ability at $356.69 and 360 HD camera with price tag of $219.95 only. This camera can easily develop Facebook compatible content.
+
+ In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+## How to upload 360 degree videos on Facebook
+
+ Uploading 360 video to Facebook is easy, just follow the steps below:
+
+ Step 1: Users need to follow the same steps as they usually follow to add normal videos to their facebook pages.
+
+ Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
+
+![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
+
+ Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
+
+![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+ Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
+
+ Step 5: Finally click the **Publish** option.
+
+ Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Facebook 360 Video & Gear VR
+
+ As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
+
+ You will be glad to know that Facebook 360 is now compatible with Samsung Gear VR device, as earlier it was supposed to work only on iOS platform. So now you can explore the world of 360 videos with ease.
+
+**Related:** [Samsung Gear VR vs. Google Cardboard](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### How to view 360 videos and photos from Facebook on Samsung Gear VR?
+
+ To view 360 video from Facebook on the Samsung Gear VR, you need download the Facebook 360 app from the Oculus Store first and then launch the Facebook 360 app at your Gear VR headset, then you can perform the following actions:
+
+**Explore:** It will help users to discover many interesting 360 videos or photos that are already updated by individual creators or big organizations.
+
+**Following:** It will assist you to go through the 360 content that your friends have recently updated on Facebook 360 app.
+
+**Saved:** With this feature users can get connected to their saved 360 degree content.
+
+**Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ The recently updated features of Facebook allow users to update all new stories of life on profile in much interactive way. You can show a different world to all your viewers with [360 videos and photos](https://tools.techidaily.com/wondershare/filmora/download/).
+
+ You will be glad to know that Facebook is now compatible with VR headsets that were earlier limited to Oculus Rift etc. It is time to get started with new experience to enjoy 360 videos on your own Facebook Profile.
+
+* [Part 1: What is 360 Video](#part1)
+* [Part 2: How to Make 360 Video for Facebook](#part2)
+* [Part 3: How to Upload 360 Video to Facebook](#part3)
+* [Part 4: Facebook 360 Video & Gear VR](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What is 360 Degree Video?
+
+ Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
+
+ These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
+
+ So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to make a 360 Degree video on Facebook?
 
  Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
@@ -100,6 +298,9 @@ thumbnail: https://www.lifewire.com/thmb/2V_G_xN9itHN1yVayRsBfLGLGZ8=/400x300/fi
 
 **Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -129,6 +330,9 @@ Follow @Shanoon Cox
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to make a 360 Degree video on Facebook?
 
  Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
@@ -147,6 +351,9 @@ Follow @Shanoon Cox
 
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to upload 360 degree videos on Facebook
 
  Uploading 360 video to Facebook is easy, just follow the steps below:
@@ -159,180 +366,9 @@ Follow @Shanoon Cox
 
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
-![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
-
- Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
-
- Step 5: Finally click the **Publish** option.
-
- Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-## Facebook 360 Video & Gear VR
-
- As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
-
- You will be glad to know that Facebook 360 is now compatible with Samsung Gear VR device, as earlier it was supposed to work only on iOS platform. So now you can explore the world of 360 videos with ease.
-
-**Related:** [Samsung Gear VR vs. Google Cardboard](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### How to view 360 videos and photos from Facebook on Samsung Gear VR?
-
- To view 360 video from Facebook on the Samsung Gear VR, you need download the Facebook 360 app from the Oculus Store first and then launch the Facebook 360 app at your Gear VR headset, then you can perform the following actions:
-
-**Explore:** It will help users to discover many interesting 360 videos or photos that are already updated by individual creators or big organizations.
-
-**Following:** It will assist you to go through the 360 content that your friends have recently updated on Facebook 360 app.
-
-**Saved:** With this feature users can get connected to their saved 360 degree content.
-
-**Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- The recently updated features of Facebook allow users to update all new stories of life on profile in much interactive way. You can show a different world to all your viewers with [360 videos and photos](https://tools.techidaily.com/wondershare/filmora/download/).
-
- You will be glad to know that Facebook is now compatible with VR headsets that were earlier limited to Oculus Rift etc. It is time to get started with new experience to enjoy 360 videos on your own Facebook Profile.
-
-* [Part 1: What is 360 Video](#part1)
-* [Part 2: How to Make 360 Video for Facebook](#part2)
-* [Part 3: How to Upload 360 Video to Facebook](#part3)
-* [Part 4: Facebook 360 Video & Gear VR](#part4)
-
-## What is 360 Degree Video?
-
- Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
-
- These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
-
- So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
-
-## How to make a 360 Degree video on Facebook?
-
- Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
-
-* Panono
-* 360Fly
-* IC Realtech ALLie
-* [LG 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Giroptic 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Ricoh Theta S](https://tools.techidaily.com/wondershare/filmora/download/)
-
- All these cameras are capable enough to develop 360 degree footage with ease.
-
- Most of the reviewers till now have recommended 360Fly for Facebook 360 videos due to its compact size and handy features. Its performance is somewhere linked to GoPro quality. This camera unit is currently available in two models: 360 Camera with 4K ability at $356.69 and 360 HD camera with price tag of $219.95 only. This camera can easily develop Facebook compatible content.
-
- In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
-
-## How to upload 360 degree videos on Facebook
-
- Uploading 360 video to Facebook is easy, just follow the steps below:
-
- Step 1: Users need to follow the same steps as they usually follow to add normal videos to their facebook pages.
-
- Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
-
-![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
-
- Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
-
-![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
-
- Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
-
- Step 5: Finally click the **Publish** option.
-
- Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-## Facebook 360 Video & Gear VR
-
- As now, it is possible to add 360 degree videos on Facebook so people these days are searching for new formats. These 360 degree videos can capture thrills and action from sports games or can show you things that are happening behind the camera. They can also help viewers to explore various beautiful locations throughout the world.
-
- You will be glad to know that Facebook 360 is now compatible with Samsung Gear VR device, as earlier it was supposed to work only on iOS platform. So now you can explore the world of 360 videos with ease.
-
-**Related:** [Samsung Gear VR vs. Google Cardboard](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### How to view 360 videos and photos from Facebook on Samsung Gear VR?
-
- To view 360 video from Facebook on the Samsung Gear VR, you need download the Facebook 360 app from the Oculus Store first and then launch the Facebook 360 app at your Gear VR headset, then you can perform the following actions:
-
-**Explore:** It will help users to discover many interesting 360 videos or photos that are already updated by individual creators or big organizations.
-
-**Following:** It will assist you to go through the 360 content that your friends have recently updated on Facebook 360 app.
-
-**Saved:** With this feature users can get connected to their saved 360 degree content.
-
-**Timeline:** When you are ready to update your own 360 degree videos or wish to go through your earlier updates then visit Timeline.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- The recently updated features of Facebook allow users to update all new stories of life on profile in much interactive way. You can show a different world to all your viewers with [360 videos and photos](https://tools.techidaily.com/wondershare/filmora/download/).
-
- You will be glad to know that Facebook is now compatible with VR headsets that were earlier limited to Oculus Rift etc. It is time to get started with new experience to enjoy 360 videos on your own Facebook Profile.
-
-* [Part 1: What is 360 Video](#part1)
-* [Part 2: How to Make 360 Video for Facebook](#part2)
-* [Part 3: How to Upload 360 Video to Facebook](#part3)
-* [Part 4: Facebook 360 Video & Gear VR](#part4)
-
-## What is 360 Degree Video?
-
- Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
-
- These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
-
- So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
-
-## How to make a 360 Degree video on Facebook?
-
- Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
-
-* Panono
-* 360Fly
-* IC Realtech ALLie
-* [LG 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Giroptic 360 Cam](https://tools.techidaily.com/wondershare/filmora/download/)
-* [Ricoh Theta S](https://tools.techidaily.com/wondershare/filmora/download/)
-
- All these cameras are capable enough to develop 360 degree footage with ease.
-
- Most of the reviewers till now have recommended 360Fly for Facebook 360 videos due to its compact size and handy features. Its performance is somewhere linked to GoPro quality. This camera unit is currently available in two models: 360 Camera with 4K ability at $356.69 and 360 HD camera with price tag of $219.95 only. This camera can easily develop Facebook compatible content.
-
- In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
-
-## How to upload 360 degree videos on Facebook
-
- Uploading 360 video to Facebook is easy, just follow the steps below:
-
- Step 1: Users need to follow the same steps as they usually follow to add normal videos to their facebook pages.
-
- Step 2: Before you hit the publish button on your screen, go to the   **Advanced** tab.
-
-![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
-
- Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
-
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -392,3 +428,45 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-steps-to-post-music-on-social-media-stories/"><u>[New] 2024 Approved  Steps to Post Music on Social Media Stories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-strategies-for-broadcasting-social-media-happenings/"><u>[New] 2024 Approved  Strategies for Broadcasting Social Media Happenings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-best-tricks-to-make-your-silent-facebook-vids-sing-discover-12-steps/"><u>[New] 2024 Approved  The Best Tricks to Make Your Silent Facebook Vids Sing – Discover 12 Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-ultimate-playbook-for-splitting-views-in-facebook-livestreams/"><u>[New] 2024 Approved  The Ultimate Playbook for Splitting Views in Facebook Livestreams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-reviving-your-shows-heartbeat-saving-facebook-livestream-pauses/"><u>[New] In 2024, Reviving Your Show's Heartbeat  Saving Facebook Livestream Pauses</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-sending-streaming-content-linking-fb-vids-and-whatsapp-messages/"><u>[New] In 2024, Sending Streaming Content  Linking FB Vids & WhatsApp Messages</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-stepwise-approach-to-establish-whatsapp-group-spaces/"><u>[New] In 2024, Stepwise Approach to Establish WhatsApp Group Spaces</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlock-fb-ad-success-with-these-20-gratis-video-editing-apps/"><u>[New] In 2024, Unlock Fb Ad Success with These 20 Gratis Video Editing Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-history-watching-older-facebook-content-on-your-device/"><u>[New] In 2024, Unveiling History  Watching Older Facebook Content on Your Device</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-proven-steps-for-professional-screen-recording/"><u>[New] Proven Steps for Professional Screen Recording</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-step-by-step-guide-signing-up-for-a-new-facebook-profile-for-2024/"><u>[New] Step-by-Step Guide  Signing Up for a New Facebook Profile for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-art-of-video-marketing-11-tips-to-skyrocket-fb-traffic/"><u>[New] The Art of Video Marketing  11 Tips to Skyrocket FB Traffic</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-turn-your-passion-into-profits-youtube-on-facebook-monetization-steps-for-2024/"><u>[New] Turn Your Passion Into Profits  YouTube on Facebook Monetization Steps for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unmasking-the-vanished-youtube-recommendations-on-facebook-for-2024/"><u>[New] Unmasking the Vanished YouTube Recommendations on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-range-of-fb-video-width-height-ratios/"><u>[Updated] 2024 Approved  Range of FB Video Width-Height Ratios</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-revive-lost-media-icons-on-facebook-users/"><u>[Updated] 2024 Approved  Revive Lost Media Icons on Facebook Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-seamless-blend-inserting-music-into-fb-video-posts/"><u>[Updated] 2024 Approved  Seamless Blend  Inserting Music Into FB Video Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-art-of-cross-promotion-twitters-to-facebooks/"><u>[Updated] 2024 Approved  The Art of Cross-Promotion  Twitters to Facebooks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-top-6-essential-lite-videos-downloader-apps-for-facebook/"><u>[Updated] 2024 Approved  Top 6 Essential Lite Videos Downloader Apps for Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-ultimate-ff-downloader-suite-for-social-video-grabs/"><u>[Updated] 2024 Approved  Ultimate FF Downloader Suite for Social Video Grabs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-elevating-your-stream-with-advanced-screen-capture-tech/"><u>[Updated] Elevating Your Stream with Advanced Screen Capture Tech</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-ultimate-guide-sharing-youtube-videos-on-fb/"><u>[Updated] In 2024, The Ultimate Guide  Sharing YouTube Videos on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-understanding-and-controlling-facebook-video-playback/"><u>[Updated] In 2024, Understanding and Controlling Facebook Video Playback</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlock-fb-potential-with-2023s-top-free-tools-for-posts/"><u>[Updated] In 2024, Unlock FB Potential with 2023’S Top-Free Tools for Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlocking-hidden-social-content-where-are-your-vids/"><u>[Updated] In 2024, Unlocking Hidden Social Content  Where Are Your Vids?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-unblocked-video-sharing-for-2024/"><u>[Updated] The Ultimate Guide to Unblocked Video Sharing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/augmented-reality-takes-a-leap-forward-on-messenger/"><u>Augmented Reality Takes a Leap Forward on Messenger</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-lava-agni-2-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Lava Agni 2 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-integrating-obs-studio-for-optimal-android-performance/"><u>In 2024, Integrating OBS Studio for Optimal Android Performance</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-elite-camera-set-optimal-webcams-for-windows-11/"><u>In 2024, The Elite Camera Set  Optimal Webcams for Windows 11</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-youtube-analytics-a-beginners-guide/"><u>In 2024, Unveiling YouTube Analytics  A Beginner's Guide</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-the-ultimate-dvd-conversion-guide-from-disc-to-digital/"><u>New 2024 Approved The Ultimate DVD Conversion Guide From Disc to Digital</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-banish-the-blur-how-to-stabilize-shaky-videos-in-adobe-premiere-pro-for-2024/"><u>New Banish the Blur How to Stabilize Shaky Videos in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-windows-video-editing-software-that-rivals-sony-vegas/"><u>New Windows Video Editing Software That Rivals Sony Vegas</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/optimize-your-streaming-quality-with-these-top-4-video-boosters/"><u>Optimize Your Streaming Quality with These Top 4 Video Boosters</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-wealth-reddits-top-13-money-making-methods-for-2024/"><u>Unlocking Wealth  Reddit's Top 13 Money-Making Methods for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+</ul></div>
