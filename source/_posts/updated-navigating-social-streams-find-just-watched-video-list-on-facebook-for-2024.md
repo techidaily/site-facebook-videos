@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Social Streams  Find Just-Watched Video List on Facebook for 2024\""
-date: 2024-07-18T06:14:54.924Z
-updated: 2024-07-19T06:14:54.924Z
+date: 2024-09-02T17:03:36.251Z
+updated: 2024-09-03T17:03:36.251Z
 tags:
   - ai video
   - ai facebook
@@ -581,3 +581,70 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-6-effective-ways-to-add-live-facebook-content-online/"><u>[New] 2024 Approved  6 Effective Ways to Add Live Facebook Content Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-essential-framework-for-targeted-ad-messaging-on-fb/"><u>[New] 2024 Approved  Essential Framework for Targeted Ad Messaging on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-view-comprehensively-shared-images-and-movies-by-friends/"><u>[New] 2024 Approved  How To View Comprehensively Shared Images and Movies by Friends?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-masterful-marketing-top-strategies-to-thrive-in-fb-video-space/"><u>[New] 2024 Approved  Masterful Marketing  Top Strategies to Thrive in FB Video Space</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-broadcast-brilliance-transforming-fb-live-for-tv-for-2024/"><u>[New] Broadcast Brilliance  Transforming FB Live for TV for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-horizontal-vs-vertical-best-for-fb-videos-for-2024/"><u>[New] Horizontal Vs. Vertical  Best for FB Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-access-all-instagram-video-content-with-free-online-and-os-compatible-exporters/"><u>[New] In 2024, Access All Instagram Video Content with Free Online and OS-Compatible Exporters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-overhaul-the-2023-updates-explained/"><u>[New] In 2024, Facebook Overhaul  The 2023 Updates Explained</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-freedom-on-facebook-10-tricks-to-sidestep-blockage/"><u>[New] In 2024, Freedom on Facebook  10 Tricks to Sidestep Blockage</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-social-landsayer-how-to-spark-fb-engagement/"><u>[New] In 2024, Navigating the Social Landsayer  How to Spark FB Engagement</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-personalize-your-online-story-mastery-in-fb-memories/"><u>[New] In 2024, Personalize Your Online Story  Mastery in FB Memories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-revisit-facebooks-top-watches-a-step-by-step/"><u>[New] In 2024, Revisit Facebook's Top Watches  A Step-by-Step</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-seeing-my-friends-video-and-pics-on-chat-apps/"><u>[New] In 2024, Seeing My Friends' Video and Pics on Chat Apps</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mobile-apps-redefining-vocal-identity-2-cookie-jar-for-2024/"><u>[New] Mobile Apps Redefining Vocal Identity (2 Cookie Jar for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-simplified-guide-crafting-powerful-content-for-fb-ads-for-2024/"><u>[New] Simplified Guide  Crafting Powerful Content for FB Ads for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-2023-update-facebooks-new-landscape-explained-for-2024/"><u>[New] The 2023 Update  Facebook's New Landscape Explained for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unveiling-the-art-of-social-media-video-magic-on-fb-for-2024/"><u>[New] Unveiling the Art of Social Media Video Magic on FB for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-creating-immersive-iphone-360-reels-for-social-media/"><u>[Updated] 2024 Approved  Creating Immersive iPhone 360 Reels for Social Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-grasping-social-media-success-basic-facebook-statistics/"><u>[Updated] 2024 Approved  Grasping Social Media Success  Basic Facebook Statistics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-how-to-create-and-change-video-cover-on-facebook/"><u>[Updated] 2024 Approved  How to Create and Change Video Cover on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-masterclass-in-sharing-youtube-videos-to-facebook-links/"><u>[Updated] 2024 Approved  Masterclass in Sharing  YouTube Videos to Facebook Links</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-the-art-of-360-live-on-facebook/"><u>[Updated] 2024 Approved  Navigating the Art of 360 Live on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-dribbble-artwork-aspect-ratio-guide-for-2024/"><u>[Updated] Dribbble Artwork Aspect Ratio Guide for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-video-presence-editing-and-changing-facebook-covers-for-2024/"><u>[Updated] Enhancing Video Presence  Editing and Changing Facebook Covers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-tips-for-youtube-short-pitfall-prevention/"><u>[Updated] Expert Tips for YouTube Short Pitfall Prevention</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebook-cover-video-widthheight-guide/"><u>[Updated] Facebook Cover Video Width/Height Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fb-post-scheduling-simplified-with-free-tools-for-2024/"><u>[Updated] FB Post-Scheduling Simplified with Free Tools for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-high-quality-game-capture-apps-reviewed-for-2024/"><u>[Updated] High-Quality Game Capture Apps Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-facebook-profile-transformation-top-11-online-image-makers/"><u>[Updated] In 2024, Facebook Profile Transformation  Top 11 Online Image Makers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-how-to-optimize-vertical-or-horizontal-vids-on-fb/"><u>[Updated] In 2024, How To Optimize Vertical or Horizontal Vids On FB</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-luminous-videos-unveiling-5-pioneering-apps/"><u>[Updated] In 2024, Luminous Videos  Unveiling 5 Pioneering Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-tune-in-to-success-the-art-of-audio-amalgamation-for-fb-video-posts/"><u>[Updated] In 2024, Tune in to Success  The Art of Audio Amalgamation for FB Video Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seamless-access-track-down-your-latest-facebook-watches-for-2024/"><u>[Updated] Seamless Access  Track Down Your Latest Facebook Watches for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-up-your-photography-game-with-these-top-8-tablets/"><u>[Updated] Step Up Your Photography Game With These Top 8 Tablets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-ultimate-guide-to-converting-youtubes-into-vivid-gifs-no-save/"><u>[Updated] The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-potential-in-marketing-with-strategic-use-of-hash-tags-on-facebook-for-2024/"><u>[Updated] Unlocking Potential in Marketing with Strategic Use of Hash Tags on Facebook for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-streamlined-audio-processing-in-windows-media-player/"><u>2024 Approved  Streamlined Audio Processing in Windows Media Player</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-15-open-world-games-to-beat-the-climb/"><u>2024 Approved  Top 15 Open World Games to Beat the Climb</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-potential-with-polarrs-advanced-editing-features/"><u>2024 Approved  Unlocking Potential with Polarr's Advanced Editing Features</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/boosting-zoom-clarity-the-guide-to-using-filters-wisely/"><u>Boosting Zoom Clarity  The Guide to Using Filters Wisely</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-guide-for-steelseries-driver-software-compatible-with-windows-operating-systems/"><u>Easy Installation Guide for SteelSeries Driver Software Compatible with Windows Operating Systems</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-tips-best-10-ae-text-setups/"><u>Expert Tips  Best 10 AE Text Setups</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/free-youtube-money-calculators-calculate-youtube-money-in-2024/"><u>Free YouTube Money Calculators-Calculate YouTube Money, In 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-canon-pixma-tc5220-driver-version-for-seamless-printing-experience/"><u>Get the Newest Canon PIXMA TC5220 Driver Version for Seamless Printing Experience</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-add-a-green-screen-to-zoom/"><u>How to Add a Green Screen to Zoom</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-14-pro-max-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 14 Pro Max without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-download-and-update-the-canoscan-lide-220-scanner-software-correctly/"><u>How to Download & Update the CanoScan LiDE 220 Scanner Software Correctly</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-s24-ultra-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy S24 Ultra Quickly? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-y100-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-samsung-galaxy-s23-ultra-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Samsung Galaxy S23 Ultra Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-from-passive-page-peeps-to-paying-patrons-facebook-monetization-magic/"><u>In 2024, From Passive Page Peeps to Paying Patrons  Facebook Monetization Magic</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-art-of-aerial-broadcasting-a-dji-drone-guide-for-facebook/"><u>In 2024, The Art of Aerial Broadcasting  A DJI Drone Guide for Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-tracing-back-on-facebook-a-laptop-and-mobile-recipe/"><u>In 2024, Tracing Back on Facebook  A Laptop & Mobile Recipe</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-uncovering-the-roar-and-cry-of-canid-communication/"><u>In 2024, Uncovering the Roar and Cry of Canid Communication</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/revolutionary-free-fb-story-magicians-for-extensions-and-mobile-for-2024/"><u>Revolutionary Free FB Story Magicians for Extensions & Mobile for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/revolutionizing-content-creation-the-future-of-live-video-on-facebook/"><u>Revolutionizing Content Creation  The Future of Live Video on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-essential-manual-for-roku-and-fb-live/"><u>The Essential Manual for Roku and FB Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-new-short-form-fb-story/"><u>The New Short-Form FB Story</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-in-depth-hardware-analysis/"><u>Tom's Tech Reviews: In-Depth Hardware Analysis</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-converter-mp4-to-facebook-social-media-pro-for-2024/"><u>Top Converter  MP4 to Facebook (Social Media Pro) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/undetected-consumer-of-life-streams-fb-for-2024/"><u>Undetected Consumer of Life Streams (FB) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unleash-the-potential-of-video-marketing-on-facebook-for-2024/"><u>Unleash the Potential of Video Marketing on Facebook for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-split-screen-video-makers-the-best-ios-and-android-apps/"><u>Updated In 2024, Split Screen Video Makers The Best iOS and Android Apps</u></a></li>
+</ul></div>
