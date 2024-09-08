@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
-date: 2024-08-29T03:07:56.502Z
-updated: 2024-08-30T03:07:56.502Z
+date: 2024-09-07T01:27:20.500Z
+updated: 2024-09-08T01:27:20.500Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
@@ -41,6 +41,12 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
 [View On Amazon](https://www.amazon.com/CHARGETECH-27K-Portable-Power-Bank/dp/B07QCC3T54/?tag=lifewire-onsite-prod-20&ascsubtag=4589409%7Cn71d8181ff2304cb385f47d507bf914f522%7CB07QCC3T54) [View On Chargetech.com](https://chargetech.com/product/portable-power-outlet/)
@@ -63,6 +69,12 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
@@ -70,7 +82,10 @@ Lifewire / Gannon Burgett
 ![Charge Tech](https://www.lifewire.com/thmb/BCvqF82o5dvxOJ6Sb59FZYjknuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_7Web-5c900332c9e77c0001eb1ca0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
@@ -82,19 +97,12 @@ Lifewire / Gannon Burgett
 
  We enjoyed the satin matte black finish of the ChargeTech battery pack as it makes it easy to hold onto without fear of dropping it, but it also holds onto fingerprints. This wasn't a huge deal-breaker for us, but if you prefer your gadgets to be free of fingerprints, it's something to keep in mind.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Yet another power adapter**
 
  Upon taking the ChargeTech 27000mAh out of its case, the first thing we noticed is the included accessories. In addition to the battery pack itself, ChargeTech includes a dedicated charger as well as an international travel[adapter](https://www.lifewire.com/definition-of-adapter-817585) and accompanying case to carry it all in.
 
 ![Charge Tech](https://www.lifewire.com/thmb/pMX2VbLRSNxwb3iQ2XKJW_wDvKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_8Web-5c9003a546e0fb000187a367.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  When it arrived, the battery pack was roughly 50% charged according to the onboard battery life indicator. So, as we do with all battery packs we test, we drained it completely and charged it.
@@ -109,9 +117,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  The iPhone XS managed six and a half full charges with an average charge time of an hour and a half. The Samsung Galaxy S8 Active charged seven and a half times with an average charge time of an hour and a half as well. ChargeTech doesn't provide guidelines on charge estimates, but the numbers line up with other testing we've done and reviews left on the Amazon product page.
@@ -123,12 +128,33 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Something to keep in mind is charge times will vary greatly depending on how many devices are plugged in, the temperature, and whether or not you're using devices while they're charging.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: A little bit up there**
 
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Just that little bit extra**
 
  The ChargeTech's competition can be narrowed down to two main devices, the[Jackery PowerBar 77](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480) and the Omars battery pack. All three devices include an integrated AC plugin and all three devices are within 5,000mAh of battery capacity.
@@ -146,7 +172,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -154,6 +183,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  27000mAh Portable AC Battery Pack

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Live Stream Gopro to Facebook and Periscope?"
-date: 2024-08-29T03:14:52.885Z
-updated: 2024-08-30T03:14:52.885Z
+date: 2024-09-07T01:27:13.786Z
+updated: 2024-09-08T01:27:13.786Z
 tags:
   - ai video
   - ai facebook
@@ -25,6 +25,12 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Preparation for live streaming
 
 Before you start live streaming from your action camera you will be required to install three apps- the GoPro App, the Live4 App and the Periscope App.
@@ -43,14 +49,32 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 ![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. Pair your action camera with the GoPro app
 
 ![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
 
 ![camera’s WiFi ](https://images.wondershare.com/filmora/article-images/camera’s-wifi.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to live stream GoPro to Facebook?
 
 1\. Open the Live4 App and tap on the + button. Now log in to your Facebook.
@@ -61,13 +85,22 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 ![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
 ![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to live stream GoPro to Periscope
 
 Once you are done with your GoPro settings you can start live streaming via the Periscope app. Just open the app and tap the broadcast icon to start broadcasting
@@ -75,16 +108,16 @@ Once you are done with your GoPro settings you can start live streaming via the 
 ![Click broadcast ](https://images.wondershare.com/filmora/article-images/click-broadcast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Note:**
 
 1\. Never exit the Periscope app while you are broadcasting or it will end the broadcast
 2\. Swiping right during the broadcast will let you choose the camera from which you want to broadcast. When you double tap the broadcast screen you will be allowed to toggle between your action camera and the iPhone camera.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Live streaming your GoPro footage would allow you to share your action moments with your friends and followers at any given time. GoPro cameras are known to capture videos like no other cameras can. Live streaming your action camera footage will let your share those extreme moments no matter where you are.
@@ -92,7 +125,10 @@ Live streaming your GoPro footage would allow you to share your action moments w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 
