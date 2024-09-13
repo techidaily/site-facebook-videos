@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB Video  Quick Subtitle & Caption Creation Guide for 2024\""
-date: 2024-08-29T03:04:59.988Z
-updated: 2024-08-30T03:04:59.988Z
+date: 2024-09-06T02:21:18.601Z
+updated: 2024-09-12T19:47:43.958Z
 tags:
   - ai video
   - ai facebook
@@ -35,6 +35,13 @@ Step 1: First of all, you need to move to your video library. In case if you fin
 
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
 
 #### Upload SRT File option
@@ -49,6 +56,19 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -57,6 +77,19 @@ SRT caption files are usually supported by almost all popular media players and 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
@@ -76,11 +109,31 @@ Here are few simple to follow steps
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -95,6 +148,13 @@ Once you have finished the text based editing task then hit the Export option av
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,67 +163,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-dodging-dangers-restore-fb-after-the-2023-incident/"><u>[New] 2024 Approved  Dodging Dangers  Restore FB After the 2023 Incident</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-facebook-cover-video-all-you-need-to-know/"><u>[New] 2024 Approved  Facebook Cover Video  All You Need to Know</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up/"><u>[New] 2024 Approved  Reveal Hidden Gems  Top 12 Steps to Make Your FB Videos Show Up</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-riches-a-deep-dive-into-mr-beasts-wealth/"><u>[New] 2024 Approved  The Riches  A Deep Dive Into Mr. Beast's Wealth</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-a-step-by-step-approach-to-ending-live-sharing-on-laptops-and-tablets/"><u>[New] A Step-by-Step Approach to Ending Live Sharing on Laptops and Tablets</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-essential-arsenal-for-modern-enterprise-top-trending-gadgets-and-tech-to-own/"><u>[New] Essential Arsenal for Modern Enterprise  Top Trending Gadgets and Tech To Own</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-facebook-copyright-what-if-my-videos-removed-immediately-due-to-copyright-for-2024/"><u>[New] Facebook Copyright | What If My Videos Removed Immediately Due to Copyright for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-gear-vr-and-mobile-devices-the-2023-compatibility-guide/"><u>[New] Gear VR and Mobile Devices  The 2023 Compatibility Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-demystifying-absence-no-recommended-video-content-on-facebook/"><u>[New] In 2024, Demystifying Absence  No Recommended Video Content on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebooks-quintessential-changes-for-enthusiasts/"><u>[New] In 2024, Facebook's Quintessential Changes for Enthusiasts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-social-streams-find-just-watched-video-list-on-facebook/"><u>[New] In 2024, Navigating Social Streams  Find Just-Watched Video List on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unseen-strategies-how-to-tap-into-your-facebook-message-library/"><u>[New] In 2024, Unseen Strategies  How to Tap Into Your Facebook Message Library</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-digital-legacy-preservation-saving-fb-video-conversations/"><u>[Updated] 2024 Approved  Digital Legacy Preservation  Saving FB Video Conversations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-seamless-transition-from-tv-to-facebook-lives/"><u>[Updated] 2024 Approved  Seamless Transition  From TV to Facebook Lives</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-secure-seamless-youtube-watching-across-devices-and-browsers/"><u>[Updated] 2024 Approved  Secure Seamless YouTube Watching Across Devices and Browsers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-strategies-for-clearer-facebook-live-footage-viewing/"><u>[Updated] 2024 Approved  Strategies for Clearer Facebook Live Footage Viewing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-why-does-your-fb-message-feed-show-a-blue-image-decoding-its-purpose/"><u>[Updated] 2024 Approved  Why Does Your FB Message Feed Show a Blue Image? Decoding Its Purpose</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-bypassing-errors-in-facebook-story-postings-and-viewing-for-2024/"><u>[Updated] Bypassing Errors in Facebook Story Postings & Viewing for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-enhance-youtube-creations-with-soundtrack-perfection-guide-for-2024/"><u>[Updated] Enhance YouTube Creations with Soundtrack Perfection Guide for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-financial-forecasts-in-focus-select-stock-youtube-channels-for-2024/"><u>[Updated] Financial Forecasts in Focus  Select Stock YouTube Channels for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-leveraging-advanced-techniques-in-360-video-on-fb-live/"><u>[Updated] In 2024, Leveraging Advanced Techniques in 360 Video on FB Live</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unveiling-2023s-most-efficient-tools-for-fb-lite-videos-download/"><u>[Updated] In 2024, Unveiling 2023'S Most Efficient Tools for FB Lite Videos Download</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-mastering-facebooks-live-features-for-optimal-performance-for-2024/"><u>[Updated] Mastering Facebook's Live Features for Optimal Performance for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-youtube-video-edits-with-adobe-premiere/"><u>[Updated] Mastering YouTube Video Edits with Adobe Premiere</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-obs-techniques-for-clear-skype-screen-recording/"><u>[Updated] OBS Techniques for Clear Skype Screen Recording</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-premier-seminar-title-inventor-suite-for-2024/"><u>[Updated] Premier Seminar Title Inventor Suite for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-supercharged-strategies-to-locate-online-ids/"><u>[Updated] Supercharged Strategies to Locate Online ID's</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-tailoring-tutorials-for-square-shaped-video-sharing/"><u>2024 Approved  Tailoring Tutorials for Square-Shaped Video Sharing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/beginning-your-italian-journey-top-10-welcoming-phrases/"><u>Beginning Your Italian Journey: Top 10 Welcoming Phrases</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/charting-the-path-to-previous-imagery-a-facebook-centric-guide/"><u>Charting the Path to Previous Imagery  A Facebook-Centric Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-guide-brother-hl-l2340dw-printer-software-for-windows-users/"><u>Download Guide: Brother HL-L2340DW Printer Software for Windows Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/engage-audience-directly-from-xbox-with-fb-live/"><u>Engage Audience Directly From Xbox with FB Live</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/guide-to-fetching-superior-quality-fb-videos/"><u>Guide to Fetching Superior Quality FB Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/history-on-your-flip-watching-old-fb-stories-for-2024/"><u>History on Your Flip  Watching Old FB Stories for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-cut-down-clutter-spot-and-reduce-big-file-usage-windows/"><u>How to Cut Down Clutter: Spot and Reduce Big File Usage Windows</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-oppo-a1x-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Oppo A1x 5G Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Poco C65? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-vivo-x100-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Vivo X100 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-14-plus-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 14 Plus to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-comprehensive-list-of-top-6-facebook-video-downloader-apps/"><u>In 2024, Comprehensive List of Top 6 Facebook Video Downloader Apps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On OnePlus 12? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-iphones-a-compreenas-guide-to-storing-and-sharing-gifs/"><u>In 2024, IPhones  A Compreenas Guide to Storing & Sharing GIFs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-strategy-behind-automatic-youtube-playback-on-fb/"><u>In 2024, The Strategy Behind Automatic YouTube Playback on FB</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-lava-agni-2-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Lava Agni 2 5G Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/in-2024-top-video-editing-tools-you-need-to-know/"><u>In 2024, Top Video Editing Tools You Need to Know</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/rank-your-download-preferences-with-our-top-5-list/"><u>Rank Your Download Preferences with Our Top 5 List</u></a></li>
-<li><a href="https://common-error.techidaily.com/restore-your-bluetooth-connection-effective-solutions-for-the-unresponsive-issue/"><u>Restore Your Bluetooth Connection: Effective Solutions for the Unresponsive Issue</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-motorola-g54-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Motorola G54 5G Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steams-secure-contents-lock-error-effectively/"><u>Troubleshooting Steam's Secure Contents Lock Error Effectively</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-vivo-s18-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Vivo S18 Pro without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-windows-pc-from-nvidias-geforce-now-error-0xc0f1103f/"><u>Unlocking Windows PC From Nvidia's GeForce Now Error 0Xc0f1103f</u></a></li>
-</ul></div>
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-how-to-record-video-calls-on-facebook-4-methods/"><u>[New] How to Record Video Calls on Facebook [4 Methods]</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-preventing-and-addressing-live-pause-issues-fb-for-2024/"><u>[New] Preventing and Addressing Live Pause Issues (FB) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-securing-your-periscope-footage-expert-techniques-revealed/"><u>[New] Securing Your Periscope Footage Expert Techniques Revealed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-blueprint-to-youtube-wealth-smart-strategies-for-facebook-video-marketing/"><u>[New] The Blueprint to YouTube Wealth Smart Strategies for Facebook Video Marketing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unlockingfullpotentialwithyourcamrecorder/"><u>[New] UnlockingFullPotentialWithYourCamRecorder</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-innovative-video-concepts-through-google-trends-exploration/"><u>[Updated] 2024 Approved Innovative Video Concepts Through Google Trends Exploration</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-social-media-synergy-connecting-twitch-streams-with-fb/"><u>[Updated] 2024 Approved Social Media Synergy Connecting Twitch Streams with FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fb-moments-snappy-storytime/"><u>[Updated] FB Moments Snappy Storytime</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-capturing-moments-like-never-before-with-sj-cam-s6/"><u>[Updated] In 2024, Capturing Moments Like Never Before with SJ-CAM S6</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-and-share-best-social-media-tools-of-the-year/"><u>2024 Approved Capture and Share Best Social Media Tools of the Year</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-elevate-your-facebook-profile-with-these-11-superior-tools/"><u>2024 Approved Elevate Your Facebook Profile with These 11 Superior Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-samsung-galaxy-m14-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Samsung Galaxy M14 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-vivo-y02t-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo Y02T Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/how-to-use-markers-in-video-recording-and-editing-for-2024/"><u>How to Use Markers in Video Recording and Editing for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-xiaomi-redmi-note-12-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+</ul></div>
+
