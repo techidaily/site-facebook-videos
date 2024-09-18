@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Seamless Viewing of Time-Honored Facebook Stories\""
-date: 2024-09-10T01:49:55.713Z
-updated: 2024-09-13T06:39:13.846Z
+date: 2024-09-15T18:13:35.099Z
+updated: 2024-09-17T19:46:49.871Z
 tags:
   - ai video
   - ai facebook
@@ -37,13 +37,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
@@ -68,13 +61,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -95,13 +81,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -110,23 +89,9 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -135,6 +100,13 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -162,6 +134,13 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -178,19 +157,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -206,17 +172,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-best-20-facebook-jail-memes-to-brighten-up-your-day-filmora/"><u>[Updated] 2024 Approved Best 20 Facebook Jail Memes to Brighten Up Your Day - Filmora</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-ultimate-strategy-for-creating-viral-hashtags-on-facebook/"><u>[Updated] 2024 Approved The Ultimate Strategy for Creating Viral Hashtags on Facebook</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-breaking-down-the-best-starter-drone-a-syma-x5c-review/"><u>[Updated] Breaking Down the Best Starter Drone – A Syma X5C Review</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-cloaked-glance-at-social-media-snapshits/"><u>[Updated] In 2024, Cloaked Glance at Social Media Snapshits</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-navigating-fb-video-aspects-ratios-explained/"><u>[Updated] Navigating FB Video Aspects Ratios Explained</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-swiveling-screens-mastering-video-rotation-on-instagram-for-2024/"><u>[Updated] Swiveling Screens Mastering Video Rotation on Instagram for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-honor-play-8t-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Honor Play 8T PC | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-honor-80-pro-straight-screen-edition-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Honor 80 Pro Straight Screen Edition Face Lock?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/is-aurora-hdr-setting-photography-trends-in-2024/"><u>Is Aurora HDR Setting Photography Trends, In 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/steady-visual-storytelling-techniques-for-2024/"><u>Steady Visual Storytelling Techniques for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/stop-cod-vanguard-from-locking-up-on-your-computer-expert-advice/"><u>Stop COD Vanguard From Locking Up on Your Computer - Expert Advice</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-8-essential-factors-you-should-evaluate-when-choosing-your-next-desktop-computer/"><u>Top 8 Essential Factors You Should Evaluate When Choosing Your Next Desktop Computer</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook-for-2024/"><u>[New] A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-financial-frontiers-unveiling-pewdiepies-income-graph/"><u>[New] Financial Frontiers Unveiling PewDiePie's Income Graph</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-androids-best-rated-10-ultimate-game-boy-advance-simulators/"><u>[New] In 2024, Android's Best-Rated 10 Ultimate Game Boy Advance Simulators</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-creating-a-captivating-experience-with-your-first-facebook-live-for-2024/"><u>[Updated] Creating a Captivating Experience with Your First Facebook Live for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024youtubetop8/"><u>【2024年度上半期】今月のベストYouTubeダウンロードプラットフォームTOP8</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/add-vibrant-colors-to-your-terminal-using-an-easy-single-command-trick/"><u>Add Vibrant Colors to Your Terminal Using an Easy Single-Command Trick</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/cutting-edge-tips-for-using-colored-backdrops-in-video-making/"><u>Cutting-Edge Tips for Using Colored Backdrops in Video Making</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-it-feels-using-genuine-google-chrome-on-ios-devices/"><u>How It Feels Using Genuine Google Chrome on iOS Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-effortless-facebook-live-four-strategies-to-record-successfully/"><u>In 2024, Effortless Facebook Live Four Strategies to Record Successfully</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/preserve-the-blue-band-promise-with-these-ideas-for-2024/"><u>Preserve the Blue Band Promise with These Ideas for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/rise-to-the-top-livestreaming-on-youtube-no-matter-how-low-followers-are-for-2024/"><u>Rise to the Top - Livestreaming on YouTube, No Matter How Low Followers Are for 2024</u></a></li>
 </ul></div>
 

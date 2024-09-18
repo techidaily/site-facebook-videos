@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tips for Perfected Framing  Implementing Letterboxing on Social Media\""
-date: 2024-08-29T03:04:12.176Z
-updated: 2024-08-30T03:04:12.176Z
+date: 2024-09-13T17:52:44.261Z
+updated: 2024-09-18T02:37:35.026Z
 tags:
   - ai video
   - ai facebook
@@ -90,10 +90,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
@@ -102,24 +98,17 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
+
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
@@ -127,67 +116,19 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-slick-facebook-downloaders-top-8-free-and-easy-online-accessories/"><u>[New] 2024 Approved  Slick Facebook Downloaders  Top 8 Free & Easy Online Accessories</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unleashing-creativity-mastering-camera-snaps-on-zoom/"><u>[New] 2024 Approved  Unleashing Creativity  Mastering Camera Snaps on Zoom</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-capture-and-record-a-new-era-of-iphoneipad-recording/"><u>[New] Capture & Record  A New Era of iPhone/iPad Recording</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-fix-hidden-suggested-youtube-and-facebook-videos-explained-for-2024/"><u>[New] Fix  Hidden Suggested YouTube & Facebook Videos Explained for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-an-uninterrupted-viewing-experience-set-up-youtube-autoplay-on-fb/"><u>[New] In 2024, Crafting an Uninterrupted Viewing Experience  Set Up Youtube Autoplay on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-propel-your-presence-on-facebook-mastering-the-art-of-going-live/"><u>[New] In 2024, Propel Your Presence on Facebook  Mastering the Art of Going Live</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tricks-to-stream-pre-filmed-footage-during-facebook-livestreams/"><u>[New] In 2024, Tricks to Stream Pre-Filmed Footage During Facebook Livestreams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unite-gamers-and-followers-xboxfb-livestream-guide/"><u>[New] In 2024, Unite Gamers & Followers  Xbox/FB Livestream Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-infuse-your-tiktok-with-popular-anime-themes-and-styles-for-2024/"><u>[New] Infuse Your TikTok with Popular Anime Themes & Styles for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-must-haves-best-android-picture-adjusters-for-2024/"><u>[New] Must-Haves  Best Android Picture Adjusters for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-top-10-ways-to-improve-fb-page-rankings-for-2024/"><u>[New] Navigating the Top 10 Ways to Improve FB Page Rankings for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-seeking-entertainment-a-guide-to-watching-fb-videos/"><u>[New] Seeking Entertainment  A Guide to Watching FB Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-streamline-broadcasting-going-from-xbox-to-fb-live/"><u>[New] Streamline Broadcasting  Going From Xbox to FB Live</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-ultimate-transformation-mp4-plus-srt-success/"><u>[New] The Ultimate Transformation  MP4 + SRT Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-enhance-your-tv-experience-mastering-fb-live-and-roku/"><u>[Updated] 2024 Approved  Enhance Your TV Experience  Mastering FB Live and Roku</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-skyrocket-fb-engagement-enhancing-page-rankings/"><u>[Updated] 2024 Approved  Skyrocket FB Engagement  Enhancing Page Rankings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-crafting-compelling-online-presence-incorporating-wirecast-into-fb-streams/"><u>[Updated] Crafting Compelling Online Presence  Incorporating Wirecast Into FB Streams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-ephemeral-insights-into-fb-episodes/"><u>[Updated] Ephemeral Insights Into FB Episodes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-a-step-by-step-tutorial-to-monitor-popular-interactions-on-youtube/"><u>[Updated] In 2024, A Step-by-Step Tutorial to Monitor Popular Interactions on YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-elevate-your-gopro-footage-live-streaming-on-facebook-and-periscope/"><u>[Updated] In 2024, Elevate Your Gopro Footage  Live Streaming on Facebook and Periscope</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-hastening-social-media-sharing-between-fb-and-tiktok/"><u>[Updated] In 2024, Hastening Social Media Sharing Between FB and TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-speeding-up-tiktok-videos-made-simple/"><u>[Updated] Speeding Up TikTok Videos Made Simple</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-swipe-right-for-music-top-10-fb-vids-today/"><u>[Updated] Swipe Right for Music  Top 10 FB Vids Today</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-dive-into-the-deep-end-of-facebook-meme-culture/"><u>2024 Approved  Dive Into The Deep End of Facebook Meme Culture</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-proper-techniques-for-streaming-from-gopro-camera-to-social-networks/"><u>2024 Approved  Proper Techniques for Streaming From GoPro Camera to Social Networks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-steps-to-resolve-unusual-self-viewer-mistakes-in-chats/"><u>2024 Approved  Steps to Resolve Unusual Self-Viewer Mistakes in Chats</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-strategies-for-clearer-facebook-live-footage-viewing/"><u>2024 Approved  Strategies for Clearer Facebook Live Footage Viewing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/a-guide-to-facebooks-pinnacle-feature-adjustments-for-2024/"><u>A Guide to Facebook's Pinnacle Feature Adjustments for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/anonymous-glimpse-into-fb-flashbacks-for-2024/"><u>Anonymous Glimpse Into FB Flashbacks for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/deciphering-online-videography-a-facebook-journey/"><u>Deciphering Online Videography  A Facebook Journey</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-the-newest-intel-raid-drivers-on-your-windows-system-versions-for-w11-10-8-and-win7/"><u>How to Install the Newest Intel RAID Drivers on Your Windows System: Versions for W11, 10, 8 & Win7</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-best-online-stock-market-channels-reviewed/"><u>In 2024, Best Online Stock Market Channels Reviewed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-break-down-the-essentials-of-youtube-sharing-on-facebook/"><u>In 2024, Break Down  The Essentials of YouTube Sharing on Facebook</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-enhanced-entertainment-tv-ready-looping-techniques-for-video-content/"><u>In 2024, Enhanced Entertainment  Tv-Ready Looping Techniques for Video Content</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-game-changing-tvs-for-ps5-and-xbox-series-x-enthusiasts/"><u>In 2024, Game-Changing TVs for PS5 & Xbox Series X Enthusiasts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-launchpad-to-digital-society-the-essentials-of-facebook-account-creation/"><u>In 2024, Launchpad to Digital Society  The Essentials of Facebook Account Creation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-essential-manual-for-roku-and-fb-live/"><u>In 2024, The Essential Manual for Roku and FB Live</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/no-budget-no-problem-the-finest-free-voice-alterer-for-valorant-players-for-2024/"><u>No Budget? No Problem! The Finest Free Voice Alterer for Valorant Players for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/optimizing-your-fb-video-ads-20-best-tips-for-success-for-2024/"><u>Optimizing Your FB Video Ads  20 Best Tips for Success for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/secure-r9-series-with-updated-software/"><u>Secure R9 Series with Updated Software</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/staying-powered-up-for-gaming-why-this-apc-ups-is-a-must-have/"><u>Staying Powered Up for Gaming: Why This APC UPS Is a Must-Have</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-requesting-a-game-return-or-full-money-back-from-steam/"><u>Step-by-Step Guide: Requesting a Game Return or Full Money Back From Steam</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-3-sites-to-find-free-oneplus-unlock-codes-to-unlock-your-oneplus-phone-by-drfone-android/"><u>Top 3 Sites to Find Free OnePlus Unlock Codes to Unlock Your OnePlus Phone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/uncovering-inexpensive-deals-for-your-gopro-camera/"><u>Uncovering Inexpensive Deals for Your GoPro Camera</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -195,3 +136,22 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-behind-the-scenes-of-virtual-reality-films-for-2024/"><u>[New] Behind the Scenes of Virtual Reality Films for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-discovering-the-secret-to-instagram-voice-change-for-2024/"><u>[New] Discovering the Secret to Instagram Voice Change for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-from-zero-to-hero-establishing-a-new-social-media-presence-facebook-for-2024/"><u>[New] From Zero to Hero Establishing a New Social Media Presence (Facebook) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-leading-the-virtual-conversation-with-social-media/"><u>[New] In 2024, Leading the Virtual Conversation with Social Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-instant-access-to-top-notch-hd-footage-on-fb-for-2024/"><u>[New] Instant Access to Top-Notch HD Footage on FB for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-top-10-facebook-video-downloader-for-android-updated/"><u>[Updated] 2024 Approved Top 10 Facebook Video Downloader for Android - Updated</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-best-practices-for-creating-compelling-hash-tags-on-facebook/"><u>[Updated] In 2024, Best Practices for Creating Compelling Hash Tags on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-core-principles-in-crafting-persuasive-facebook-ads/"><u>[Updated] In 2024, Core Principles in Crafting Persuasive Facebook Ads</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-speaker-based-call-tape-recorder-iphone-2024/"><u>[Updated] Speaker-Based Call Tape Recorder iPhone 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/dynamic-mac-screen-and-audio-capture-tool/"><u>Dynamic Mac Screen and Audio Capture Tool</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/efficient-techniques-to-reduce-video-size-for-smooth-sharing-on-whatsapp/"><u>Efficient Techniques to Reduce Video Size for Smooth Sharing on WhatsApp</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimal-mobile-tools-for-post-processing-dji-media/"><u>In 2024, Optimal Mobile Tools for Post-Processing DJi Media</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pulling-puzzled-listeners-intros-that-involve-for-2024/"><u>Pulling Puzzled Listeners Intros That Involve for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/unraveling-the-secrets-to-a-smooth-experience-installing-and-running-tiny-tinas-wonderlands-on-your-windows-or-mac-computer-successfully/"><u>Unraveling the Secrets to a Smooth Experience: Installing and Running Tiny Tina’s Wonderlands on Your Windows or Mac Computer Successfully</u></a></li>
+</ul></div>
+

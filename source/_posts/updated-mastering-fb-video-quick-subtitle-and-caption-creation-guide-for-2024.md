@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB Video  Quick Subtitle & Caption Creation Guide for 2024\""
-date: 2024-09-06T02:21:18.601Z
-updated: 2024-09-12T19:47:43.958Z
+date: 2024-09-14T17:46:56.245Z
+updated: 2024-09-18T07:07:50.794Z
 tags:
   - ai video
   - ai facebook
@@ -35,13 +35,6 @@ Step 1: First of all, you need to move to your video library. In case if you fin
 
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
 
 #### Upload SRT File option
@@ -56,19 +49,6 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -77,19 +57,6 @@ SRT caption files are usually supported by almost all popular media players and 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
@@ -109,31 +76,11 @@ Here are few simple to follow steps
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -147,13 +94,6 @@ Once you have finished the text based editing task then hit the Export option av
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -172,20 +112,28 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-record-video-calls-on-facebook-4-methods/"><u>[New] How to Record Video Calls on Facebook [4 Methods]</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-preventing-and-addressing-live-pause-issues-fb-for-2024/"><u>[New] Preventing and Addressing Live Pause Issues (FB) for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-securing-your-periscope-footage-expert-techniques-revealed/"><u>[New] Securing Your Periscope Footage Expert Techniques Revealed</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-blueprint-to-youtube-wealth-smart-strategies-for-facebook-video-marketing/"><u>[New] The Blueprint to YouTube Wealth Smart Strategies for Facebook Video Marketing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-unlockingfullpotentialwithyourcamrecorder/"><u>[New] UnlockingFullPotentialWithYourCamRecorder</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-innovative-video-concepts-through-google-trends-exploration/"><u>[Updated] 2024 Approved Innovative Video Concepts Through Google Trends Exploration</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-social-media-synergy-connecting-twitch-streams-with-fb/"><u>[Updated] 2024 Approved Social Media Synergy Connecting Twitch Streams with FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-fb-moments-snappy-storytime/"><u>[Updated] FB Moments Snappy Storytime</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-capturing-moments-like-never-before-with-sj-cam-s6/"><u>[Updated] In 2024, Capturing Moments Like Never Before with SJ-CAM S6</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-and-share-best-social-media-tools-of-the-year/"><u>2024 Approved Capture and Share Best Social Media Tools of the Year</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-elevate-your-facebook-profile-with-these-11-superior-tools/"><u>2024 Approved Elevate Your Facebook Profile with These 11 Superior Tools</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-samsung-galaxy-m14-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Samsung Galaxy M14 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-vivo-y02t-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo Y02T Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/how-to-use-markers-in-video-recording-and-editing-for-2024/"><u>How to Use Markers in Video Recording and Editing for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-xiaomi-redmi-note-12-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-broadcasting-with-gopro-tips-for-facebookperiscope-integration-for-2024/"><u>[New] Broadcasting with GoPro Tips for Facebook/Periscope Integration for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-quit-quickly-leave-facebook-lives-on-pc-and-pads/"><u>[New] In 2024, Quit Quickly Leave Facebook Lives on PC & Pads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-storytellers-edge-integrating-youtube-vids-with-ig/"><u>[Updated] 2024 Approved The Storyteller's Edge Integrating YouTube Vids with IG</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-crafting-captivating-stories-on-fb-a-comprehensive-guide-to-bio-crafting-for-2024/"><u>[Updated] Crafting Captivating Stories on FB A Comprehensive Guide to Bio Crafting for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-countdown-the-best-10-music-videos-of-now/"><u>[Updated] Facebook's Countdown The Best 10 Music Videos of Now</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-live-streaming-and-screen-capture-a-comprehensive-obs-analysis/"><u>[Updated] Live Streaming & Screen Capture A Comprehensive OBS Analysis</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-prime-fb-downloader-pack-for-ff-browsing-enthusiasts/"><u>[Updated] Prime FB Downloader Pack for FF Browsing Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/digiarty-pro-suite-discounts-elevate-your-artistic-skills-at-an-exclusive-price/"><u>DigiArty Pro Suite Discounts – Elevate Your Artistic Skills at an Exclusive Price!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exceptional-online-tv-services-featuring-community-broadcasts-for-2024/"><u>Exceptional Online TV Services Featuring Community Broadcasts for 2024</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/experience-improved-online-tracking-through-advanced-cookiebot-solutions/"><u>Experience Improved Online Tracking Through Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/generating-engagement-with-new-group-creation-on-fb/"><u>Generating Engagement with New Group Creation on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-voice-text-to-speech/"><u>New 2024 Approved What Is AI Voice Text to Speech?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/revolutionary-methods-for-ipad-audio-logging/"><u>Revolutionary Methods for iPad Audio Logging</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/types-of-facebook-video-aspect-ratios/"><u>Types of Facebook Video Aspect Ratios</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock the Potential of Live Streaming Facebook via OBS Devices\""
-date: 2024-09-10T07:22:49.022Z
-updated: 2024-09-12T23:14:48.009Z
+date: 2024-09-14T03:10:28.965Z
+updated: 2024-09-17T20:04:45.852Z
 tags:
   - ai video
   - ai facebook
@@ -34,25 +34,11 @@ Here is the step by step guide to go live from PC to facebook with OBS
 * [Part3.Preview and Test your before go live](#part3)
 * [Part4.Video tutorial](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## A. Setting the OBS Scenes
 
 Step 1: Make your scenes perfectly ready before starting the actual streaming process.
 
 ![  scenes](https://images.wondershare.com/filmora/article-images/scenes.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 2: Now you need to add sources to the scenes.
 
@@ -70,30 +56,9 @@ Step 5: Once you have done settings for all sources then they must be adjusted o
 
 ![adjust ](https://images.wondershare.com/filmora/article-images/adjust.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 6: You also need to arrange the capture size for your videos. Adjust the right video size.
 
 ![ video size](https://images.wondershare.com/filmora/article-images/video-size.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## B. Stream setting according to Facebook
 
@@ -103,23 +68,9 @@ Step 1: First of all you need to go to the settings.
 
 ![setting ](https://images.wondershare.com/filmora/article-images/setting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose your preferred recording format.
 
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
@@ -143,13 +94,6 @@ Step 1: It is time to hit the button “Start Streaming”.
 
 ![ Click start](https://images.wondershare.com/filmora/article-images/click-start.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
@@ -160,45 +104,19 @@ Step 3: It is time to add your title as per preferences, make selection for your
 
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video tutorial
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook stream parameter requirements
@@ -212,6 +130,13 @@ Step 5: This is all about how to live stream your videos over facebook directly 
 * 7\. The encoding bit rate must be kept as CBR in order to get best results.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -228,17 +153,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-achieve-fluent-fb-video-posting-windows-linux-ios-and-android-tips/"><u>[New] 2024 Approved Achieve Fluent FB Video Posting Windows, Linux, iOS & Android Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-gopro-and-yi-the-2023-ultimate-actions-camera-verdict/"><u>[New] In 2024, GoPro & YI The 2023 Ultimate Actions Camera Verdict</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtual-battlegrounds-oculus-htc-and-playstation-face-off/"><u>[New] In 2024, Virtual Battlegrounds Oculus, HTC & PlayStation Face-Off</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-revive-lost-media-icons-on-facebook-users/"><u>[New] Revive Lost Media Icons on Facebook Users</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-virtual-battlegrounds-top-7-fps-showdowns/"><u>[Updated] 2024 Approved Virtual Battlegrounds Top 7 FPS Showdowns</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-master-list-essential-6-fb-lite-downloads/"><u>2024 Approved Master List Essential 6 FB Lite Downloads</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/essential-strategies-for-iosandroid-streamers-on-facebook/"><u>Essential Strategies for iOS/Android Streamers on Facebook</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/exclusive-list-of-the-top-10-digital-recording-apps/"><u>Exclusive List of the Top 10 Digital Recording Apps</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-a-guide-to-recording-private-whatsapp-communications/"><u>In 2024, A Guide to Recording Private WhatsApp Communications</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-leveraging-likeability-for-business-profits-on-fb/"><u>In 2024, Leveraging Likeability for Business Profits on FB</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-issue-troubleshooting-steam-games-that-wont-start-in-windows-10/"><u>Resolved Issue: Troubleshooting Steam Games That Won't Start in Windows 10</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-pc-intro-maker-showdown-top-online-and-offline-tools/"><u>Updated PC Intro Maker Showdown Top Online and Offline Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebook-and-the-evolution-of-short-form-videos-a-2023-perspective/"><u>[New] 2024 Approved Facebook and the Evolution of Short-Form Videos A 2023 Perspective</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-a-guide-to-effective-hashtag-integration-on-facebook-platforms-for-2024/"><u>[New] A Guide to Effective Hashtag Integration on Facebook Platforms for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-12-facebook-marketing-tips-for-business-beginners-and-pros/"><u>[New] In 2024, 12 Facebook Marketing Tips for Business (Beginners and Pros)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-guide-seamless-facebook-live-integration-for-web-pages/"><u>[New] In 2024, Guide Seamless Facebook Live Integration for Web Pages</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-maximizing-engagement-with-dual-screen-broadcasting-techniques-in-facebook-for-2024/"><u>[New] Maximizing Engagement with Dual-Screen Broadcasting Techniques in Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-instantly-stream-youtube-content-on-facebook-auto-play-guide/"><u>[Updated] 2024 Approved Instantly Stream YouTube Content on Facebook Auto-Play Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-social-spheres-new-picks-explore-these-8-trends/"><u>[Updated] 2024 Approved The Social Sphere's New Picks Explore These 8 Trends</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-brief-path-to-past-posts-reinstating-reddit-removals-quickly/"><u>[Updated] Brief Path to Past Posts Reinstating Reddit Removals Quickly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oppo-find-n3-flip-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Oppo Find N3 Flip</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-maintaining-social-standing-on-facebook-10-must-know-secrets/"><u>In 2024, Maintaining Social Standing on Facebook 10 Must-Know Secrets</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-newbies-necessities-for-capturing-with-gopro/"><u>In 2024, Newbies Necessities for Capturing with GoPro</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/localize-the-power-of-conversational-ai-free-and-easy-installation-of-a-chatgpt-clone-via-gpt4all-for-your-pc/"><u>Localize the Power of Conversational AI: Free and Easy Installation of a ChatGPT Clone via GPT4All for Your PC</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pixel-playfulness-harnessing-funny-lenses-in-snapchat-for-2024/"><u>Pixel Playfulness Harnessing Funny Lenses in Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-in-motion-a-guide-to-lively-animation-methods-for-2024/"><u>Words in Motion A Guide to Lively Animation Methods for 2024</u></a></li>
 </ul></div>
 

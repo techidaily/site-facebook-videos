@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
-date: 2024-09-11T06:55:03.510Z
-updated: 2024-09-13T09:45:54.698Z
+date: 2024-09-17T00:26:09.460Z
+updated: 2024-09-18T06:40:23.742Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
@@ -37,23 +37,9 @@ Lifewire / Gannon Burgett
 
 3.5
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## ChargeTech 27000mAh Portable AC Battery Pack
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -77,31 +63,11 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
 
 ![Charge Tech](https://www.lifewire.com/thmb/BCvqF82o5dvxOJ6Sb59FZYjknuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_7Web-5c900332c9e77c0001eb1ca0.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -112,6 +78,13 @@ Lifewire / Gannon Burgett
  The output ports onboard include two 5V/2.4A USB ports and a full AC plugin, which is turned on and off with a dedicated slider. All three can be used simultaneously if need be, but they also work independently if only one device needs to be charged.
 
  We enjoyed the satin matte black finish of the ChargeTech battery pack as it makes it easy to hold onto without fear of dropping it, but it also holds onto fingerprints. This wasn't a huge deal-breaker for us, but if you prefer your gadgets to be free of fingerprints, it's something to keep in mind.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Yet another power adapter**
 
@@ -125,6 +98,13 @@ Lifewire / Gannon Burgett
 
  While on the topic of charging, it's worth noting the power input is a dedicated plugin that uses the included charger. It would've been nice to see ChargeTech use a[USB Type-C](https://www.lifewire.com/usb-c-4149490) input, but that isn't the case. Instead, the battery pack relies on an entirely separate charger that will take up even more space than a spare smartphone or two.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Plenty of power at decent speeds**
 
  As mentioned above, we started the testing process by draining the ChargeTech 27000mAh entirely and charging it up. Over the course of the first charge and seven subsequent charges throughout testing, the battery pack averaged a charge time of approximately four and a half hours using the included charger.
@@ -132,13 +112,6 @@ Lifewire / Gannon Burgett
  For testing the ChargeTech 27000mAh, we used an iPhone XS and Samsung Galaxy S8 Active for[mobile devices](https://www.lifewire.com/what-is-a-mobile-device-2373355) and a 2016 MacBook Pro 15-inch as the laptop of choice. With each device, we fully charged the battery pack and subsequently charged each device as many times as possible with a fully charged ChargeTech, making sure to drain the mobile device to zero before plugging it back in.
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -155,10 +128,16 @@ Lifewire / Gannon Burgett
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Just that little bit extra**
@@ -182,19 +161,6 @@ Lifewire / Gannon Burgett
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,16 +192,20 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-roundup-best-budget-friendly-virtual-calls-for-2024/"><u>[New] The Ultimate Roundup Best Budget-Friendly Virtual Calls for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-exposure-boost-for-your-social-media-visuals/"><u>[Updated] 2024 Approved Exposure Boost for Your Social Media Visuals</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-aquatic-adventures-unveiled-tips-on-captivating-underwater-video-with-a-gopro/"><u>[Updated] Aquatic Adventures Unveiled Tips on Captivating Underwater Video with a GoPro</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-social-savvy-strategies-for-maxed-out-page-popularity/"><u>[Updated] In 2024, Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2-methods-to-add-effects-on-tiktok-for-2024/"><u>2 Methods To Add Effects On TikTok for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-punpixel-patterner/"><u>2024 Approved PunPixel Patterner</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/expert-video-and-data-extractor-optimized-for-firefox/"><u>Expert Video & Data Extractor - Optimized For Firefox</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-pro-tips-for-rapidly-creating-effective-subtitles-on-fb/"><u>In 2024, Pro Tips for Rapidly Creating Effective Subtitles on FB</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-iphone-xs-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of iPhone XS Prevention & Solution</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/transform-your-video-cover-image-with-easy-steps-for-2024/"><u>Transform Your Video Cover Image with Easy Steps for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlocking-the-power-of-chatgpt-a-guide-to-reading-pdf-files/"><u>Unlocking the Power of ChatGPT: A Guide to Reading PDF Files</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-focus-on-action-exclude-unwanted-surroundings/"><u>[New] In 2024, Focus on Action, Exclude Unwanted Surroundings</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-stunning-iphone-portraits-through-water-imagery-techniques/"><u>[New] In 2024, Stunning iPhone Portraits Through Water Imagery Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-tips-for-outshining-others-in-facebooks-social-space-for-2024/"><u>[Updated] Cutting-Edge Tips for Outshining Others in Facebook's Social Space for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-digital-revolution-integrating-dslr-into-online-platforms-from-home-pcsmacs/"><u>[Updated] Digital Revolution Integrating DSLR Into Online Platforms From Home PCs/Macs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlock-social-potential-xbox-games-via-facebook-livestream/"><u>[Updated] In 2024, Unlock Social Potential Xbox Games via Facebook Livestream</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-virtual-visage-creation-shaping-your-exaggerated-image-for-2024/"><u>[Updated] Virtual Visage Creation Shaping Your Exaggerated Image for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/designing-and-implementing-a-unique-email-signature-for-godaddys-free-webmail-service/"><u>Designing and Implementing a Unique Email Signature for GoDaddy's Free Webmail Service</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-hp-chromebook-11-a-reliable-gadget-tailored-for-studying-jobs-and-entertainment/"><u>Evaluating the HP Chromebook 11: A Reliable Gadget Tailored for Studying, Jobs & Entertainment</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-poco-f5-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Poco F5 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-xiaomi-redmi-k70-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Xiaomi Redmi K70 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-social-savvy-strategies-for-maxed-out-page-popularity/"><u>In 2024, Social Savvy Strategies for Maxed-Out Page Popularity</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/understanding-and-utilizing-facebooks-updated-marketing-techniques-for-2024/"><u>Understanding & Utilizing Facebook’s Updated Marketing Techniques for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/vid-longevity-avoid-common-corruption/"><u>Vid Longevity: Avoid Common Corruption</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/your-roadmap-to-acquiring-facebooks-esteemed-verification/"><u>Your Roadmap to Acquiring Facebook’s Esteemed Verification</u></a></li>
 </ul></div>
 

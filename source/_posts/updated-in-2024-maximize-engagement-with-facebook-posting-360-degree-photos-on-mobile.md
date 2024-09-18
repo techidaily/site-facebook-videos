@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Maximize Engagement with Facebook  Posting 360-Degree Photos on Mobile\""
-date: 2024-09-10T18:04:46.547Z
-updated: 2024-09-12T18:03:28.608Z
+date: 2024-09-11T22:23:02.276Z
+updated: 2024-09-18T01:40:57.898Z
 tags:
   - ai video
   - ai facebook
@@ -31,13 +31,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -45,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  If you are using iPad or iPhone then simple open your camera app and go to Panorama Shooting mode. Start capturing your photo with panoramic photo option but note that you have to follow Facebook photo dimension specifications to develop a live 360 compatible content. However, it is really hard to measure exact dimensions of a panoramic photo when you are working with default settings.
 
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
@@ -62,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
@@ -76,13 +55,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -99,20 +71,28 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-a-beginners-key-to-mastering-social-media-metrics/"><u>[New] 2024 Approved A Beginner's Key to Mastering Social Media Metrics</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-favorites-compiled-top-6-fb-lite-downloads/"><u>[New] 2024 Approved Favorites Compiled #Top 6 FB Lite Downloads</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-six-simple-ways-to-ease-vr-headset-nausea/"><u>[New] 2024 Approved Six Simple Ways to Ease VR Headset Nausea</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-elite-streamers-guide-for-secure-viewing/"><u>[New] Elite Streamer’s Guide for Secure Viewing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-video-presentation-boost-adding-bb-and-lc-frameworks/"><u>[New] In 2024, Facebook Video Presentation Boost Adding BB and LC Frameworks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-rectify-faux-face-display-on-social-network-engagements/"><u>[Updated] 2024 Approved Rectify Faux Face Display on Social Network Engagements</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-video-discoverability-with-strategic-tagging-on-youtube/"><u>2024 Approved Elevating Video Discoverability with Strategic Tagging on Youtube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-oppo-a78-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Oppo A78 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-6s-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 6s Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-five-expert-tools-for-extracting-fb-content/"><u>In 2024, Five Expert Tools for Extracting FB Content</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/pro-level-acid-review-and-beyond-comparisons/"><u>Pro-Level ACID Review and Beyond Comparisons</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/professional-methods-to-remove-dust-and-grime-from-personal-stereo-speaker-systems/"><u>Professional Methods to Remove Dust and Grime From Personal Stereo Speaker Systems</u></a></li>
-<li><a href="https://win-answers.techidaily.com/the-quest-for-audio-restoration-in-fallout-4-a-comprehensive-guide-for-players-experiencing-noise-shortages/"><u>The Quest for Audio Restoration in Fallout 4 - A Comprehensive Guide for Players Experiencing Noise Shortages</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-winerror-for-disconnected-networks/"><u>Troubleshooting WinError for Disconnected Networks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-quick-fix-for-downloading-funny-images-on-pc-for-2024/"><u>Twitter's Quick-Fix for Downloading Funny Images on PC for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-dynamic-discussion-drivers-in-instagram-social-media-surveys/"><u>[New] 2024 Approved Dynamic Discussion Drivers in Instagram Social Media Surveys</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-cutting-edge-mp4-transformer-share-to-facebook/"><u>[New] In 2024, Cutting-Edge MP4 Transformer Share to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-amplify-sales-discover-the-leading-15-facebook-monitoring-tools/"><u>[Updated] 2024 Approved Amplify Sales Discover the Leading 15 Facebook Monitoring Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unlocking-fb-ad-success-no-cost-for-video-creation-tools/"><u>[Updated] 2024 Approved Unlocking FB Ad Success No Cost for Video Creation Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-chuckle-forge-mutant-comedy-creatures/"><u>[Updated] Chuckle Forge Mutant Comedy Creatures</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-directface-vidcutter-utility/"><u>[Updated] DirectFace VidCutter Utility</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-your-cover-videos-pull-for-2024/"><u>[Updated] Enhancing Your Cover Video's Pull for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-dissecting-the-emerging-trends-in-facebook-short-videos/"><u>[Updated] In 2024, Dissecting the Emerging Trends in Facebook Short Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-safe-methods-to-fast-forward-in-spotify-files/"><u>[Updated] In 2024, Safe Methods to Fast-Forward in Spotify Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unraveling-the-meaning-and-usage-of-blue-emoji-in-fb-messages/"><u>[Updated] Unraveling the Meaning and Usage of Blue Emoji in FB Messages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/architecting-top-quality-canon-chrono-films-for-2024/"><u>Architecting Top Quality Canon Chrono Films for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/better-decision-making-for-your-oled-purchase/"><u>Better Decision-Making for Your OLED Purchase</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-does-the-new-ai-regulation-in-europe-influence-chatgpt/"><u>How Does the New AI Regulation in Europe Influence ChatGPT?</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-easily-enable-hyper-v-features-on-windows-10-systems/"><u>How To Easily Enable Hyper-V Features On Windows 10 Systems</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/purifypicture-premium-bg-eraser-and-editor-for-2024/"><u>PurifyPicture Premium BG Eraser & Editor for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-itel-a05s-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Itel A05s</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

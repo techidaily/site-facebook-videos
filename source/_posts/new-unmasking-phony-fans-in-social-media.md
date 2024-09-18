@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking Phony Fans in Social Media"
-date: 2024-09-08T00:29:37.177Z
-updated: 2024-09-12T18:45:39.395Z
+date: 2024-09-14T04:24:51.515Z
+updated: 2024-09-17T17:19:22.884Z
 tags:
   - ai video
   - ai facebook
@@ -32,19 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -63,38 +50,11 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
@@ -105,10 +65,10 @@ Fake followers on Facebook can be detected if all of a sudden follower count inc
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -116,6 +76,13 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -126,10 +93,10 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -149,20 +116,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-optimal-budget-free-fb-picturemotion-designer/"><u>[New] 2024 Approved Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-democratize-your-digital-dedication-increase-your-follower-count-for-2024/"><u>[New] Democratize Your Digital Dedication Increase Your Follower Count for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-expert-tips-streaming-youtube-and-fb-videos-seamlessly-with-apple-tv/"><u>[New] Expert Tips Streaming YouTube & FB Videos Seamlessly with Apple TV</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-diving-into-zoom-breakout-room-setups/"><u>[Updated] 2024 Approved Diving Into Zoom Breakout Room Setups</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-key-elements-for-successful-engagement-with-facebook-livestreams/"><u>[Updated] 2024 Approved Key Elements for Successful Engagement with Facebook Livestreams</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-elevate-your-content-game-tactics-for-optimal-youtube-featured-channels-for-2024/"><u>[Updated] Elevate Your Content Game Tactics for Optimal YouTube Featured Channels for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-much-money-do-youtubers-make-per-view-for-2024/"><u>[Updated] How Much Money Do YouTubers Make Per View for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-streamline-your-media-convert-fb-videos-to-mp4-hd1080p-for-free/"><u>[Updated] Streamline Your Media - Convert FB Videos to MP4 HD/1080P for Free</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/2024s-top-picks-for-efficient-and-durable-rechargeable-battery-chargers/"><u>2024'S Top Picks for Efficient and Durable Rechargeable Battery Chargers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-steps-to-obtain-and-install-logitech-g2email-protected-drivers-windows-7-10-and-11-support/"><u>Easy Steps to Obtain and Install Logitech G2([email Protected] Drivers (Windows 7, 10 & 11 Support)</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Vivo Y78 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-facetime-call-history-on-iphone-13-mini-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover FaceTime Call History on iPhone 13 mini | Stellar</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-step-by-step-incorporating-songs-into-your-facebook-timeline/"><u>In 2024, Step-by-Step Incorporating Songs Into Your Facebook Timeline</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/optimal-viewing-verticalhorizontal-in-fb-videos/"><u>Optimal Viewing - Vertical/Horizontal in FB Videos?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ultimate-fix-for-the-zlibdll-error-missing-or-cannot-find-file-scenarios/"><u>The Ultimate Fix for the 'Zlib.dll' Error: Missing or Cannot Find File Scenarios</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-elite-selection-of-nintendo-switch-fighting-games-max-156/"><u>[New] 2024 Approved Elite Selection of Nintendo Switch Fighting Games (Max 156)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-four-approaches-to-airing-fb-live-on-tv-channels/"><u>[New] Four Approaches to Airing FB Live on TV Channels</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mystery-reader-fb-narratives-explorer/"><u>[New] In 2024, Mystery Reader FB Narratives Explorer</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-flashback-snapshot/"><u>[New] Vimeo Flashback Snapshot</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-digital-storytelling-unlocked-creating-memorable-slideshows-on-fb-for-2024/"><u>[Updated] Digital Storytelling Unlocked Creating Memorable Slideshows on FB for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-free-fb-video-creators-20-top-tools-for-engaging-ads-for-2024/"><u>[Updated] Free FB Video Creators 20 Top Tools for Engaging Ads for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-quick-click-quest-the-art-of-facebook-id-reconnaissance/"><u>[Updated] In 2024, Quick Click Quest The Art of Facebook ID Reconnaissance</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-permanent-shutdown-guide-to-youtube-shorts-feature/"><u>[Updated] Permanent Shutdown Guide to YouTube Shorts Feature</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-complete-laptop-and-mobile-manual-for-old-fb-stories/"><u>[Updated] The Complete Laptop & Mobile Manual for Old FB Stories</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo Y27 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-premier-youtube-standards-for-all-viewers/"><u>In 2024, Premier YouTube Standards for All Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ty-filmmaker-best-economical-camera-lineup/"><u>Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-your-fb-watchlist-access-liked-movies-and-shows/"><u>Unlocking Your FB Watchlist Access Liked Movies & Shows</u></a></li>
 </ul></div>
 
