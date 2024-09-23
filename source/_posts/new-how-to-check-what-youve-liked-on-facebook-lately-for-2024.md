@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Check What You've Liked on Facebook Lately for 2024"
-date: 2024-09-11T03:18:33.189Z
-updated: 2024-09-18T02:56:17.624Z
+date: 2024-09-18T21:27:43.949Z
+updated: 2024-09-22T22:48:53.901Z
 tags:
   - ai video
   - ai facebook
@@ -99,10 +99,10 @@ If you have a slow/dull internet connection there are chances that your video is
 Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Delete Watch History on Facebook?
@@ -137,13 +137,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 * Go to the left menu and click on "Watch" from your News Feed.
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -314,11 +307,32 @@ It's an outstanding tool that helps you make stunning videos for Facebook. You c
 
 ![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Frequently Asked Questions (FAQS)
 
 In the FAQ section, we will cover some of the questions or problems that may arise while finding recently watched videos on Facebook. Thus, if you are dealing with them, follow the steps given below for a quick fix:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Find the Watch Later Videos on Facebook?
 
@@ -348,13 +362,6 @@ Keep note that your watch history is accessible by you only. However, if you are
 
 * Within the Categories, look for "Videos you've watched."
 * From there, you can delete the videos one-by-one or clear the complete watch history.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Can People See What I Watch On Facebook?
 
@@ -423,13 +430,6 @@ However, make sure you have the Facebook application installed on your device. I
 
 ![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
 
 We all like to binge on Facebook feed videos, and that's why it has become so popular in today's time. But did you know, you can create a video similar to the ones you watch? It can go viral and ensure a large number of views on your video. Wondering how to make such top-notch content? The answer is simple; through [Wondershare Filmora Video editor](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -441,10 +441,10 @@ It's an outstanding tool that helps you make stunning videos for Facebook. You c
 ![wondershare filmora video editor](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Wondershare Filmora comes with excellent features where you can render blur effects in the background. This will render a decorative touch to the black bars (portrait mode) in videos and pictures. For audio, it has over 50 effects and royalty-free music. What else? You can also save the edited video in any format.
@@ -529,21 +529,17 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebook-fb-upload-strategies-for-mobile-and-desktop/"><u>[New] 2024 Approved Facebook FB Upload Strategies for Mobile & Desktop</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-5-facebook-video-grabbers-for-2024/"><u>[New] 5 Facebook Video Grabbers for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-premiere-pro-solutions-to-perfect-iphone-hd-video-exposure-balance/"><u>[New] In 2024, Premiere Pro Solutions to Perfect iPhone HD Video Exposure Balance</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-planning-to-performance-tips-for-wirecast-and-facebook-livestreaming/"><u>[Updated] 2024 Approved From Planning to Performance Tips for Wirecast & Facebook Livestreaming</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-optimal-video-chat-on-windows-1-8/"><u>[Updated] In 2024, Optimal Video Chat on Windows #1-8</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-simple-screen-recorder-for-windows-10-download/"><u>[Updated] In 2024, Simple Screen Recorder for Windows 10 Download</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-inverse-photo-journey-through-facebooks-vast-web/"><u>[Updated] The Inverse Photo Journey Through Facebook’s Vast Web</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-gloves-revolutionizing-vr-interaction/"><u>2024 Approved Top 10 Gloves Revolutionizing VR Interaction</u></a></li>
-<li><a href="https://games-able.techidaily.com/a-tactical-approach-to-choosing-an-elgato-stream-deck/"><u>A Tactical Approach to Choosing an Elgato Stream Deck</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-iphone-7-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From iPhone 7 Plus Online</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-enhancing-tv-experience-with-fb-live-streams/"><u>In 2024, Enhancing TV Experience with FB Live Streams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-videos-vertical-or-horizontal/"><u>In 2024, Facebook Videos; Vertical or Horizontal?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-going-beyond-boundaries-streaming-mastery-on-facebook/"><u>In 2024, Going Beyond Boundaries Streaming Mastery on Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-t2x-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo T2x 5G Through Google Earth?</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-this-article-introduce-tips-on-how-to-stream-any-video-format-to-google-chromecast/"><u>New 2024 Approved This Article Introduce Tips on How to Stream Any Video Format to Google Chromecast</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unveil-windows-xp-professional-for-video-production/"><u>Unveil Windows XP Professional for Video Production</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-revolutionize-your-online-presence-with-live-screenshares/"><u>[New] 2024 Approved Revolutionize Your Online Presence with Live Screenshares</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-effective-streaming-strategies-facebook-crossposting-for-2024/"><u>[New] Effective Streaming Strategies Facebook Crossposting for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-enjoy-unparalleled-quality-youtubes-elite-4k-solutions-for-2024/"><u>[Updated] Enjoy Unparalleled Quality YouTube's Elite 4K Solutions for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-minimize-mbs-avoid-fb-video-ads/"><u>[Updated] Minimize MBs Avoid FB Video Ads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-proven-audacity-strategies-for-top-quality-recordings/"><u>[Updated] Proven Audacity Strategies for Top-Quality Recordings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-convert-live-facebook-videos-to-mp3s-on-the-fly/"><u>2024 Approved Convert Live Facebook Videos to MP3s on the Fly</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/diving-into-the-world-of-shap-explaining-ai/"><u>Diving Into the World of SHAP Explaining AI</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-correctly-address-and-rectify-vertical-line-issues-in-your-samsung-tv-screen/"><u>How To Correctly Address and Rectify Vertical Line Issues in Your Samsung TV Screen</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Meizu 21 Phone without Google Account?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/macbook-mysteries-solved-4-tactics-for-question-marks/"><u>Macbook Mysteries Solved: 4 Tactics for Question Marks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mend-facebook-story-playback-pauses/"><u>Mend Facebook Story Playback Pauses</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-apple-iphone-13-mini-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On Apple iPhone 13 mini Making It Possible</u></a></li>
 </ul></div>
 

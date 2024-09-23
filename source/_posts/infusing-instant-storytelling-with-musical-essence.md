@@ -1,7 +1,7 @@
 ---
 title: "Infusing Instant Storytelling With Musical Essence"
-date: 2024-09-15T21:48:50.284Z
-updated: 2024-09-17T19:45:58.047Z
+date: 2024-09-17T04:50:55.809Z
+updated: 2024-09-23T04:47:49.514Z
 tags:
   - ai video
   - ai facebook
@@ -122,6 +122,13 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -129,13 +136,6 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -148,10 +148,10 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -175,14 +175,12 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-how-to-securely-grab-free-picture-frame-videos-for-2024/"><u>[New] How to Securely Grab Free Picture Frame Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-proven-3-step-framework-for-creating-persuasive-facebook-ad-content/"><u>[New] In 2024, Proven 3-Step Framework for Creating Persuasive Facebook Ad Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-how-to-see-old-stories-on-facebook-find-story-archive-easily/"><u>[Updated] How to See Old Stories on Facebook Find Story Archive Easily</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-prime-20-laugh-inducing-prison-jail-memes-to-elevate-social-media-experience-for-2024/"><u>[Updated] Prime 20 Laugh-Inducing Prison Jail Memes to Elevate Social Media Experience for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-unlock-the-secrets-to-preserving-web-streamed-tv-shows-for-2024/"><u>[Updated] Unlock the Secrets to Preserving Web-Streamed Tv Shows for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-thumbnail-design-for-engagement-a-youtube-resizing-guide/"><u>2024 Approved Thumbnail Design for Engagement A YouTube Resizing Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-does-windows-11-compare-to-windows-7-key-distinctions-explored/"><u>How Does Windows 11 Compare to Windows 7: Key Distinctions Explored</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Vivo V29? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/transform-your-memories-into-engaging-facebook-slides-for-2024/"><u>Transform Your Memories Into Engaging Facebook Slides for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-take-360-videos-on-iphone-for-facebook/"><u>[New] 2024 Approved How to Take 360 Videos on iPhone for Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[New] Beyond YouTube Elite Video Sharing Hubs Revealed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-socialnet-movie-replayer-for-2024/"><u>[New] SocialNet Movie Replayer for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-3-hd-film-scrapers-on-fb/"><u>2024 Approved Top 3 HD Film Scrapers on Fb</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-live-your-best-life-the-ultimate-list-of-video-conferencing-gadgets/"><u>In 2024, Live Your Best Life The Ultimate List of Video Conferencing Gadgets</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-windows-10-video-grabber-ultimate/"><u>In 2024, Windows 10 Video Grabber Ultimate</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/inside-scoop-on-googles-upcoming-extravaganza-breaking-news-and-forecast-analysis/"><u>Inside Scoop on Google's Upcoming Extravaganza: Breaking News & Forecast Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlocking the Vault of Online Videos via Facebook for 2024"
-date: 2024-09-13T19:12:07.809Z
-updated: 2024-09-17T17:43:27.477Z
+date: 2024-09-19T16:52:59.388Z
+updated: 2024-09-22T20:34:36.546Z
 tags:
   - ai video
   - ai facebook
@@ -157,13 +157,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -187,6 +180,13 @@ From the Menu, click on your profile at the top of the screen.
 You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5: Go to “Activity Log”**
 
@@ -271,10 +271,10 @@ On the right of these, you will see a filter icon where you can choose a specifi
 All the videos will be available, and you can watch whichever you want!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Finding Saved Facebook Videos on Mobile
@@ -475,6 +475,13 @@ From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Go to Menu**
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
@@ -546,13 +553,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Phone
 
@@ -676,6 +676,13 @@ From the News Feed, click on the three bars at the bottom right corner of the sc
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Go to Saved**
 
 In the Menu, scroll down to see the "Saved" tab. Click on it.
@@ -742,13 +749,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -773,6 +773,13 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Go to “Activity Log”**
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
@@ -788,13 +795,6 @@ From the list of activities, tap on “Videos you’ve watched.”
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Side note
 
@@ -833,21 +833,18 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-tailoring-content-to-thrive-on-youtube-select-the-best-formats/"><u>[New] 2024 Approved Tailoring Content to Thrive on YouTube – Select the Best Formats</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-insights-for-asmr-aficionados-for-2024/"><u>[New] Essential Insights for ASMR Aficionados for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-expert-methods-for-weaving-in-live-streaming-content-online/"><u>[Updated] 2024 Approved Expert Methods for Weaving in Live Streaming Content Online</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-arcadia-elite-seamless-full-hd-multi-touch-desktops/"><u>[Updated] Arcadia Elite Seamless, Full HD Multi-Touch Desktops</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-tricks-to-make-your-profile-video-stand-out/"><u>[Updated] In 2024, Tricks to Make Your Profile Video Stand Out</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-laugh-trails-on-tiktok-the-best-joke-threads-for-a-chuckle-for-2024/"><u>[Updated] Laugh Trails on TikTok The Best Joke Threads for a Chuckle for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-streamlining-access-to-fb-live-via-roku-for-2024/"><u>[Updated] Streamlining Access to FB Live via Roku for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-blue-badge-breakdown-a-guide-to-social-media-credibility/"><u>[Updated] The Blue Badge Breakdown A Guide to Social Media Credibility</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722967733549-free-logitech-g602-mouse-drivers-for-windows-pcs-download-now/"><u>Free Logitech G602 Mouse Drivers for Windows PCs - Download Now!</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-revolutionizing-facebook-video-cover-updates-tips-and-tricks/"><u>In 2024, Revolutionizing Facebook Video Cover Updates Tips and Tricks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-quick-guide-to-quashing-facebooks-flashy-feed/"><u>In 2024, The Quick Guide to Quashing Facebook's Flashy Feed</u></a></li>
-<li><a href="https://win-dash.techidaily.com/lenovo-pc-mastery-quick-and-easy-power-management-driver-renewal-tips/"><u>Lenovo PC Mastery: Quick & Easy Power Management Driver Renewal Tips</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/prolific-performance-our-picks-for-top-8-workflow-planners/"><u>Prolific Performance Our Picks for Top 8 Workflow Planners</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-animation-drawing-made-easy-top-software-picks-and-beyond/"><u>Updated 2024 Approved Animation Drawing Made Easy Top Software Picks and Beyond</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-exclusive-voip-services-designed-for-the-modern-game-player/"><u>Updated 2024 Approved Exclusive VoIP Services Designed for the Modern Game Player</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-best-practices-for-configuring-and-measuring-fb-instream-ads/"><u>[New] 2024 Approved Best Practices for Configuring and Measuring FB Instream Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-pump-up-your-income-smart-tips-to-profit-from-social-media-videos/"><u>[New] In 2024, Pump Up Your Income Smart Tips to Profit From Social Media Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-the-complete-guide-to-scheduling-and-recording-online-meetings-with-slack-and-filmora/"><u>[New] In 2024, The Complete Guide to Scheduling & Recording Online Meetings with Slack & Filmora</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-troubleshooting-apple-tv-for-facebook-content-for-2024/"><u>[New] Troubleshooting Apple TV for Facebook Content for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-earnings-expertise-for-youtube-creators-fb-insights-and-tactics/"><u>[Updated] Earnings Expertise for YouTube Creators FB Insights and Tactics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-is-your-facebook-video-more-engaging-in-a-vertical-format-in-2024/"><u>[Updated] Is Your Facebook Video More Engaging in a Vertical Format, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-stream-snipping-specialists-2023-version-for-2024/"><u>[Updated] Stream Snipping Specialists, 2023 Version for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-for-a-stable-experience-of-robocop-rogue-city-without-any-crashing-issues/"><u>Expert Advice for a Stable Experience of Robocop: Rogue City Without Any Crashing Issues</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-90-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on 90</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-itunesfinder-unable-to-detect-iphone-issue-simple-steps-inside/"><u>How to Resolve iTunes/Finder Unable to Detect iPhone Issue: Simple Steps Inside</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/mastering-modern-gear-tips-and-tricks-from-toms-hardware-analysis/"><u>Mastering Modern Gear: Tips & Tricks From Tom's Hardware Analysis</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-oppo-a38-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Oppo A38 – What Can I Do? | Dr.fone</u></a></li>
 </ul></div>
 

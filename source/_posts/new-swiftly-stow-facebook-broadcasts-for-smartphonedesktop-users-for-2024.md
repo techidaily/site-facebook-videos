@@ -1,7 +1,7 @@
 ---
 title: "[New] Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users for 2024"
-date: 2024-09-15T16:38:01.961Z
-updated: 2024-09-17T17:12:44.042Z
+date: 2024-09-17T17:32:52.059Z
+updated: 2024-09-23T02:29:31.387Z
 tags:
   - ai video
   - ai facebook
@@ -90,6 +90,13 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Control Who Can View Your Facebook Stories?
 
 You can make your stories visible to your friends, customize the viewers, or keep them public. Facebook allows you to control how and with whom you want to share your stories with.
@@ -98,22 +105,23 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy option](https://images.wondershare.com/filmora/article-images/facebook-story-privacy-option.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Now, the privacy setting page will let you choose from- public, friends, and custom. You can hide your story from a few people as well. Choose the one that meets your requirement. Then, go back and share the story.
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Hide Facebook Story from Specific People?
 
@@ -125,19 +133,6 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
 If you don't want to see someone else’s story, then you can mute their stories. Once you do that, their stories will no longer appear on your News Feed. Here are the steps to follow:
@@ -145,13 +140,6 @@ If you don't want to see someone else’s story, then you can mute their stories
 Visit the Stories section, and then tap on a story of a person that you don't want to see. There will be three dots on the top right, select it and then click on the Mute option, and the specific person's stories will be muted.
 
 ![ delete other's Facebook Story  ](https://images.wondershare.com/filmora/article-images/delete-people-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -174,17 +162,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-facebook-freedom-the-ultimate-avoidance-blueprint/"><u>[New] 2024 Approved Unlocking Facebook Freedom The Ultimate Avoidance Blueprint</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-quick-route-to-celebrity-status-on-insta-top-15-strategies-for-rapid-follower-growth-for-2024/"><u>[New] The Quick Route to Celebrity Status on Insta Top 15 Strategies For Rapid Follower Growth for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-guide-seamless-facebook-live-integration-for-web-pages-for-2024/"><u>[Updated] Guide Seamless Facebook Live Integration for Web Pages for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-socialsnatcher-grab-and-save-twitter-vids-in-a-flash/"><u>[Updated] SocialSnatcher Grab and Save Twitter Vids in a Flash</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-vivo-v29-pro-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Vivo V29 Pro? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/how-to-record-console-gameplay-on-computer/"><u>How to Record Console Gameplay on Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-removing-facial-data-a-risk-to-privacy-and-security-for-fb-users/"><u>Is Removing Facial Data a Risk to Privacy and Security for FB Users?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-hp-deskjet-3700-software-update-get-it-here/"><u>Latest HP Deskjet 3700 Software Update - Get It Here!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-comprehensive-checklist-for-perfecting-your-reddit-posts/"><u>The Comprehensive Checklist for Perfecting Your Reddit Posts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-fb-expertise-guide-to-shooting-and-uploading-vr-for-2024/"><u>The FB Expertise Guide to Shooting & Uploading VR for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-solutions-what-to-do-when-your-keyboard-isnt-typing/"><u>Troubleshooting Solutions: What to Do When Your Keyboard Isn’t Typing</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/whats-coming-with-ios-eighteen-release-timeline-pricing-info-free-essential-features-and-latest-news/"><u>What's Coming with iOS Eighteen? Release Timeline, Pricing Info (Free), Essential Features, and Latest News</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-dynamic-shots-infusing-energy-into-your-youtube-videos/"><u>[New] 2024 Approved Dynamic Shots Infusing Energy Into Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-art-of-hashtagging-strategies-for-maximum-impact-on-facebook/"><u>[New] 2024 Approved The Art of Hashtagging Strategies for Maximum Impact on Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-last-minute-to-first-impression-how-to-rewind-video-on-instagram/"><u>[New] From Last Minute to First Impression How to Rewind Video on Instagram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-obs-review-comprehensive-look-at-screen-recorder-excellence/"><u>[New] OBS Review Comprehensive Look at Screen Recorder Excellence</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-ig-music-companion-for-2024/"><u>[New] The Ultimate IG Music Companion for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-identifying-common-fb-video-shapes/"><u>[Updated] 2024 Approved Identifying Common FB Video Shapes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-tune-in-to-success-the-art-of-audio-amalgamation-for-fb-video-posts/"><u>[Updated] 2024 Approved Tune in to Success The Art of Audio Amalgamation for FB Video Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fast-and-furious-the-prime-5-video-clipping-tools-in-chromes/"><u>[Updated] In 2024, Fast & Furious The Prime 5 Video Clipping Tools in Chromes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/capturing-the-action-5-roblox-recordings-for-mac-users/"><u>Capturing the Action 5 Roblox Recordings for Mac Users</u></a></li>
+<li><a href="https://win-answers.techidaily.com/defeating-fortnite-crash-errors-expert-tips-for-stable-gaming/"><u>Defeating Fortnite Crash Errors: Expert Tips for Stable Gaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/dodging-dangers-restore-fb-after-the-2023-incident/"><u>Dodging Dangers Restore FB After the 2023 Incident</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essentials-acquiring-quality-unboxing-soundtracks/"><u>Essentials Acquiring Quality Unboxing Soundtracks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfect-accompaniments-for-your-sj4000-journey/"><u>In 2024, Perfect Accompaniments for Your SJ4000 Journey</u></a></li>
 </ul></div>
 

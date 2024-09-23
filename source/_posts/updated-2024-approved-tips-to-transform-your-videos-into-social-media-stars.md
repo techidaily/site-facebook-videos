@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tips to Transform Your Videos Into Social Media Stars\""
-date: 2024-09-15T16:36:15.760Z
-updated: 2024-09-18T01:01:32.006Z
+date: 2024-09-22T04:14:32.683Z
+updated: 2024-09-22T21:15:03.991Z
 tags:
   - ai video
   - ai facebook
@@ -95,6 +95,13 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to create square videos by Adobe Premiere
 
 Another way to edit square videos on Facebook is using [Adobe Premier Pro](https://www.adobe.com/products/premiere.html). Though, it is a paid application the videos are quite impressive. It allows you flexibility for editing photos and videos with a wide range of features.
@@ -107,18 +114,24 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
 
 ![Sequence settings](https://images.wondershare.com/filmora/article-images/sequence-setting.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3：Export**
 
@@ -133,13 +146,6 @@ From the above article, we are sure that square videos on Facebook are significa
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -156,21 +162,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-navigating-social-media-creating-a-facebook-account/"><u>[New] 2024 Approved Navigating Social Media Creating a Facebook Account</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-overcoming-facebook-algorithm-change-hurdles/"><u>[New] 2024 Approved Overcoming Facebook Algorithm Change Hurdles</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-virtual-victory-the-leading-ladies-of-gaming/"><u>[New] 2024 Approved Virtual Victory The Leading Ladies of Gaming</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-survey-facebook-video-proportions/"><u>[New] In 2024, Survey Facebook Video Proportions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-maximizing-facebook-fame-8-premier-apps-for-like-boosting-for-2024/"><u>[New] Maximizing Facebook Fame 8 Premier Apps for Like Boosting for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-seamlessly-engage-fb-live-on-your-roku-screen/"><u>[New] Seamlessly Engage FB Live on Your Roku Screen</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-bridging-social-media-posting-tweets-on-fb-for-2024/"><u>[Updated] Bridging Social Media Posting Tweets on FB for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-turning-snapchat-into-cash-secrets-revealed/"><u>[Updated] In 2024, Turning Snapchat Into Cash Secrets Revealed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-maximizing-movie-file-saving-6-methods-for-win-11/"><u>[Updated] Maximizing Movie File Saving 6 Methods for Win 11</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-seamless-sharing-of-vast-viewpoints-uploading-wide-angle-content-on-iosandroid/"><u>[Updated] Seamless Sharing of Vast Viewpoints Uploading Wide Angle Content on iOS/Android</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2020-to-other-iphone-11-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2020) To Other iPhone 11 devices? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Motorola G24 Power | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-snap-into-fb-shorts-saga/"><u>In 2024, Snap Into FB Shorts Saga</u></a></li>
-<li><a href="https://os-tips.techidaily.com/locate-your-missing-android-smartphone-using-the-android-device-manager/"><u>Locate Your Missing Android Smartphone Using the Android Device Manager</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-sony-xperia-1-v-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Sony Xperia 1 V FRP Bypass</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-should-you-buy-videopad-video-editor-a-honest-review-and-analysis-for-2024/"><u>Updated Should You Buy Videopad Video Editor? A Honest Review and Analysis for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-efficiently-export-facebook-features-via-chrome-plug-ins/"><u>[New] 2024 Approved Efficiently Export Facebook Features via Chrome Plug-Ins</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-dominate-facebook-traffic-with-innovative-video-strategies/"><u>[New] Dominate Facebook Traffic with Innovative Video Strategies</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-become-a-travel-vlogger-the-ultimate-guide-of-travel-vlogging/"><u>[Updated] 2024 Approved How To Become A Travel Vlogger | The Ultimate Guide of Travel Vlogging</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-step-by-step-incorporating-songs-into-your-facebook-timeline-for-2024/"><u>[Updated] Step-by-Step Incorporating Songs Into Your Facebook Timeline for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unnoticed-consumers-of-fb-stories/"><u>[Updated] Unnoticed Consumers of Fb Stories</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-vidharvest-instagram-live-fb-for-2024/"><u>[Updated] VidHarvest Instagram Live (FB) for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comprehensive-tips-for-easing-4-common-chatgpt-holds/"><u>Comprehensive Tips for Easing 4 Common ChatGPT Holds</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/enhancing-facebooks-instream-ad-reach-a-detailed-approach-for-2024/"><u>Enhancing Facebook's Instream Ad Reach A Detailed Approach for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exciting-vr-technologies-shaping-gaming-for-2024/"><u>Exciting VR Technologies Shaping Gaming for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-apple-iphone-7-plus-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>How to Fix My Apple iPhone 7 Plus Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reactivate-a-nonfunctional-nvidia-cp-on-windows-11/"><u>How to Reactivate a Nonfunctional Nvidia CP on Windows 11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-fixes-top-6-fb-lite-video-tools/"><u>In 2024, Quick Fixes TOP 6 FB Lite Video Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/perfect-your-mobile-photography-with-targeted-blurs/"><u>Perfect Your Mobile Photography with Targeted Blurs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/skyline-scanning-smartphone-panorama-techniques-for-2024/"><u>Skyline Scanning Smartphone Panorama Techniques for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-the-mystery-of-muted-sounds-in-minecraft-for-windows-users/"><u>Solving the Mystery of Muted Sounds in Minecraft for Windows Users</u></a></li>
 </ul></div>
 

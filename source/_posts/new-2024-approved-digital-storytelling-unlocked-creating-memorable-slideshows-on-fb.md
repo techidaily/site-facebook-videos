@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Digital Storytelling Unlocked  Creating Memorable Slideshows on FB\""
-date: 2024-09-13T18:56:03.716Z
-updated: 2024-09-18T04:15:04.207Z
+date: 2024-09-22T00:47:58.949Z
+updated: 2024-09-22T22:52:05.087Z
 tags:
   - ai video
   - ai facebook
@@ -60,6 +60,13 @@ Now, you can add the **built in music and sound effect** from **Audio** tab, or 
 
 ![ Filmora 9 Add Text](https://images.wondershare.com/filmora/article-images/add-titles-text.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Export video
 
 Of course, you can also add overlays, filters, and elements to the photo slideshow based on your needs. After all these editing, click the Export to save the video in popular Facebook slideshow formats such as mp4, mov etc or you can also upload video to YouTube directly if needed.
@@ -79,19 +86,6 @@ In fact, you can also make Facebook slideshow on Facebook homepage. It is design
 1\. **Image quality**: It is recommended to use high quality photos to make slideshow. The minimum image size is **1280 x 720** pixels. You also need to use the same aspect ratio of all images. Otherwise, the slideshow will be the default number 1:1.
 
 2\. **Music license**: [Copyright](https://www.facebook.com/help/1020633957973118?helpref=faq%5Fcontent) needs us to pay attention on Facebook. If you are going to use music in your slideshow, you must use [royalty free music](https://tools.techidaily.com/wondershare/filmora/download/) in case of having legal issue. Or, you can also buy some audio within your budget.
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 1: Click Share a photo or video
 
@@ -113,24 +107,31 @@ The whole duration can't be larger than 15 seconds, so it is not suggested to im
 
 ![change facebook slideshow duration ](https://images.wondershare.com/filmora/filmora-business/change-duration-facebook-slideshow.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Add transition to Facebook slideshow
 
 You can also choose None or Fade to add transition. If you want to have a better transition effect, it is suggested to add transition.
 
 ![add transition to Facebook slideshow](https://images.wondershare.com/filmora/filmora-business/transition-facebook-slideshow.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 5: Add music to slideshow
 
 Music plays an important in making slidedhow, so it is highly suggested to add music to Facebook slideshow. Now, music has went to a different tab. You can add music in this tab. Before, you can only add music to slidehow from the music Facebook offered for you. The new change is you can add your own music track to your slideshow. If you have some royalty free music, this feature is a life saver. You can choose the music style you like to use. On Facebook slideshow maker, you can edit images. It supports music format WAV, MP3, M4A, FLAC and OGG. After all settings are done, you can start uploading photos. Click plus icon and then choose whether you want to choose images from your computer or take a photo right away. Now you can see all of them are on your timeline.
 
 ![Add music to facebook slideshow](https://images.wondershare.com/filmora/filmora-business/add-music-facebook-slideshow.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 6: Test Facebook slideshow
 
@@ -180,13 +181,6 @@ To share Facebook video with more people, get to the Facebook video you want to 
 
 After you know how to make slideshow in 3 different ways, here we will let you know 5 tips for making a photo slideshow on Facebook. You can make slideshow now, but if you want to make high quality video slideshow, these tips are necessary and easy to follow and understand.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Make sure to use 3-10 images
 
 If your have only 2 images, the slideshow are too short to let people know your brand or product. Let's say you have 10 images and one second per image. Then you can get a 10-second slideshow. 10 seconds are enough to [grab people's attention](https://animoto.com/blog/photography/hook-video-viewers-5-seconds/). However, you need to make sure the first 3 seconds are high quality images that people want to continue watching. It is best to add music to make it engaging.
@@ -197,13 +191,6 @@ It is suggested to use mov and mp4 video format. These 2 formats are compatible 
 
 ![Facebook slideshow format](https://images.wondershare.com/filmora/filmora-business/Facebook-slideshow-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Edit your Facebook slideshow
 
 The slideshow will be boring if you only add images to combine it. It is suggested to [add text/title to make your key message appear](https://tools.techidaily.com/wondershare/filmora/download/). Most importantly, you can add transitions to make slideshow look natural. If you are good at editing, you also can correct color or make color grading.
@@ -212,18 +199,18 @@ The slideshow will be boring if you only add images to combine it. It is suggest
 
 We know that you want to do more conversions and get more sales, but if you add CTA on each imgaes, it is a mistake. People will close your slideshow video. [You need to add CTAs wisely](https://blog.hubspot.com/customers/seven-principles-for-video-ctas).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Rememeber to make test
 
 You won't know which version is better if you don't make A/B test. You can run 2 ads in one campaign to see which ad is better. You need to make sure the budget, bid and landing page are the same of the 2 ads. After the test is over, analyze it and choose the best one for you.
 
 ![test Facebook slideshow](https://images.wondershare.com/filmora/filmora-business/test-facebook-slideshow.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -232,6 +219,13 @@ Above are three methods of making Facebook slideshow. Don't know which Facebook 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -248,19 +242,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-create-captivating-music-reaction-videos-top-10-tips/"><u>[New] In 2024, How to Create Captivating Music Reaction Videos - Top 10 Tips</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-understanding-2023s-push-for-shorter-more-impactful-facebook-videos/"><u>[New] In 2024, Understanding 2023'S Push for Shorter, More Impactful Facebook Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/s-online-video-streaming-worth-extra-costs-see-how-youtube-plans-fit-in/"><u>[New] Is Online Video Streaming Worth Extra Costs? See How YouTube Plans Fit In</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-palette-perfection-translating-color-concepts/"><u>[New] Palette Perfection Translating Color Concepts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-revealing-hidden-group-sharing-in-chat-space-for-2024/"><u>[New] Revealing Hidden Group Sharing in Chat Space for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-masterful-marketing-tactics-11-ways-to-amplify-your-facebook-videography/"><u>[Updated] Masterful Marketing Tactics 11 Ways to Amplify Your Facebook Videography</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-explore-virtual-realms-with-these-videos/"><u>2024 Approved Explore Virtual Realms with These Videos</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discover-the-winning-duo-rotiboxs-bluetooth-beanie-for-ultimate-comfort-and-sound-experience/"><u>Discover the Winning Duo - Rotibox's Bluetooth Beanie for Ultimate Comfort & Sound Experience</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-vivo-s17-pro-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Vivo S17 Pro to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-a56s-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo A56s 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-profile-perfection-expert-tips-for-personalized-and-engaging-fb-biographies/"><u>In 2024, Profile Perfection Expert Tips for Personalized and Engaging FB Biographies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/streamline-your-social-experience-with-mobile-music-files/"><u>Streamline Your Social Experience with Mobile Music Files</u></a></li>
-<li><a href="https://techidaily.com/unlock-a-disable-iphone-7-plus-using-itunes-by-drfone-ios-unlock-ios-unlock/"><u>Unlock a disable iPhone 7 Plus using itunes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-a-comprehensive-guide-to-high-quality-live-streaming-with-logitech-camera/"><u>[New] 2024 Approved A Comprehensive Guide to High-Quality Live Streaming with Logitech Camera</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-resolve-instagrams-video-problems-swiftly/"><u>[New] 2024 Approved Resolve Instagram's Video Problems Swiftly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-professional-photography-meets-social-media-dslr-and-computer-syncopation/"><u>[New] Professional Photography Meets Social Media DSLR and Computer Syncopation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2023s-elite-fb-content-collectors-ranked-8/"><u>[Updated] 2023'S Elite FB Content Collectors Ranked 8</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-troubleshooting-sudden-facebook-live-hiccups/"><u>[Updated] 2024 Approved Troubleshooting Sudden Facebook Live Hiccups</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-guide-to-innovative-metaverse-marketing/"><u>[Updated] A Guide to Innovative Metaverse Marketing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-streaming-facebook-made-easy-pcmaclaptop-tips-and-tricks/"><u>[Updated] In 2024, Streaming Facebook Made Easy PC/Mac/Laptop Tips and Tricks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-introduction-to-effective-analysis-facebook-insights-for-2024/"><u>[Updated] Introduction to Effective Analysis Facebook Insights for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-social-media-blend-adding-youtube-content-to-stories/"><u>[Updated] Social Media Blend Adding YouTube Content to Stories</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-samsung-galaxy-a15-4g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Samsung Galaxy A15 4G by Name | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-rapid-refit-youtube-on-mac-perfect-scaling/"><u>In 2024, Rapid Refit Youtube on Mac Perfect Scaling</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-srt-file-sharing-on-social-platforms/"><u>Mastering SRT File Sharing on Social Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/swiftly-stow-facebook-broadcasts-for-smartphonedesktop-users-for-2024/"><u>Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Access  Facebook's Classic Stories for 2024\""
-date: 2024-09-16T01:26:27.393Z
-updated: 2024-09-17T23:59:47.164Z
+date: 2024-09-16T01:02:01.113Z
+updated: 2024-09-22T16:36:23.435Z
 tags:
   - ai video
   - ai facebook
@@ -81,13 +81,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -95,6 +88,13 @@ If you are looking to see old Facebook stories shared by your friend then let me
 The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
@@ -134,13 +134,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -157,6 +150,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -172,12 +172,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-journey-of-a-youtube-video-from-creation-to-live-streaming/"><u>[New] 2024 Approved The Journey of a YouTube Video From Creation to Live Streaming</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-maximizing-social-interaction-with-innovative-fb-slideshow-techniques-for-2024/"><u>[New] Maximizing Social Interaction with Innovative FB Slideshow Techniques for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-starter-guide-to-motion-graphics-mastery/"><u>[New] Starter Guide to Motion Graphics Mastery</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-elevate-your-characters-audio-presence-in-free-fire-naturally/"><u>2024 Approved How to Elevate Your Character's Audio Presence in Free Fire, Naturally</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-guide-how-to-revamp-facebook-profile-imagery/"><u>In 2024, Quick Guide How to Revamp Facebook Profile Imagery</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/mastering-social-media-finding-youtube-content-on-fb-for-2024/"><u>Mastering Social Media Finding YouTube Content on FB for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/prime-explorations-in-top-livestream-websites-for-2024/"><u>Prime Explorations in Top Livestream Websites for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-essential-update-on-whats-new-with-facebook/"><u>[New] 2024 Approved The Essential Update on What's New with Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-stealthy-video-streamer-reviews-1-8-for-2024/"><u>[New] Stealthy Video Streamer Reviews #1-8 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-essential-watch-top-8-internet-gems-for-2024/"><u>[Updated] Essential Watch Top 8 Internet Gems for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>[Updated] In 2024, A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pro-tips-chromebooks-finest-pencil-based-software/"><u>[Updated] In 2024, Pro Tips Chromebook's Finest Pencil-Based Software</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-5-must-see-facebook-vids-that-delight-us-all/"><u>2024 Approved 5 Must-See Facebook Vids That Delight Us All</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-guiding-iphone-and-android-owners-to-fix-video-sending-problems-in-fb-chat/"><u>2024 Approved Guiding iPhone & Android Owners to Fix Video Sending Problems in FB Chat</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-your-iphone-13-pro-max-apple-id-on-macbook-by-drfone-ios/"><u>How To Change Your iPhone 13 Pro Max Apple ID on MacBook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-poco-m6-pro-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Poco M6 Pro 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-forecasting-facebooks-video-trajectory-with-a-focus-on-brevity/"><u>In 2024, Forecasting Facebook's Video Trajectory with a Focus on Brevity</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-narzo-n53-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme Narzo N53 Phones with/without a PC</u></a></li>
+<li><a href="https://app-tips.techidaily.com/navigating-the-new-era-of-work-a-deep-dive-into-enterprise-transformation-through-decentralized-technologies-and-web3/"><u>Navigating the New Era of Work: A Deep Dive Into Enterprise Transformation Through Decentralized Technologies and Web3</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/perfect-virtual-scenes-enhancing-zoomgoogle-experience-for-2024/"><u>Perfect Virtual Scenes Enhancing Zoom/Google Experience for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/redefining-efficiency-sidelining-unproductive-gpt-apps/"><u>Redefining Efficiency: Sidelining Unproductive GPT Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-workflow-the-essential-guide-to-leveraging-chatgpt-against-digital-distractions-top-8-tips/"><u>Transform Your Workflow: The Essential Guide to Leveraging ChatGPT Against Digital Distractions (Top 8 Tips)</u></a></li>
 </ul></div>
 

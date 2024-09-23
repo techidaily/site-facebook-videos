@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting the Perfect Sonic Storytelling on Social Media for 2024"
-date: 2024-09-16T01:31:28.491Z
-updated: 2024-09-18T02:47:12.466Z
+date: 2024-09-22T05:08:00.803Z
+updated: 2024-09-23T00:56:16.965Z
 tags:
   - ai video
   - ai facebook
@@ -112,6 +112,13 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -123,10 +130,10 @@ You can click on the play button after selecting the song, and it will appear in
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
@@ -136,19 +143,6 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -181,14 +175,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-platform-power-playout-which-streams-better-obs-or-twitch-studio/"><u>[New] Platform Power Playout Which Streams Better - OBS or Twitch Studio?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-social-media-post-resolution-guide/"><u>[Updated] 2024 Approved Social Media Post Resolution Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-leveraging-tv-platforms-for-facebook-live-viewership/"><u>[Updated] In 2024, Leveraging TV Platforms for Facebook Live Viewership</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-changing-the-soundtrack-of-conversation-whatsapp-ringtones-for-ios-android/"><u>2024 Approved Changing the Soundtrack of Conversation WhatsApp Ringtones for iOS, Android</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-asus-rog-phone-8-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Asus ROG Phone 8 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Itel P55 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/looking-for-permission-to-view-friends-entirely-shared-media-for-2024/"><u>Looking for Permission to View Friend’s Entirely Shared Media for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/seamless-integration-from-gopro-to-popular-social-media-platforms/"><u>Seamless Integration From Gopro to Popular Social Media Platforms</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/turning-fans-into-followers-friends-and-profits-for-2024/"><u>Turning Fans Into Followers, Friends, and Profits for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-become-a-social-butterfly-engage-in-fb-live-on-your-roku-box/"><u>[New] Become a Social Butterfly Engage in FB Live on Your Roku Box</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-bridging-story-and-sound-scriptwriting-for-visual-media/"><u>[New] Bridging Story and Sound Scriptwriting for Visual Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-high-performance-drones-sold-here/"><u>[New] In 2024, High-Performance Drones Sold Here</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-ideas-to-enhance-the-visibility-of-fb-ad-videos/"><u>[New] In 2024, Ideas to Enhance the Visibility of FB Ad Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-signal-profileshots-guide-dimensions-file-type-minutes/"><u>[New] In 2024, Signal Profileshots Guide Dimensions, File Type, Minutes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-editors-workshop-enhancing-your-youtube-video-visibility/"><u>2024 Approved Editor's Workshop Enhancing Your Youtube Video Visibility</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-efficient-flow-of-content-tiktok-to-your-fb-profile/"><u>2024 Approved The Efficient Flow of Content TikTok to Your FB Profile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-achieve-complete-volume-on-fb-media-shows/"><u>How to Achieve Complete Volume on Fb Media Shows</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-8-plus-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 8 Plus to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-infinix-hot-30-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Infinix Hot 30 5G online without jailbreak</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-real-time-engagement-proven-strategies-for-facebook-video-screen-sharing/"><u>In 2024, Real-Time Engagement Proven Strategies for Facebook Video Screen Sharing</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-the-art-of-running-tiny-tinas-wonderlands-without-a-glitch-on-windowspc/"><u>Master the Art of Running Tiny Tina's Wonderlands without a Glitch on Windows/PC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/simplified-guide-fb-video-to-mp3-audio-transformations-for-2024/"><u>Simplified Guide FB Video to MP3 Audio Transformations for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-poco-f5-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshoot-your-connection-latest-wireless-driver-fixes-and-downloads/"><u>Troubleshoot Your Connection: Latest Wireless Driver Fixes & Downloads.</u></a></li>
 </ul></div>
 

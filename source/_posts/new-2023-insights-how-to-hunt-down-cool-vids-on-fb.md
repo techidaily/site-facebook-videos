@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2023 Insights  How to Hunt Down Cool Vids on FB\""
-date: 2024-09-15T00:36:32.488Z
-updated: 2024-09-17T21:46:57.062Z
+date: 2024-09-22T00:56:23.040Z
+updated: 2024-09-22T23:38:05.244Z
 tags:
   - ai video
   - ai facebook
@@ -121,13 +121,6 @@ Suppose you were watching a video that you wanted to save, but somehow it got di
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Computer
 
 To find Facebook videos that you have watched recently on the computer, follow the steps given below.
@@ -188,13 +181,6 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5: Go to “Activity Log”**
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
@@ -202,6 +188,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6: Click on “Videos you’ve watched.”**
 
@@ -216,6 +209,13 @@ The screen will display all the videos you have watched recently. Watch the one 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -465,6 +465,13 @@ On the right of these, you will see a filter icon where you can choose a specifi
 
 All the videos will be available, and you can watch whichever you want!
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Finding Saved Facebook Videos on Mobile
 
 Now, let's take a look at how you can find the saved Facebook videos using your phone. Follow the steps given below.
@@ -474,6 +481,13 @@ Now, let's take a look at how you can find the saved Facebook videos using your 
 From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Go to Menu**
 
@@ -504,19 +518,6 @@ Click on the Filter icon, and a dropdown list will appear. To view all the video
 Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
@@ -561,10 +562,10 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Phone
@@ -640,13 +641,6 @@ Part 2: [How to Find Videos on Facebook You Recently Watched?](#step2)
 ## Part 1\. How to Find Saved Videos on Facebook on PC or Mobile?
 
 Since you can use Facebook on both PC and mobile, we will give you instructions with respect to both.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Saved Facebook Videos on PC
 
@@ -839,21 +833,20 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-explaining-watermarks-securing-online-media/"><u>[New] 2024 Approved Explaining Watermarks Securing Online Media</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-hacking-facebook-fast-profile-discovery-methods/"><u>[New] In 2024, Hacking Facebook Fast Profile Discovery Methods</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-pcmaclaptop-easy-obs-setup-for-fb-livestreaming/"><u>[New] In 2024, PC/Mac/Laptop Easy OBS Setup for FB Livestreaming</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-innovative-copywriting-routines-adopting-three-key-approaches-to-fb-advertising/"><u>[New] Innovative Copywriting Routines Adopting Three Key Approaches to FB Advertising</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-8-facebook-planners-for-enhanced-team-productivity-for-2024/"><u>[New] Top 8 Facebook Planners for Enhanced Team Productivity for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-understanding-video-formats-which-is-more-effective-av1-or-vp9/"><u>[New] Understanding Video Formats Which Is More Effective, AV1 or VP9?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-gross-revenue-for-a-mil-viewer-spectacle/"><u>[New] Youtube's Gross Revenue for a Mil Viewer Spectacle</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-sweep-through-your-contacts-with-speed-and-skill-for-2024/"><u>[Updated] Sweep Through Your Contacts with Speed and Skill for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-elite-5-facebooks-novel-innovations-spotlighted/"><u>[Updated] The Elite 5 Facebook's Novel Innovations Spotlighted</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-easycapture-prox-diagnosis/"><u>2024 Approved EasyCapture ProX Diagnosis</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-contacts-from-apple-iphone-14-plus-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Contacts from Apple iPhone 14 Plus to iPhone Quickly | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/essential-techniques-for-effective-orca-slicer-usage/"><u>Essential Techniques for Effective ORCA-Slicer Usage</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-zte-blade-a73-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix ZTE Blade A73 5G Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/revamp-photos-iphoneandroids-top-sticker-adorning-software-for-2024/"><u>Revamp Photos IPhone/Android’s Top Sticker Adorning Software for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-boosting-conversions-with-immersive-fb-video-campaigns/"><u>[New] In 2024, Boosting Conversions with Immersive FB Video Campaigns</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-list-facebooks-top-10-vids/"><u>[New] The Ultimate List Facebook's Top 10 Vids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-financial-gains-from-social-video-content/"><u>[Updated] 2024 Approved The Ultimate Guide to Financial Gains From Social Video Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-exploring-extraordinary-realms-metaverse-vs-omniverse-analyzed-for-2024/"><u>[Updated] Exploring Extraordinary Realms Metaverse Vs. Omniverse Analyzed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-expand-your-reach-sharing-live-streams-on-facebook/"><u>[Updated] In 2024, Expand Your Reach Sharing Live Streams on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-seamless-strategies-downloading-graphics-images-from-facebook-and-beyond/"><u>[Updated] In 2024, Seamless Strategies Downloading Graphics Images From Facebook & Beyond</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionizing-movie-magic-with-the-4k-31mu97-b-from-lg/"><u>2024 Approved Revolutionizing Movie Magic with the 4K 31MU97-B From LG</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlock-fb-story-potential-4-effective-techniques/"><u>2024 Approved Unlock FB Story Potential - 4 Effective Techniques</u></a></li>
+<li><a href="https://win-dash.techidaily.com/find-and-install-compatible-epson-wf-2630-printer-drivers-supports-win78110other-oses/"><u>Find and Install Compatible Epson WF-2630 Printer Drivers: Supports Win7/8.1/10/Other OSes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/heroic-hurdles-the-ultimate-10-role-playing-journeys/"><u>Heroic Hurdles The Ultimate 10 Role-Playing Journeys</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-nubia-red-magic-8s-pro-phone-by-drfone-android/"><u>How to Reset a Locked Nubia Red Magic 8S Pro Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-sony-xperia-10-v-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Sony Xperia 10 V Phone FRP Lock</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-xs-max-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone XS Max</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
 </ul></div>
 

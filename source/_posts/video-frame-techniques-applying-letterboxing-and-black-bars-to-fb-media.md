@@ -1,7 +1,7 @@
 ---
 title: "\"Video Frame Techniques  Applying Letterboxing & Black Bars to FB Media\""
-date: 2024-09-15T01:29:07.062Z
-updated: 2024-09-17T20:40:15.279Z
+date: 2024-09-18T23:59:27.872Z
+updated: 2024-09-22T18:04:42.221Z
 tags:
   - ai video
   - ai facebook
@@ -102,13 +102,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## To Sum up
 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
@@ -116,13 +109,20 @@ Adding a letterbox, then designing your own texts, elements and filters will bri
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -139,20 +139,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-master-your-fb-video-archive-with-1-5-choices/"><u>[New] 2024 Approved Master Your FB Video Archive with #1-5 Choices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-talent-release-form-for-filming-and-video-to-free-download-for-2024/"><u>[New] Talent Release Form for Filming and Video to Free Download for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebook-in-flashes-sharing-briefly/"><u>[Updated] 2024 Approved Facebook in Flashes Sharing Briefly</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-insights-into-a-common-symbol-the-blue-emoji-in-fb-chat-for-2024/"><u>[Updated] Insights Into a Common Symbol The Blue Emoji in FB Chat for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlined-video-grabber-your-free-downloader-companion/"><u>[Updated] Streamlined Video Grabber Your Free Downloader Companion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-androvid-video-editor-complete-review/"><u>2024 Approved AndroVid Video Editor – Complete Review</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/advanced-coding-bots-discover-the-top-7-options-after-chatgpt/"><u>Advanced Coding Bots: Discover the Top 7 Options After ChatGPT</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/fast-track-adding-snapchat-to-your-mac/"><u>Fast Track Adding Snapchat to Your Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-engage-followers-effective-strategies-for-fb-slideshows/"><u>In 2024, Engage Followers Effective Strategies for FB Slideshows</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-engage-enlighten-and-enthrall-with-immersive-facebook-sharing/"><u>In 2024, Engage, Enlighten and Enthrall with Immersive Facebook Sharing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-filming-techniques-for-high-quality-facebook-video-content/"><u>In 2024, Filming Techniques for High-Quality Facebook Video Content</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-tecno-pop-8-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Tecno Pop 8</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-live-tv-streaming-guide-the-best-ten-and-their-comparison/"><u>In 2024, Live TV Streaming Guide The Best Ten and Their Comparison</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-unlocking-the-potential-of-windows-10-for-aspiring-filmmakers/"><u>In 2024, Unlocking the Potential of Windows 10 for Aspiring Filmmakers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/nixing-facebook-broadcasts-effortlessly/"><u>Nixing Facebook Broadcasts Effortlessly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-crafting-unified-visuals-on-your-computer/"><u>[New] Crafting Unified Visuals on Your Computer</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-live-lite-minute-videos-for-you-for-2024/"><u>[New] FB Live Lite Minute Videos for You for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-overcoming-facebook-algorithm-change-hurdles-for-2024/"><u>[New] Overcoming Facebook Algorithm Change Hurdles for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-skyrocketing-fb-engagement-masterful-seo-techniques-explored/"><u>[New] Skyrocketing FB Engagement Masterful SEO Techniques Explored</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-urgent-my-videos-halted-is-it-fair/"><u>[New] Urgent My Videos Halted - Is It Fair?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-a-memorable-look-back-experience-on-fb/"><u>[Updated] 2024 Approved Crafting a Memorable Look Back Experience on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-a-marketer-writes-guide-to-utilizing-hashtags-effectively-on-facebook/"><u>[Updated] A Marketer' Writes Guide to Utilizing Hashtags Effectively on Facebook</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/configuring-your-personal-nintendo-account-on-the-handheld-gaming-system-3ds/"><u>Configuring Your Personal Nintendo Account on the Handheld Gaming System, 3DS</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-vivo-y78plus-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Vivo Y78+ in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Honor Magic 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-rebooted-login-claiming-back-to-facebook/"><u>In 2024, Rebooted Login Claiming Back to Facebook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-motherboard-settings-entering-bios-across-windows-11-and-7/"><u>Mastering Motherboard Settings: Entering BIOS Across Windows 11 & 7</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-unlock-fcpxs-full-potential-the-top-10-plugins-you-should-know-about/"><u>New 2024 Approved Unlock FCPXs Full Potential The Top 10 Plugins You Should Know About</u></a></li>
+<li><a href="https://win11.techidaily.com/the-7-best-drawing-apps-for-windows-10/"><u>The 7 Best Drawing Apps for Windows 10</u></a></li>
 </ul></div>
 
