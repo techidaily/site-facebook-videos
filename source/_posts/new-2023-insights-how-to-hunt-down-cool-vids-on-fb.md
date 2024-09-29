@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2023 Insights  How to Hunt Down Cool Vids on FB\""
-date: 2024-09-22T00:56:23.040Z
-updated: 2024-09-22T23:38:05.244Z
+date: 2024-09-22T17:47:08.225Z
+updated: 2024-09-29T09:54:13.984Z
 tags:
   - ai video
   - ai facebook
@@ -121,6 +121,13 @@ Suppose you were watching a video that you wanted to save, but somehow it got di
 
 Here, we will help you find the Recently Watched Videos on PC and phone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Finding Recently Watched Videos on Computer
 
 To find Facebook videos that you have watched recently on the computer, follow the steps given below.
@@ -189,13 +196,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6: Click on “Videos you’ve watched.”**
 
 From the list of activities, tap on “Videos you’ve watched.”
@@ -209,13 +209,6 @@ The screen will display all the videos you have watched recently. Watch the one 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -466,10 +459,10 @@ On the right of these, you will see a filter icon where you can choose a specifi
 All the videos will be available, and you can watch whichever you want!
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Finding Saved Facebook Videos on Mobile
@@ -481,13 +474,6 @@ Now, let's take a look at how you can find the saved Facebook videos using your 
 From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2: Go to Menu**
 
@@ -501,6 +487,13 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Click on “See All”**
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
@@ -512,6 +505,13 @@ In order to view the saved video quickly, click on “See All” under the Most 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
 
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6: Watch the Video**
 
@@ -560,13 +560,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Recently Watched Videos on Phone
 
@@ -658,6 +651,13 @@ Here, log in to your Facebook account.
 
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Search for the "Saved” tab.**
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
@@ -730,6 +730,13 @@ Open the browser and then go to the Facebook website. Log into your account.
 
 ![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2: Go to Your Profile**
 
 On the top right corner of the screen, you will see your name; click on it to go to your profile.
@@ -749,6 +756,19 @@ From the dropdown menu, click on “Activity Log.”
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6: Select “Videos you’ve watched”**
 
@@ -801,6 +821,13 @@ The screen will display all the videos you have watched recently. Watch the one 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -831,5 +858,24 @@ We hope it helps!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-demystifying-absence-no-recommended-video-content-on-facebook/"><u>[New] 2024 Approved Demystifying Absence No Recommended Video Content on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-engaging-live-videos-on-smartphones-and-social-networks/"><u>[Updated] 2024 Approved Crafting Engaging Live Videos on Smartphones & Social Networks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-capture-and-record-a-2023-look-at-camstudios-capabilities/"><u>[Updated] Capture and Record A 2023 Look at CamStudio's Capabilities</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-embark-on-a-digital-communication-adventure-with-google-meet/"><u>[Updated] In 2024, Embark on a Digital Communication Adventure with Google Meet</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-from-good-quality-to-great-optimal-hd-fb-streaming/"><u>[Updated] In 2024, From Good Quality to Great Optimal HD FB Streaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-leverage-hashtags-for-top-ranked-fb-pages-for-2024/"><u>[Updated] Leverage Hashtags for Top-Ranked FB Pages for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-overcome-sound-absence-on-tweeted-film-rolls/"><u>[Updated] Overcome Sound Absence on Tweeted Film Rolls</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-time-travel-on-fb-accessing-historical-posts-for-2024/"><u>[Updated] Time Travel on FB Accessing Historical Posts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-becoming-part-of-the-global-community-your-guide-to-facebook/"><u>2024 Approved Becoming Part of the Global Community Your Guide to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-elevate-your-facebook-profile-choosing-top-apps-for-like-growth/"><u>2024 Approved Elevate Your Facebook Profile Choosing Top Apps for Like Growth</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-finalizing-account-deletion-on-instagram-method-and-tips/"><u>2024 Approved Finalizing Account Deletion on Instagram Method and Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-content-youtube-movie-maker-101/"><u>Elevate Your Content YouTube Movie Maker 101</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-conversion-at-no-expense-fb-videos-to-mp4-and-hd-now/"><u>In 2024, Quick Conversion at No Expense - FB Videos to MP4 & HD Now</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-roadmap-to-your-own-instagram-corporate-identity/"><u>In 2024, The Roadmap to Your Own Instagram Corporate Identity</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-understanding-the-impact-of-circular-videography/"><u>In 2024, Understanding the Impact of Circular Videography</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723010787943-modern-warfare-woes-no-more-your-ultimate-guide-to-overcoming-dev-error-6034-on-ps-xbox-and-pc/"><u>Modern Warfare Woes No More: Your Ultimate Guide to Overcoming Dev Error 6034 on PS, Xbox & PC</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/techniques-to-curtail-ai-fictional-responses/"><u>Techniques to Curtail AI Fictional Responses</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Seamless Viewing of Time-Honored Facebook Stories\""
-date: 2024-09-15T18:13:35.099Z
-updated: 2024-09-17T19:46:49.871Z
+date: 2024-09-25T02:54:18.570Z
+updated: 2024-09-29T06:25:32.557Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -73,9 +80,23 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -100,13 +121,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -134,13 +148,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -157,6 +164,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -170,5 +184,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-innovative-tips-for-powerful-podcast-openings/"><u>[New] 2024 Approved Innovative Tips for Powerful Podcast Openings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-maze-of-facebook-story-networking/"><u>[New] In 2024, Navigating the Maze of Facebook Story Networking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-the-secrets-of-captivating-auditory-and-visual-sensations-in-asmr-videos-for-2024/"><u>[New] Unlocking the Secrets of Captivating Auditory & Visual Sensations in ASMR Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-best-tools-for-extracting-fb-content-1-5-overview/"><u>[Updated] Best Tools for Extracting FB Content #1-5 Overview</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-watching-fb-live-on-roku/"><u>[Updated] The Ultimate Guide to Watching FB Live on Roku</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-cyberspace-companion-fb-stories-saver/"><u>2024 Approved Cyberspace Companion FB Stories Saver</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-text-warping-techniques-in-photos-and-videos/"><u>2024 Approved Mastering Text Warping Techniques in Photos & Videos</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-take-control-how-to-involve-yourself-in-a-friends-live-on-tiktok/"><u>2024 Approved Take Control How to Involve Yourself in a Friend's Live on TikTok</u></a></li>
+<li><a href="https://extra-information.techidaily.com/effortlessly-edit-podcasts-best-practices-with-garageband/"><u>Effortlessly Edit Podcasts Best Practices with GarageBand</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-tecno-pop-7-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Tecno Pop 7 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-fading-audio-tracks-through-audacitys-tools/"><u>In 2024, Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
+<li><a href="https://common-error.techidaily.com/say-goodbye-to-noise-troubles-forza-horizon-4-sound-glitch-solved/"><u>Say Goodbye to Noise Troubles: Forza Horizon 4 Sound Glitch Solved</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-best-8-online-hubs-for-downloading-free-3d-text-psdfiles-for-2024/"><u>The Best 8 Online Hubs for Downloading Free 3D Text PSDFiles for 2024</u></a></li>
+</ul></div>
 

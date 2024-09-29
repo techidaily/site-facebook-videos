@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-09-21T19:16:22.931Z
-updated: 2024-09-22T23:37:14.788Z
+date: 2024-09-25T18:24:30.392Z
+updated: 2024-09-28T19:13:59.783Z
 tags:
   - ai video
   - ai facebook
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make a 360 Degree video on Facebook?
 
  Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
@@ -74,6 +81,13 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
  Step 5: Finally click the **Publish** option.
@@ -81,16 +95,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -116,16 +124,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,5 +143,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-optimize-broadcasting-twitch-sessions-on-fb/"><u>[New] 2024 Approved Optimize Broadcasting Twitch Sessions on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-home-media-with-fb-video-integration-for-2024/"><u>[New] Enhancing Home Media with FB Video Integration for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-instantly-connecting-fans-how-to-take-your-fb-live-further/"><u>[New] Instantly Connecting Fans How to Take Your FB Live Further</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-pathways-to-acquiring-facebooks-distinguished-verification/"><u>[New] Pathways to Acquiring Facebook's Distinguished Verification</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unleashing-potential-a-guide-to-setting-up-and-analyzing-instream-ads-in-fb/"><u>[New] Unleashing Potential A Guide to Setting Up & Analyzing Instream Ads in FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-socialmediarecorder-toolkit/"><u>[Updated] In 2024, SocialMediaRecorder Toolkit</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-optimizing-your-facebook-budget-high-roi-animated-ad-best-practices-for-2024/"><u>[Updated] Optimizing Your Facebook Budget High-ROI Animated Ad Best Practices for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-professional-grade-grid-tools-for-striking-instagram-posts/"><u>[Updated] Professional-Grade Grid Tools for Striking Instagram Posts</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1-transform-your-dvd-collection-a-step-by-step-guide-to-converting-dvd-video-format-to-480p60fps/"><u>1. Transform Your DVD Collection: A Step-by-Step Guide to Converting DVD Video Format to 480P/60fps</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nubia-z50-ultra-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nubia Z50 Ultra</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/breakdown-of-the-benefits-a-detailed-review-of-the-powerhouse-that-is-netgear-nighthawk-c7000/"><u>Breakdown of the Benefits: A Detailed Review of the Powerhouse That Is Netgear Nighthawk C7000</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effortless-correction-techniques-for-overcoming-code-28-in-windows-systems/"><u>Effortless Correction Techniques for Overcoming Code 28 in Windows Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/expanding-your-social-horizon-connect-tiktok-to-facebook-for-2024/"><u>Expanding Your Social Horizon Connect TikTok to Facebook for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Infinix Hot 40? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-unfiltered-truth-insights-into-instagram-reels/"><u>In 2024, The Unfiltered Truth Insights Into Instagram Reels</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/reach-new-heights-in-video-content-with-dji-drones/"><u>Reach New Heights in Video Content with DJI Drones</u></a></li>
+</ul></div>
 

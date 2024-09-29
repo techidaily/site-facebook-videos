@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Access  Facebook's Classic Stories for 2024\""
-date: 2024-09-16T01:02:01.113Z
-updated: 2024-09-22T16:36:23.435Z
+date: 2024-09-27T21:24:11.417Z
+updated: 2024-09-28T23:16:01.830Z
 tags:
   - ai video
   - ai facebook
@@ -53,6 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -73,6 +80,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
@@ -90,10 +104,10 @@ The only chance is that if your friend has uploaded those stories on highlights 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
@@ -134,6 +148,13 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -150,13 +171,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -170,5 +184,18 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-tricks-to-prevent-fb-video-advertisements-on-screen/"><u>[New] In 2024, Tricks to Prevent FB Video Advertisements on Screen</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-4-ways-how-to-download-videos-from-facebook-messenger-for-2024/"><u>[Updated] 4 Ways | How to Download Videos From Facebook Messenger for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>[Updated] Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhancing-engagement-creating-top-tier-fb-ad-videos/"><u>2024 Approved Enhancing Engagement Creating Top-Tier FB Ad Videos</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-and-unlimited-methods-for-converting-avi-files-to-mpeg-format-online/"><u>Easy and Unlimited Methods for Converting AVI Files to MPEG Format Online</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-microsoft-bluetooth-drivers-for-windows-installation-guides-for-win-10-11-8-and-nul)7-users/"><u>Get the Newest Microsoft Bluetooth Drivers for Windows: Installation Guides for Win 10, 11, 8 & Nul>7 Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/resolving-connection-issues-successfully-linking-iphoto-with-iphone-series-x-8-7-and-6/"><u>Resolving Connection Issues: Successfully Linking iPhoto with iPhone Series X, 8, 7 and 6</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/speedsters-top-windows-photos-viewer/"><u>Speedster's Top Windows Photos Viewer</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-entrepreneurs-must-haves-essential-items-for-kickstarting-success/"><u>The Entrepreneur's Must-Haves Essential Items for Kickstarting Success</u></a></li>
+<li><a href="https://extra-information.techidaily.com/windows-best-free-podcast-tools/"><u>Window's Best Free Podcast Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725284935737-winxvideo-ai/"><u>Winxvideo AI가 도와주세요 - 기술을 이용한 동시대 비디오 품질 향상</u></a></li>
+</ul></div>
 

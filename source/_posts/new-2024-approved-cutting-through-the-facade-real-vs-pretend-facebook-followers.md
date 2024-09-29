@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cutting Through the Facade  Real vs Pretend Facebook Followers\""
-date: 2024-09-21T20:05:04.162Z
-updated: 2024-09-22T19:46:12.742Z
+date: 2024-09-21T20:58:03.122Z
+updated: 2024-09-29T01:13:48.815Z
 tags:
   - ai video
   - ai facebook
@@ -50,19 +50,6 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
@@ -73,15 +60,22 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
@@ -89,6 +83,13 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -101,10 +102,10 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -120,5 +121,19 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-complete-breakdown-of-facebooks-changes/"><u>[New] 2024 Approved The Complete Breakdown of Facebook's Changes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-record-lectures-on-mac/"><u>[New] In 2024, How to Record Lectures on Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-to-groups-shared-content-in-messenger/"><u>[Updated] 2024 Approved Navigating to Group's Shared Content in Messenger</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-living-virtually-tips-for-an-active-facebook-presence/"><u>[Updated] In 2024, Living Virtually Tips for an Active Facebook Presence</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-content-easy-downloads-of-vimeo-hd-videos-mp4-for-2024/"><u>[Updated] Unlocking Content Easy Downloads of Vimeo HD Videos (MP4) for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-academic-avenue-leading-educators-on-youtube/"><u>2024 Approved Academic Avenue Leading Educators on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580829731-breeze-through-basic-numbers-in-japanese/"><u>Breeze Through Basic Numbers in Japanese</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bypassing-bugs-essential-troubleshooting-steps-to-prevent-maplestory-crash-on-windows-11/"><u>Bypassing Bugs: Essential Troubleshooting Steps to Prevent MapleStory Crash on Windows 11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-cut-the-cord-download-fb-videos-on-pc-and-mobile/"><u>In 2024, Cut the Cord - Download FB Videos on PC & Mobile</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/seeking-solutions-why-no-facebook-videos-pop-up-in-2024/"><u>Seeking Solutions Why No Facebook Videos Pop Up, In 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-x-flip-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo X Flip IMEI without Root A Comprehensive Guide</u></a></li>
+</ul></div>
 

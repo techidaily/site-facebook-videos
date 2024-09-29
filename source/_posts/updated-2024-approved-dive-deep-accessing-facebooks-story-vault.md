@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-09-20T00:21:41.008Z
-updated: 2024-09-22T17:50:16.870Z
+date: 2024-09-21T22:40:37.589Z
+updated: 2024-09-28T22:58:07.304Z
 tags:
   - ai video
   - ai facebook
@@ -77,6 +77,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -89,16 +96,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -135,10 +142,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -157,6 +164,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -170,5 +184,18 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-quiet-browsing-of-fb-narratives/"><u>[New] 2024 Approved Quiet Browsing of FB Narratives</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-distance-not-a-barrier-expert-podcast-recording-advice-for-2024/"><u>[New] Distance Not a Barrier Expert Podcast Recording Advice for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-editing-excellence-the-ultimate-guide-to-top-notebooks-for-2024/"><u>[Updated] Editing Excellence The Ultimate Guide to Top Notebooks for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-step-by-step-guide-to-wirecast-facebook-livestreams/"><u>[Updated] In 2024, Step-by-Step Guide to Wirecast Facebook Livestreams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tips-for-uploading-videos-on-instagram/"><u>[Updated] Tips for Uploading Videos on Instagram</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-delving-into-the-meaning-of-a-mysterious-blue-marker-in-fb-chats/"><u>In 2024, Delving Into the Meaning of a Mysterious Blue Marker in FB Chats</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-harness-the-power-of-visuals-a-comprehensive-guide-to-editing-on-instagram/"><u>In 2024, Harness the Power of Visuals A Comprehensive Guide to Editing on Instagram</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-refreshing-sata-achi-driver-versions/"><u>Quick and Easy Guide to Refreshing SATA ACHI Driver Versions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-savvy-your-guide-to-the-top-6-free-android-downloader-apps-for-youtube-for-2024/"><u>Sound Savvy Your Guide to the Top 6 Free Android Downloader Apps for Youtube for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/stepwise-guide-to-windows-11-sound-capture-setup-for-2024/"><u>Stepwise Guide to Windows 11 Sound Capture Setup for 2024</u></a></li>
+</ul></div>
 

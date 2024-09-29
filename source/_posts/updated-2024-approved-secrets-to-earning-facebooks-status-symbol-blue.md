@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Secrets to Earning Facebook’s Status Symbol (Blue)\""
-date: 2024-09-15T20:38:06.554Z
-updated: 2024-09-23T04:52:50.539Z
+date: 2024-09-21T20:18:30.440Z
+updated: 2024-09-29T00:48:33.973Z
 tags:
   - ai video
   - ai facebook
@@ -52,6 +52,13 @@ Video plays an important part on Facebook if you want to get more likes and enga
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: What is the Blue Verification Badge
 
 The blue verification badge is a seal of your identity. It proves that your pages have a real identity and not fake. Facebook has [three kinds of verification](https://www.facebook.com/help/196050490547892?helpref=popular%5Ftopics) – grey tick pages, blue tick pages, and blue tick profiles.
@@ -87,17 +94,10 @@ When you pick the more detailed verification process, you need to click on the V
 ![facebook verfication](https://images.wondershare.com/filmora/article-images/facebook-verfication.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Get Your Facebook Page Verified (Gray Badge)
@@ -109,16 +109,10 @@ You need to go to Settings on your page. Then click **General** \> **Page Verifi
 ![How to Get Your Facebook Page Verified](https://images.wondershare.com/filmora/filmora-business/how-to-verify-facebook-page-gray-badge.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Why Facebook Didn’t Give Verification to Me
@@ -134,10 +128,10 @@ Facebook said verification can be accepted or rejected. The grey badge verificat
 ## Part 5: 3 Tips to Get Facebook Verification
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Provide complete and detailed information
@@ -151,10 +145,10 @@ You don't want to give Facebook the impression that you are not professional wit
 ![facebook verification blue and gray](https://images.wondershare.com/filmora/filmorapro/great-page-get-facebook-verification.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Update your verification information
@@ -169,6 +163,13 @@ Facebook blue or grey badge verification is a very important step to ensure your
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -182,5 +183,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-user-generated-content-harnessing-community-influence/"><u>[New] 2024 Approved Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-desktop-broadcasting-tools-face-off-obs-vs-shadowplay-for-2024/"><u>[New] Desktop Broadcasting Tools Face-Off OBS vs ShadowPlay for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastery-of-video-dimensions-achieving-balanced-facebook-posts/"><u>[New] In 2024, Mastery of Video Dimensions Achieving Balanced Facebook Posts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-eliminate-your-streaming-darkness-on-youtube/"><u>[Updated] 2024 Approved Eliminate Your Streaming Darkness on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-open-source-fb-songs-downloader/"><u>[Updated] 2024 Approved Open Source FB Songs Downloader</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-top-quality-fb-pic-and-movie-creator-no-cost/"><u>[Updated] In 2024, Top Quality FB Pic & Movie Creator (No Cost)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-ultimate-chorus-conductor-android-edition-for-2024/"><u>[Updated] Ultimate Chorus Conductor, Android Edition for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023s-facebook-video-grabber-windowsmacosandroid-for-2024/"><u>2023'S Facebook Video Grabber Windows/macOS/Android for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-vids-made-simple-as-mp4-downloads/"><u>2024 Approved Facebook Vids Made Simple as MP4 Downloads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-smoothly-embed-facebook-live-on-your-site/"><u>2024 Approved How to Smoothly Embed Facebook Live on Your Site</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-placing-titles-on-video-clips-with-windows-photos/"><u>2024 Approved Step-by-Step Placing Titles on Video Clips with Windows Photos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-your-first-steps-in-the-digital-world-course-recommendations/"><u>2024 Approved Your First Steps in the Digital World Course Recommendations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/elevate-your-online-identity-with-tailored-fb-slideshow-content-for-2024/"><u>Elevate Your Online Identity with Tailored FB Slideshow Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tial-youtube-beauty-influencers-10-creators-to-watch/"><u>Essential YouTube Beauty Influencers 10 Creators to Watch</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unleash-potential-superior-strategies-for-personalized-facebook-profiles/"><u>In 2024, Unleash Potential Superior Strategies for Personalized Facebook Profiles</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/premium-fb-video-tools-optimized-for-firefox-users-for-2024/"><u>Premium FB Video Tools - Optimized For FireFox Users for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-video-viral-2024/"><u>Twitter Video Viral 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-honor-x9b-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Honor X9b Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/png-movivi/"><u>ウェブ上で自由に利用可能なPNG変換サービス - MoviVi</u></a></li>
+</ul></div>
 

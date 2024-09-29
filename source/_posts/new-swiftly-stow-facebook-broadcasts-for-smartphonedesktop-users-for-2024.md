@@ -1,7 +1,7 @@
 ---
 title: "[New] Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users for 2024"
-date: 2024-09-17T17:32:52.059Z
-updated: 2024-09-23T02:29:31.387Z
+date: 2024-09-27T01:32:44.861Z
+updated: 2024-09-29T03:51:53.083Z
 tags:
   - ai video
   - ai facebook
@@ -62,6 +62,13 @@ Let's begin with the mobile Facebook application:
 
 **Step 4:** Finally, click on the Delete option again, and you are done. This Facebook story is removed.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Delete A Story from Facebook Story Archive?
 
 After your story vanishes from the Story section after 24 hours, they remain stored in the Story Achieve. But this feature has to stay enabled to store your stories in the Story Achieve. This way, you can control which stories you will like to save and which ones you will want to delete completely. To enable Story Archive, go to your Facebook profile and click on the three dots. You need to click on the settings option; after that, you need to select the gear icon. Once done, just toggle the save to archive option, and it will be enabled.
@@ -71,6 +78,13 @@ If it is already enabled, follow these steps to delete the archived Facebook sto
 **Step 1:** Visit your Facebook account and click on your profile. On your profile, you will see three dots. Please click on the three dots. Once done, you will see a list of options; please click on the archive option.
 
 ![delete Facebook Story from desktop](https://images.wondershare.com/filmora/article-images/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2**: Now, select the Story Archive option that you see on the top. This will show all the archived stories. Next, choose a story that you want to remove permanently. The story will appear. Click on the three dots, and then click on the delete option.
 
@@ -91,10 +105,10 @@ Facebook stories don't only appear on your Facebook home page; they also appear 
 ![delete Facebook Story from messager](https://images.wondershare.com/filmora/article-images/delete-facebook-story-from-messager.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Control Who Can View Your Facebook Stories?
@@ -109,20 +123,6 @@ You can make your stories visible to your friends, customize the viewers, or kee
 
 ![  Facebook Story privacy  ](https://images.wondershare.com/filmora/article-images/facebook-story-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Hide Facebook Story from Specific People?
 
 Facebook has made sharing stories easy because of the multiple features it offers. Apart from controlling the story, you can even choose to hide the story from specific people. To do that, here's what you need to do.
@@ -131,7 +131,21 @@ Facebook has made sharing stories easy because of the multiple features it offer
 
 ![  Facebook Story hide from specific person  ](https://images.wondershare.com/filmora/article-images/hide-facebook-story-from-specific-people.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** You will be shown the complete list of people you are connected with on Facebook. Select the people you don't want to share your stories with, and then click on done.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Delete Someone Else's Story on Your Facebook?
 
@@ -160,5 +174,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-determining-facebook-video-layout-preference/"><u>[New] 2024 Approved Determining Facebook Video Layout Preference</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-future-of-fb-ads-whats-a-must-try/"><u>[New] 2024 Approved Future of FB Ads – What’s a Must-Try?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-download-youtube-videos-without-any-software/"><u>[New] 2024 Approved How to Download YouTube Videos without Any Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-navigating-snapback-automatically-adding-snapshots-to-photos/"><u>[New] 2024 Approved Navigating Snapback Automatically Adding Snapshots to Photos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-best-facebook-lite-video-downloading-software-of-2023/"><u>[New] Best Facebook Lite Video Downloading Software of 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-add-videos-to-youtube-playlist/"><u>[New] How to Add Videos to YouTube Playlist?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-maximizing-reach-tweeting-on-facebook-for-2024/"><u>[New] Maximizing Reach Tweeting on Facebook for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-complete-guide-to-pc-mac-and-phone-movie-playback/"><u>[Updated] 2024 Approved The Complete Guide to PC, Mac & Phone Movie Playback</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-building-impressive-facebook-slideshows-a-practical-guide-for-2024/"><u>[Updated] Building Impressive Facebook SlideShows A Practical Guide for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-fb-content-horizontal-or-vertical-format-debate/"><u>2024 Approved FB Content Horizontal or Vertical Format Debate</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-live-video-glitches-on-facebook-how-to-remove-mutes-completinasly/"><u>2024 Approved Live Video Glitches on Facebook - How to Remove Mutes Completinasly</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-nvidia-mx150-graphics-card-drivers-for-your-windows-system/"><u>Get the Latest NVIDIA MX150 Graphics Card Drivers for Your Windows System</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-improve-frame-rate-in-battle-royale-games-essential-tips-and-tricks/"><u>How to Improve Frame Rate in Battle Royale Games - Essential Tips & Tricks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-samsung-galaxy-z-flip-5-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Samsung Galaxy Z Flip 5 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-the-top-10-ways-to-improve-fb-page-rankings/"><u>Navigating the Top 10 Ways to Improve FB Page Rankings</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unboxing-and-testing-in-depth-review-of-asus-rog-swift-oled-for-ultimate-gaming-experience/"><u>Unboxing and Testing: In-Depth Review of Asus ROG Swift OLED for Ultimate Gaming Experience</u></a></li>
+</ul></div>
 

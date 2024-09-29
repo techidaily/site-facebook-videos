@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Recording to Revelation  A Comprehensive Guide to 360 Videos on Facebook\""
-date: 2024-09-13T00:49:15.006Z
-updated: 2024-09-18T03:41:01.109Z
+date: 2024-09-27T21:14:03.481Z
+updated: 2024-09-29T08:41:42.425Z
 tags:
   - ai video
   - ai facebook
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make a 360 Degree video on Facebook?
 
  Users can easily develop 360 degree videos with the help of spherical cameras or specially designed applications. As these videos are gaining more and more popularity these days so now spherical cameras are available at very low cost that everyone can buy them. Here is the list of few highly rated Facebook compatible 360 degree cameras:
@@ -70,9 +77,23 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -81,10 +102,10 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -109,13 +130,6 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -129,5 +143,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-effective-ways-how-to-block-facebook-video-ads/"><u>[New] In 2024, Effective Ways | How to Block Facebook Video Ads?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-essential-topic-choosing-the-right-kids-quadcopter/"><u>[New] In 2024, Essential Topic Choosing the Right Kid's Quadcopter</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-streamlining-the-process-vimeo-to-mp3-conversion-for-2024/"><u>[New] Streamlining the Process Vimeo to MP3 Conversion for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-guide-to-downloading-facebook-stories-anywhere-for-2024/"><u>[New] The Ultimate Guide to Downloading Facebook Stories Anywhere for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-visual-entry-examination-digest-for-2024/"><u>[New] Visual Entry Examination Digest for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-secrets-to-exposing-videos-in-the-news-feed/"><u>[Updated] 2024 Approved Secrets to Exposing Videos in the News Feed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/winx-dvd-backup/"><u>「オンラインでWinX DVD Backupソフトウェアセットを手に入れる方法」</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-a-social-storytellers-playbook-maximizing-video-impact-on-fb/"><u>2024 Approved A Social Storyteller’s Playbook Maximizing Video Impact on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/easy-effective-and-accurate-method-to-download-fb-gifs-anywhere-for-2024/"><u>Easy, Effective and Accurate Method to Download FB GIFs Anywhere for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-maximizing-moolah-how-to-monetize-videos-on-the-social-network-giant/"><u>In 2024, Maximizing Moolah How to Monetize Videos on the Social Network Giant</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-the-secrets-of-successful-youtube-thumbnail-crafting/"><u>In 2024, Unlocking the Secrets of Successful YouTube Thumbnail Crafting</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-resolving-right-click-failures-on-windows-11-systems/"><u>Step-by-Step Guide: Resolving Right-Click Failures on Windows 11 Systems</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/things-you-must-know-for-screen-mirroring-apple-iphone-11-drfone-by-drfone-ios/"><u>Things You Must Know for Screen Mirroring Apple iPhone 11 | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-09-12T06:58:42.730Z
-updated: 2024-09-18T04:15:36.866Z
+date: 2024-09-25T08:04:14.095Z
+updated: 2024-09-29T08:40:11.641Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Before Making Facebook Video Ads
 
  If you are ready to create videos ads, then it is important to follow some set parameters for ensuring high performance:
@@ -63,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
 
 * They have long annoying intro at the beginning.
@@ -74,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 #### 2. Choose Attractive Video Thumbnail
 
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
 
@@ -90,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 #### 4. Add Lower-Third Highlights
 
 ![Facebook Video Third Lower Text](https://images.wondershare.com/filmora/article-images/facebook-video-third-lower-text.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Adding text on video ads is really a good idea because it helps to highlight the salient points with ease. When lower thirds are added to the videos then viewers can easily go ahead with your content and pick the major details. Although, this information is named as Lower Thirds but these messages can be placed at any portion of your video ad screen. The key is to work with your favourite video editing program that can add text impressively.
 
@@ -112,12 +140,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-overcoming-the-hurdle-of-non-uploading-facebook-story-videos/"><u>[New] 2024 Approved Overcoming the Hurdle of Non-Uploading Facebook Story Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-crafting-full-sphere-videos-on-iphone-ideal-for-facebook/"><u>[New] Crafting Full-Sphere Videos on iPhone, Ideal for Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlocking-the-secrets-to-successful-360-streaming-on-fb/"><u>[New] In 2024, Unlocking the Secrets to Successful 360 Streaming on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-invisible-vids-on-social-reveal-the-top-12-techniques-to-restore-appearance-in-23-for-2024/"><u>[New] Invisible Vids on Social? Reveal the Top 12 Techniques to Restore Appearance in '23 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-posting-youtube-videos-to-your-facebook-feed-for-2024/"><u>[New] Posting YouTube Videos to Your Facebook Feed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-blueprint-for-designing-eye-catching-thumbnails-for-your-youtube-channel/"><u>[New] The Blueprint for Designing Eye-Catching Thumbnails for Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tactics-to-make-fb-videos-attractive-and-effective/"><u>[Updated] 2024 Approved Tactics to Make FB Videos Attractive and Effective</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-fix-the-green-screen-on-youtube-on-mac-in-2024/"><u>[Updated] How to Fix the Green Screen on YouTube on Mac, In 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-launchpad-gear-your-youtube-channels-first-steps/"><u>[Updated] Launchpad Gear Your YouTube Channel's First Steps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-reset-password-quickly-regaining-access-post-hack/"><u>[Updated] Reset Password Quickly Regaining Access Post-Hack</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-unlocking-youtube-potential-with-perpetual-creative-commons-membership/"><u>[Updated] Unlocking YouTube Potential with Perpetual Creative Commons Membership</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-making-life-easier-watching-fb-videos-on-your-tv/"><u>2024 Approved Making Life Easier Watching FB Videos on Your TV</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-motorola-moto-e13-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Motorola Moto E13 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/is-it-really-zoom-lagging-or-is-something-else-affecting-your-call-quality/"><u>Is It Really Zoom Lagging, or Is Something Else Affecting Your Call Quality?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-gaming-performance-optimize-your-setup-for-fluid-motion-and-high-framessecs/"><u>Master Gaming Performance: Optimize Your Setup for Fluid Motion and High Frames/Secs</u></a></li>
+<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/understanding-the-meaning-of-facebooks-blue-emoji-for-2024/"><u>Understanding the Meaning of Facebook's Blue Emoji for 2024</u></a></li>
+</ul></div>
 

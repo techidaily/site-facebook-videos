@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Insider's Edge to Editing Your Look Back Story\""
-date: 2024-09-16T00:06:19.543Z
-updated: 2024-09-22T22:29:01.675Z
+date: 2024-09-22T02:39:28.496Z
+updated: 2024-09-29T05:47:36.300Z
 tags:
   - ai video
   - ai facebook
@@ -56,11 +56,25 @@ thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -89,7 +103,21 @@ thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff
 
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -104,12 +132,19 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[Updated] 2024 Approved Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-unique-media-the-top-ios-downloader-tools-revealed-today-for-2024/"><u>[Updated] Facebook's Unique Media The Top iOS Downloader Tools Revealed Today for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-dos-and-donts-the-ultimate-fb-cover-video-tutorial/"><u>[Updated] In 2024, Dos & Don'ts The Ultimate FB Cover Video Tutorial</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-goovision-elite-next-gen-screen-capture/"><u>[Updated] In 2024, GooVision Elite Next-Gen Screen Capture</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-seamless-switch-exchanging-playlists-across-streaming-platforms/"><u>2024 Approved Seamless Switch Exchanging Playlists Across Streaming Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-deep-dive-into-previewed-fb-interactions-necessity-or-risk/"><u>A Deep Dive Into Previewed FB Interactions Necessity or Risk?</u></a></li>
+<li><a href="https://discover-great.techidaily.com/digiartys-value-packed-discount-magazines-with-bonus-music-and-movies-media-collection/"><u>DigiArty's Value-Packed Discount Magazines with Bonus Music and Movies Media Collection!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Xiaomi 13T Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-fb-video-promos-access-free-video-toolkit/"><u>In 2024, Mastering FB Video Promos Access Free Video Toolkit</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-roadmap-to-creating-unforgettable-facebook-cover-videos/"><u>In 2024, The Roadmap to Creating Unforgettable Facebook Cover Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/nvidia-rtx-3080-overcoming-game-crashes/"><u>NVIDIA RTX 3080: Overcoming Game Crashes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/overcoming-facebook-algorithm-change-hurdles-for-2024/"><u>Overcoming Facebook Algorithm Change Hurdles for 2024</u></a></li>
+</ul></div>
 

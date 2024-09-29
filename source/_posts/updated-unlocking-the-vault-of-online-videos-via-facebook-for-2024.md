@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlocking the Vault of Online Videos via Facebook for 2024"
-date: 2024-09-19T16:52:59.388Z
-updated: 2024-09-22T20:34:36.546Z
+date: 2024-09-26T22:46:47.531Z
+updated: 2024-09-28T21:05:23.282Z
 tags:
   - ai video
   - ai facebook
@@ -103,6 +103,13 @@ In order to view the saved video quickly, click on “See All” under the Most 
 
 ![Click on “See All”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5: Filter the Items**
 
 Click on the Filter icon, and a dropdown list will appear. To view all the videos, select "Videos" from the list.
@@ -157,6 +164,13 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -181,13 +195,6 @@ You will see three dots beside the "Add to Story" button. Click on them. This wi
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5: Go to “Activity Log”**
 
 From the Profile Settings, click on “Activity Log” and then scroll down. Click on “Logged actions and other activity.”
@@ -204,11 +211,25 @@ From the list of activities, tap on “Videos you’ve watched.”
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Side note
 
 Videos are a very effective way of expressing yourself. If you wish to upload your own videos to Facebook, we recommend a video editor called Wondershare Filmora. Make a video and then use Wondershare Filmora and its multitude of features to edit the video.
 
 With Filmora, your videos can be raised to the professional level and help you interact with a larger audience.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -269,13 +290,6 @@ Click on “Saved.” You will enter another interface where all your saved item
 On the right of these, you will see a filter icon where you can choose a specific type of item. Choose “Videos” in order to view all the videos you have ever saved.
 
 All the videos will be available, and you can watch whichever you want!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Finding Saved Facebook Videos on Mobile
 
@@ -397,6 +411,13 @@ From the list of activities, tap on “Videos you’ve watched.”
 
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
 ## Side note
@@ -455,6 +476,13 @@ Once you log in, you will see your News Feed. On the left side of your screen, a
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4: Click on Saved**
 
 Click on “Saved.” You will enter another interface where all your saved items will be visible.
@@ -475,18 +503,18 @@ From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2: Go to Menu**
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Go to Saved**
 
@@ -584,6 +612,13 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
 
 **Step 6: Click on “Videos you’ve watched.”**
@@ -676,13 +711,6 @@ From the News Feed, click on the three bars at the bottom right corner of the sc
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Go to Saved**
 
 In the Menu, scroll down to see the "Saved" tab. Click on it.
@@ -772,13 +800,6 @@ From the Menu, click on your profile at the top of the screen.
 You will see three dots beside the "Add to Story" button. Click on them. This will take you to the Profile Settings.
 
 ![Click on the Three Dots](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-14.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 5: Go to “Activity Log”**
 
@@ -831,5 +852,24 @@ We hope it helps!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-boost-your-workflow-with-these-8-best-facebook-timers-for-2024/"><u>[New] Boost Your Workflow with These 8 Best Facebook Timers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-idea-infringement-instant-video-ban/"><u>[New] In 2024, Idea Infringement Instant Video Ban</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-best-7-dslr-vlogging-cameras/"><u>[Updated] In 2024, Best 7 DSLR Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-overcoming-video-send-failures-in-facebook-chat-iphoneandroid-guide-for-2024/"><u>[Updated] Overcoming Video Send Failures in Facebook Chat IPhone/Android Guide for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-superior-schedulers-for-success-our-recommendation-list-for-2024/"><u>[Updated] Superior Schedulers for Success Our Recommendation List for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-gag-reel-collection-comical-cells-and-cell-blocks-on-facebook/"><u>[Updated] The Ultimate Gag Reel Collection Comical Cells and Cell Blocks on Facebook</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-take-screenshots-with-precision-on-a-mac/"><u>2024 Approved Take Screenshots with Precision on a Mac</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-insiders-guide-to-vids-on-the-big-blue-network/"><u>2024 Approved The Insider's Guide to Vids on the Big Blue Network</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-turn-fb-hd-videos-into-high-quality-mp4-free-online-method-unveiled/"><u>2024 Approved Turn FB HD Videos Into High-Quality MP4 – Free Online Method Unveiled</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-honor-x50i-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Honor X50i Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/creating-ootd-masterpieces-for-tiktok-with-macos/"><u>Creating OOTD Masterpieces for TikTok with MacOS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fixing-jscriptdll-absent-or-missing-issues-quick-solutions-for-web-developers/"><u>Fixing jScript.DLL Absent or Missing Issues: Quick Solutions for Web Developers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-gopro-livestreams-connecting-to-facebook-and-periscope/"><u>In 2024, Mastering Gopro Livestreams Connecting to Facebook & Periscope</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-free-time-tracker-a-step-by-step-guide/"><u>Mastering FREE Time Tracker A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/skype-groups-setting-up-windowsmac-conversations-for-2024/"><u>Skype Groups Setting Up Windows/Mac Conversations for 2024</u></a></li>
+</ul></div>
 
