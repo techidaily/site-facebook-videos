@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless Stories From The Past  Accessing Older FB Content on PC/Mobile\""
-date: 2024-09-27T19:08:37.413Z
-updated: 2024-09-29T08:31:03.536Z
+date: 2024-09-28T17:29:53.466Z
+updated: 2024-10-04T17:27:37.549Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -75,19 +75,6 @@ You can log in to Facebook on a desktop to proceed to watch your old stories. Wh
 Once you click on the story archive, all your **old stories** will appear in sequential order.
 
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
@@ -108,10 +95,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -129,6 +116,13 @@ After visiting the story archive, click on the story you wish to save. Click on 
 **Step 3: Save story**
 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
@@ -153,10 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -174,22 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-to-extract-gif-content-seamlessly-on-various-devices/"><u>[New] In 2024, How To Extract GIF Content Seamlessly on Various Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-approaches-applying-luts-in-photoshop-cc-post-processing/"><u>[New] Innovative Approaches Applying LUTs in Photoshop CC Post-Processing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-facebook-cover-videos-essential-insights/"><u>[Updated] 2024 Approved Mastering Facebook Cover Videos Essential Insights</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-drive-success-a-comprehensive-list-of-the-best-fb-schedulers/"><u>[Updated] Drive Success A Comprehensive List of the Best FB Schedulers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-photo-viewer-revival-techniques-for-enhanced-windows-11-experience/"><u>[Updated] Photo Viewer Revival Techniques for Enhanced Windows 11 Experience</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-snapsnatcher-fb-media-extraction/"><u>[Updated] SnapSnatcher FB Media Extraction</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-social-sensation-strategies-crafting-fbs-topmusicvideos/"><u>[Updated] Social Sensation Strategies - Crafting FB's #TopMusicVideos</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-simple-videos-text-addition-in-windows-10s-photos-software/"><u>2024 Approved Transforming Simple Videos Text Addition in Windows 10'S Photos Software</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-the-latest-canon-mx340-printer-drivers-compatible-with-windows-10-8-and-eax/"><u>Download the Latest Canon MX340 Printer Drivers: Compatible with Windows 10, 8 & Eax</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/download-tools-for-bypassing-pdf-protection/"><u>Download Tools for Bypassing PDF Protection</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-madden-nfl-21-pc-game-crashes-ultimate-solutions/"><u>Fixing the Madden NFL 21 PC Game Crashes: Ultimate Solutions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/for-the-tech-sleuth-dissecting-the-best-top-10-fb-videos-downloaders/"><u>For the Tech Sleuth Dissecting the Best Top 10 FB Videos Downloaders</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-motorola-moto-g34-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Motorola Moto G34 5G Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-upgrade-your-facebook-journey-mastering-look-back-edits/"><u>In 2024, Upgrade Your Facebook Journey Mastering Look Back Edits</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/integrating-youtube-videos-into-facebook-sharing-options/"><u>Integrating YouTube Videos Into Facebook Sharing Options</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-meizu-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Meizu</u></a></li>
-<li><a href="https://games-able.techidaily.com/tranquil-playtime-regulating-console-sound-outputs/"><u>Tranquil Playtime: Regulating Console Sound Outputs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-step-by-step-to-youtube-fame-implementing-featured-channels-successfully/"><u>[New] 2024 Approved Step-by-Step to YouTube Fame Implementing Featured Channels Successfully</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-televisual-enhancements-through-engaging-fb-livestreams/"><u>[New] 2024 Approved Televisual Enhancements Through Engaging FB Livestreams</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-examine-recorded-conversation-for-2024/"><u>[New] Examine Recorded Conversation for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-8-undercover-video-downloader-apps-of-the-year/"><u>[New] Top 8 Undercover Video Downloader Apps of the Year</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-launch-free-dvd-playback-capabilities-on-windowsmac-laptops-for-2024/"><u>[Updated] Launch Free DVD Playback Capabilities on Windows/Mac Laptops for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pixel-perfect-facebook-recording-tools-for-2024/"><u>[Updated] Pixel-Perfect Facebook Recording Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-videoharvest-downloading-fb-content/"><u>[Updated] VideoHarvest Downloading Fb Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-superfast-fb-downloader-mp4-files-in-minutes/"><u>2024 Approved SuperFast FB Downloader MP4 Files in Minutes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/apex-fb-platforms-topping-the-10-list/"><u>Apex FB Platforms Topping the 10 List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-mini-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 mini Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-fb-music-videos-best-performances-listed/"><u>In 2024, Mastering FB Music Videos Best Performances Listed</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-guide-for-text-superimposition-on-video-using-windows-photos/"><u>In 2024, Step-by-Step Guide for Text Superimposition on Video Using Windows Photos</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/order-stardomixer-the-ultimate-photo-editing-tool-for-windows-users/"><u>Order Stardomixer: The Ultimate Photo Editing Tool for Windows Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-msdia80dll-importance-and-necessity-in-your-system/"><u>Understanding msdia80.dll: Importance and Necessity in Your System</u></a></li>
 </ul></div>
 

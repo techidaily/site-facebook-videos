@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The History Button  Navigating Old Facebook Stories\""
-date: 2024-08-29T03:04:07.417Z
-updated: 2024-08-30T03:04:07.417Z
+date: 2024-10-01T18:51:10.865Z
+updated: 2024-10-04T18:36:32.639Z
 tags:
   - ai video
   - ai facebook
@@ -62,8 +62,12 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -77,23 +81,20 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -102,9 +103,23 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -114,9 +129,6 @@ To attract more audience and gain more likes, comments all you need is a smart [
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Features:**
 
 4K Resolution Editing Support
@@ -159,16 +171,11 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -176,3 +183,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-enhancing-gamers-experience-recording-console-titles-for-pc/"><u>[New] 2024 Approved Enhancing Gamers' Experience Recording Console Titles for PC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-hack-the-system-avoid-video-ads-directly-on-fb/"><u>[New] 2024 Approved Hack the System Avoid Video Ads Directly on FB</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-disabling-apex-legends-cross-play-best-platform-tactics-unveiled/"><u>[New] In 2024, Disabling Apex Legends Cross-Play Best Platform Tactics Unveiled</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enhancing-engagement-with-dynamic-360-videos-on-facebook/"><u>[New] In 2024, Enhancing Engagement with Dynamic 360 Videos on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-android-and-iphones-hottest-social-tools-to-increase-fb-likes/"><u>[Updated] Android & iPhone's Hottest Social Tools to Increase FB Likes</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-game-masters-unleashed-an-in-depth-look-at-kinemaster-on-android/"><u>[Updated] Game Masters Unleashed An In-Depth Look at KineMaster on Android</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-upgrade-your-facebook-journey-mastering-look-back-edits/"><u>[Updated] In 2024, Upgrade Your Facebook Journey Mastering Look Back Edits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-8-trending-videos-on-facebook/"><u>2024 Approved 8 Trending Videos on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-recall-facebooks-older-episodes-with-your-computer-and-phone/"><u>2024 Approved How to Recall Facebook's Older Episodes with Your Computer & Phone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-windows-11-with-top-tips/"><u>2024 Approved Mastering Windows 11 with Top Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-secrets-to-excellent-1080p-content-on-fb/"><u>2024 Approved Secrets to Excellent 1080P Content on FB</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/2024s-top-selection-of-smart-key-finders-reviewed/"><u>2024'S Top Selection of Smart Key Finders Reviewed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/facebook-cinematic-capture-tool/"><u>Facebook Cinematic Capture Tool</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-8-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone 8? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-14-pro-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 14 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-maximize-social-status-top-8-apps-for-gaining-more-fb-fans/"><u>In 2024, Maximize Social Status Top 8 Apps for Gaining More FB Fans</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-tecno-pop-7-pro-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Tecno Pop 7 Pro Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/sync-your-social-media-savvy-with-video-posting-tips-for-instagram-for-2024/"><u>Sync Your Social Media Savvy with Video Posting Tips for Instagram for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/voluntary-recall-alert-oil-leakage-and-fan-belt-sounds-on-enermax-revolution-df-2x-psu-units/"><u>Voluntary Recall Alert: Oil Leakage & Fan Belt Sounds on Enermax Revolution D.F. 2/X PSU Units</u></a></li>
+</ul></div>
+

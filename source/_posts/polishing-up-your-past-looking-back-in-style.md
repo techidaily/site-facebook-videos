@@ -1,7 +1,7 @@
 ---
 title: "\"Polishing Up Your Past  Looking Back in Style\""
-date: 2024-08-29T03:03:55.188Z
-updated: 2024-08-30T03:03:55.188Z
+date: 2024-10-02T17:07:40.917Z
+updated: 2024-10-04T16:39:00.231Z
 tags:
   - ai video
   - ai facebook
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
@@ -70,13 +77,34 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
 
@@ -97,14 +125,33 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fast-tracking-social-scanning-mastering-fb-profiles/"><u>[New] 2024 Approved Fast-Tracking Social Scanning Mastering FB Profiles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-novice-to-pro-building-an-insta-highlight-showcase/"><u>[New] From Novice to Pro Building an Insta Highlight Showcase</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-getting-started-with-your-youtube-channel-essentials-for-2024/"><u>[New] Getting Started with Your YouTube Channel – Essentials for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-effective-ways-share-facebook-videos-to-whatsapp/"><u>[New] In 2024, Effective Ways | Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-leading-phones-best-gopro-videos-editing-tools/"><u>[New] In 2024, Leading Phones' Best GoPro Videos Editing Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-optimize-your-social-presence-with-efficient-fb-covers/"><u>[New] In 2024, Optimize Your Social Presence with Efficient FB Covers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-cloud-storage-cost-breakdown-2024-edition/"><u>[New] The Ultimate Cloud Storage Cost Breakdown, 2024 Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-create-effective-fb-video-ads-with-free-kit/"><u>[Updated] 2024 Approved Create Effective FB Video Ads with FREE Kit</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-efficient-mp4-conversion-software-facebook-targeted/"><u>[Updated] 2024 Approved Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-exploring-entertainment-youtubes-integration-with-fb/"><u>[Updated] 2024 Approved Exploring Entertainment YouTube's Integration with FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-interactive-content-the-key-to-boosted-facebook-pages/"><u>[Updated] Interactive Content The Key to Boosted Facebook Pages</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719244514852-enhancing-your-windows-snipping-experience-with-proven-fixes/"><u>Enhancing Your Windows Snipping Experience with Proven Fixes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-insert-signature-in-xltx-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to insert signature in .xltx files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-a-comprehensive-guide-to-facebooks-full-screen-feature/"><u>In 2024, A Comprehensive Guide to Facebook's Full Screen Feature</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-oppo-a78-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-virtual-collaboration-share-your-screens-with-facebook-viewers/"><u>In 2024, Virtual Collaboration Share Your Screens with Facebook Viewers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/recording-your-screen-and-videos-on-android/"><u>Recording Your Screen & Videos on Android</u></a></li>
+</ul></div>
+

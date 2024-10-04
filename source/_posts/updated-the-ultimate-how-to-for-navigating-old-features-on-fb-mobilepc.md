@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for Navigating Old Features on FB, Mobile/PC\""
-date: 2024-09-26T18:37:41.070Z
-updated: 2024-09-29T04:41:30.281Z
+date: 2024-09-27T18:45:49.607Z
+updated: 2024-10-04T17:30:08.868Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -125,10 +125,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -168,16 +168,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-principles-of-clear-and-persuasive-messaging-for-social-media-ads/"><u>[New] 2024 Approved Principles of Clear & Persuasive Messaging for Social Media Ads</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-tech-for-effective-pc-image-capture-the-5-best/"><u>[New] Essential Tech for Effective PC Image Capture, The 5 Best</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-can-i-go-live-on-facebook/"><u>[New] In 2024, How Can I Go Live on Facebook?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-surpassing-a-million-youtube-subscribers/"><u>[New] The Ultimate Guide to Surpassing a Million YouTube Subscribers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solved-airdrop-not-working-quickly-and-easily/"><u>[SOLVED] AirDrop Not Working | Quickly & Easily</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[Updated] 2024 Approved Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-elevate-your-video-game-with-fb-upload-on-pc-and-android/"><u>[Updated] 2024 Approved Elevate Your Video Game with FB Upload on PC and Android</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-embedding-youtube-music-in-media-files/"><u>[Updated] Embedding YouTube Music in Media Files</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-find-the-disappeared-watch-tile/"><u>[Updated] Find the Disappeared Watch Tile</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/exploring-the-reasons-behind-blue-icons-in-facebooks-chat-communication-for-2024/"><u>Exploring the Reasons Behind Blue Icons in Facebook’s Chat Communication for 2024</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/nas-systems-unveiled-a-comprehensive-comparison-between-nas-and-san-for-optimal-data-management/"><u>NAS Systems Unveiled: A Comprehensive Comparison Between NAS and SAN for Optimal Data Management</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-strategies-for-eye-popping-fb-ad-videos/"><u>[New] 2024 Approved Strategies for Eye-Popping FB Ad Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-discreetly-see-fb-snapshots/"><u>[Updated] In 2024, Discreetly See FB Snapshots</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-sustaining-an-engaged-online-community-the-facebook-way-for-2024/"><u>[Updated] Sustaining an Engaged Online Community The Facebook Way for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-tech-tutorial-record-on-hangouts/"><u>2024 Approved Tech Tutorial Record on Hangouts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-nhl-19-delivering-an-addictive-internet-based-gaming-session/"><u>A Closer Look at NHL 19: Delivering an Addictive Internet-Based Gaming Session</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>A Detailed VPNa Fake GPS Location Free Review On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-update-installing-the-correct-docking-station-software-for-your-lenovo-thinkpad-with-usb-c-ports/"><u>Latest Update: Installing the Correct Docking Station Software for Your Lenovo ThinkPad with USB-C Ports</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-instructions-on-connecting-your-dualshock-controller/"><u>Step-by-Step Instructions on Connecting Your DualShock Controller</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unveiling-synergy-youtube-content-on-facebook-network-for-2024/"><u>Unveiling Synergy YouTube Content on Facebook Network for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Avoiding Social Media Isolation  Tweet on FB\""
-date: 2024-09-13T06:06:13.912Z
-updated: 2024-09-18T06:50:32.859Z
+date: 2024-09-29T18:40:15.652Z
+updated: 2024-10-04T17:05:29.299Z
 tags:
   - ai video
   - ai facebook
@@ -39,10 +39,24 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
@@ -54,6 +68,19 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -159,13 +186,6 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 * Team - $500/month/3 users/30 profiles
 * Enterprise - $1500/month/10 users/50 profiles
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Wrapping Up
 
  We believe this article has been a great source of information for you to decide on the best social media scheduling dashboard program and not just how to post Tweets on Facebook. While choosing one of them, make sure to keep an eye on the pricing and pick the best one that meets your business performance and pricing aspects to make a win-win deal.
@@ -173,16 +193,10 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -198,5 +212,20 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/frolics-in-film-an-analytical-review-on-vhs/"><u>'Frolics in Film' An Analytical Review on VHS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-most-viewed-vids-worldwide-roundup/"><u>[New] Most Viewed Vids Worldwide Roundup</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-comprehensive-list-of-top-6-facebook-video-downloader-apps/"><u>[Updated] Comprehensive List of Top 6 Facebook Video Downloader Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elite-edits-the-best-video-editors-ranked-for-2024/"><u>[Updated] Elite Edits The Best Video Editors Ranked for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-synopsis-gopro-slr4-sliver-camera-review/"><u>[Updated] In-Depth Synopsis GoPro SLR4 Sliver Camera Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-the-mystery-of-facebooks-status-video-downloads/"><u>[Updated] Unveiling the Mystery of Facebook's Status Video Downloads</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-artful-adaptation-digital-tools-that-turn-pics-into-prose-online/"><u>2024 Approved Artful Adaptation Digital Tools that Turn Pics Into Prose Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-download-friends-8-top-rated-free-fb-extractors/"><u>2024 Approved Download Friends 8 Top-Rated Free FB Extractors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-photo-artistry-unleashed-advanced-techniques-in-distorted-imagery/"><u>2024 Approved Photo Artistry Unleashed Advanced Techniques in Distorted Imagery</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-snatching-the-best-videos-from-facebook-feed/"><u>2024 Approved Snatching the Best Videos From Facebook Feed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-storage-space-used-daily-extended-video-size/"><u>2024 Approved Storage Space Used Daily Extended Video Size</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-v27-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo V27</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/clearer-brighter-videos-mastering-the-v22-technique-for-2024/"><u>Clearer, Brighter Videos Mastering the V2.2 Technique for 2024</u></a></li>
+</ul></div>
 

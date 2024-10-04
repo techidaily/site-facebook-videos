@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unraveling the Web of Social Media Illusions for Marketers"
-date: 2024-09-16T21:14:07.779Z
-updated: 2024-09-17T22:16:42.283Z
+date: 2024-10-03T17:06:18.832Z
+updated: 2024-10-04T18:31:44.985Z
 tags:
   - ai video
   - ai facebook
@@ -50,46 +50,39 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +92,21 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -114,5 +121,24 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-from-separation-to-symbiosis-logic-pro-x-audio-blending/"><u>[New] 2024 Approved From Separation To Symbiosis Logic Pro X Audio Blending</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-reclaim-your-social-space-after-a-hack/"><u>[New] 2024 Approved Reclaim Your Social Space After a Hack</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-incorinastrating-supplementary-imagery-in-projects/"><u>[New] Incorinastrating Supplementary Imagery in Projects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-techniques-to-broadcast-youtube-media-on-facebook-platforms-for-2024/"><u>[New] Techniques to Broadcast YouTube Media on Facebook Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-zero-price-path-to-enhanced-youtube-video-analysis/"><u>[New] Zero-Price Path to Enhanced YouTube Video Analysis</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-what-lurks-behind-the-curtain-of-missing-video-suggestions/"><u>[Updated] 2024 Approved What Lurks Behind the Curtain of Missing Video Suggestions?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-whats-fresh-with-facebook-latest-info-here/"><u>[Updated] 2024 Approved What’s Fresh with Facebook? Latest Info Here</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-crafting-connections-the-art-and-science-of-personalized-facebook-profiles/"><u>[Updated] In 2024, Crafting Connections The Art and Science of Personalized Facebook Profiles</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-digital-replay-engine-how-to-download-and-preserve-lives/"><u>[Updated] In 2024, Digital Replay Engine How to Download and Preserve Lives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-strategies-for-sustaining-viewer-interest-in-online-events/"><u>[Updated] Strategies for Sustaining Viewer Interest in Online Events</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-accessing-the-apex-high-definition-media-from-facebooks-realm/"><u>2024 Approved Accessing the Apex High-Definition Media From Facebook's Realm</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-20-dynamic-anime-openers-songs/"><u>2024 Approved Top 20 Dynamic Anime Openers' Songs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/bright-ideas-top-17-lighting-setups-for-youtubers-for-2024/"><u>Bright Ideas Top 17 Lighting Setups for YouTubers for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-14-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-13-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, iPhone 13 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-skyrocket-your-periscope-live-transmission-time/"><u>In 2024, Skyrocket Your Periscope Live Transmission Time</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/retro-social-media-revelations-mastering-outdated-fb-functionality/"><u>Retro Social Media Revelations Mastering Outdated FB Functionality</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Archive Hunt  Accessing Yesteryear's Facebook Stories for 2024\""
-date: 2024-09-13T17:13:18.367Z
-updated: 2024-09-17T23:09:00.191Z
+date: 2024-09-28T17:58:19.121Z
+updated: 2024-10-04T19:10:59.969Z
 tags:
   - ai video
   - ai facebook
@@ -81,6 +81,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
 If you are looking to see old Facebook stories shared by your friend then let me tell you that it is very difficult to do that. Your friend only would be able to see the old shared stories on Facebook by turning the archive option on.
@@ -92,6 +99,13 @@ The only chance is that if your friend has uploaded those stories on highlights 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -128,10 +142,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -151,10 +165,10 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -170,5 +184,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-online-facebook-downloader-mp3-save-fb-videos-as-mp3/"><u>[New] 2024 Approved Online Facebook Downloader MP3 | Save FB Videos As MP3</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-instant-insights-switching-up-your-facebook-profile-coverage-easily/"><u>[New] Instant Insights Switching Up Your Facebook Profile Coverage Easily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-record-the-essence-of-your-facebook-page-for-2024/"><u>[New] Record the Essence of Your FACEbook Page for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-100plus-best-examples-and-tips-to-craft-your-facebook-bios/"><u>[Updated] 100+ Best Examples & Tips to Craft Your Facebook Bios</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-complete-circular-camera-investigation/"><u>[Updated] Complete Circular Camera Investigation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-exhilarating-circuit-trials-selecting-the-top-5-titles-for-2024/"><u>[Updated] Exhilarating Circuit Trials Selecting the Top 5 Titles for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-efficient-techniques-for-unwrapping-backgrounds-in-affinity-photo/"><u>[Updated] In 2024, Efficient Techniques for Unwrapping Backgrounds in Affinity Photo</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seamless-transition-from-fb-videos-to-polished-mp3-tracks-for-2024/"><u>[Updated] Seamless Transition From FB Videos to Polished MP3 Tracks for 2024</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/12-effektive-methoden-zur-umwandlung-von-vob-dateien-in-hochwertiges-mp4-format-aktuelles-tippbuch-fur-2023/"><u>12 Effektive Methoden Zur Umwandlung Von VOB-Dateien in Hochwertiges MP4 Format - Aktuelles Tippbuch Für 2023</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-innovative-facebook-enhancement-using-letterbox-technique/"><u>2024 Approved Innovative Facebook Enhancement Using Letterbox Technique</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-audience-analysis-and-conversion-boosts/"><u>Harnessing the Power of Cookiebot for Advanced Audience Analysis & Conversion Boosts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-country-on-app-store-for-apple-iphone-14-plus-with-7-methods-drfone-by-drfone-ios/"><u>How To Change Country on App Store for Apple iPhone 14 Plus With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208040703-troubleshoot-and-repair-resolving-keyboard-problems-on-hp-computers-fast/"><u>Troubleshoot & Repair: Resolving Keyboard Problems on HP Computers Fast</u></a></li>
+</ul></div>
 

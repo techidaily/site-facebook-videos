@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Access  Facebook's Classic Stories for 2024\""
-date: 2024-09-27T21:24:11.417Z
-updated: 2024-09-28T23:16:01.830Z
+date: 2024-10-02T17:42:19.803Z
+updated: 2024-10-04T18:52:52.611Z
 tags:
   - ai video
   - ai facebook
@@ -53,16 +53,16 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -81,10 +81,10 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
@@ -103,13 +103,6 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
@@ -121,6 +114,13 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -148,13 +148,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -171,6 +164,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -186,16 +186,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-tricks-to-prevent-fb-video-advertisements-on-screen/"><u>[New] In 2024, Tricks to Prevent FB Video Advertisements on Screen</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-4-ways-how-to-download-videos-from-facebook-messenger-for-2024/"><u>[Updated] 4 Ways | How to Download Videos From Facebook Messenger for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>[Updated] Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhancing-engagement-creating-top-tier-fb-ad-videos/"><u>2024 Approved Enhancing Engagement Creating Top-Tier FB Ad Videos</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-and-unlimited-methods-for-converting-avi-files-to-mpeg-format-online/"><u>Easy and Unlimited Methods for Converting AVI Files to MPEG Format Online</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-newest-microsoft-bluetooth-drivers-for-windows-installation-guides-for-win-10-11-8-and-nul)7-users/"><u>Get the Newest Microsoft Bluetooth Drivers for Windows: Installation Guides for Win 10, 11, 8 & Nul>7 Users</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/resolving-connection-issues-successfully-linking-iphoto-with-iphone-series-x-8-7-and-6/"><u>Resolving Connection Issues: Successfully Linking iPhoto with iPhone Series X, 8, 7 and 6</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/speedsters-top-windows-photos-viewer/"><u>Speedster's Top Windows Photos Viewer</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-entrepreneurs-must-haves-essential-items-for-kickstarting-success/"><u>The Entrepreneur's Must-Haves Essential Items for Kickstarting Success</u></a></li>
-<li><a href="https://extra-information.techidaily.com/windows-best-free-podcast-tools/"><u>Window's Best Free Podcast Tools</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725284935737-winxvideo-ai/"><u>Winxvideo AI가 도와주세요 - 기술을 이용한 동시대 비디오 품질 향상</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-cut-out-facebook-video-2023-edition-mobile-friendly/"><u>[New] 2024 Approved Cut Out Facebook Video 2023 Edition, Mobile-Friendly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-step-by-step-share-video-to-instagram/"><u>[New] In 2024, Step-by-Step Share Video to Instagram</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-essential-ad-copy-frameworks-on-facebook/"><u>[New] Mastering Essential Ad Copy Frameworks on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-facebook-live-on-roku-platform/"><u>[Updated] 2024 Approved Step-by-Step Facebook Live on Roku Platform</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-high-resolution-spaces-for-online-viewers-for-2024/"><u>[Updated] High-Resolution Spaces for Online Viewers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-online-oasis-viewer/"><u>[Updated] In 2024, Online Oasis Viewer</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-rhythm-and-reels-posting-melodies-on-social-media/"><u>[Updated] Rhythm & Reels Posting Melodies on Social Media</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-your-way-through-vr-headset-selection-is-the-mobile-experience-more-attractive-than-tethered-tech/"><u>2024 Approved Navigating Your Way Through VR Headset Selection Is the Mobile Experience More Attractive Than Tethered Tech?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/enhancing-televisual-engagement-through-fb-live-for-2024/"><u>Enhancing Televisual Engagement Through FB Live for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-reels-the-new-era-of-social-media-showdown-with-tiktok/"><u>Facebook and Reels: The New Era of Social Media Showdown with TikTok</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-fb-video-downloads-on-linux-and-macos/"><u>In 2024, Mastering FB Video Downloads on Linux & macOS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-realme-10t-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Realme 10T 5G FRP Without Computer</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-photo-collage-using-iphoto/"><u>New How to Make a Photo Collage Using iPhoto?</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-what-is-ai-voice-over-wondershare-virbo-glossary/"><u>New What Is AI Voice Over? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-iphone-podcast-audio-enjoyment-for-2024/"><u>Step-by-Step IPhone Podcast Audio Enjoyment for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-eliminate-sims-4-slow-performance-on-your-computer/"><u>Ultimate Guide: Eliminate Sims 4 Slow Performance on Your Computer</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-cutting-edge-extracting-frames-from-films-on-windows-10/"><u>Visual Cutting Edge Extracting Frames From Films on Windows 10</u></a></li>
 </ul></div>
 

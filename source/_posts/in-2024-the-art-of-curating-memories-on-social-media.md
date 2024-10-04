@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Art of Curating Memories on Social Media"
-date: 2024-09-17T05:03:53.640Z
-updated: 2024-09-17T17:54:49.556Z
+date: 2024-09-28T16:09:09.891Z
+updated: 2024-10-04T17:05:50.838Z
 tags:
   - ai video
   - ai facebook
@@ -56,11 +56,25 @@ thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -70,11 +84,25 @@ thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -104,12 +132,26 @@ Follow @Liza Brown
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>[New] In 2024, Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-xbox-broadcasts-to-facebook-streams/"><u>[New] In 2024, Navigating Xbox Broadcasts to Facebook Streams</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-social-media-savvy-top-101-bio-tips-and-techniques-for-facebookers/"><u>[New] Social Media Savvy Top 101 Bio Tips & Techniques for Facebookers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-revisiting-old-photos-sending-them-as-snaps-on-snapchat/"><u>[Updated] 2024 Approved Revisiting Old Photos Sending Them as Snaps on Snapchat</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-classic-collection-finding-yesteryears-social-media-gems/"><u>[Updated] Classic Collection Finding Yesteryear's Social Media Gems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-connectivity-modifier-fb-stories-backup-tool-for-2024/"><u>[Updated] Connectivity Modifier FB Stories Backup Tool for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-optimize-viewership-with-proficient-timestamp-placement-on-youtube-for-2024/"><u>[Updated] Optimize Viewership with Proficient Timestamp Placement on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-tailored-walkthrough-watching-facebook-videos-seamlessly-on-apple-tv-for-2024/"><u>[Updated] Tailored Walkthrough Watching Facebook Videos Seamlessly on Apple TV for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-sound-savvy-with-facebook-downloader/"><u>2023 Sound Savvy with Facebook Downloader</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-full-spectrum-analysis-the-complete-logitech-4k-webcam-review/"><u>2024 Approved Full Spectrum Analysis The Complete Logitech 4K Webcam Review</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-quick-guide-to-alter-username-in-google-meet-sessions/"><u>2024 Approved Quick Guide to Alter Username in Google Meet Sessions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-unlock-the-full-potential-of-game-recordings-in-w11/"><u>2024 Approved Unlock the Full Potential of Game Recordings in W11</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/convert-mp4-audio-tracks-to-mp3-files-free-of-charge-in-windows-10/"><u>Convert MP4 Audio Tracks to MP3 Files Free of Charge in Windows 10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-skillfully-secure-and-save-gif-images-from-facebooks-domain-for-2024/"><u>How To Skillfully Secure and Save GIF Images From Facebook's Domain for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For Apple iPhone XR</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-videopilot-social-networks-to-files/"><u>In 2024, VideoPilot Social Networks to Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/instantly-connecting-fans-how-to-take-your-fb-live-further/"><u>Instantly Connecting Fans How to Take Your FB Live Further</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-psychological-advancements-isbms-innovative-cbt-approach/"><u>Pioneering Psychological Advancements: ISBM's Innovative CBT Approach</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transferring-your-dvd-content-from-disc-to-pc-on-various-windows-operating-systems/"><u>Step-by-Step Guide: Transferring Your DVD Content From Disc to PC on Various Windows Operating Systems</u></a></li>
+</ul></div>
 
