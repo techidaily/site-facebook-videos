@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Music to Facebook Story?"
-date: 2024-09-28T17:26:27.219Z
-updated: 2024-10-04T19:17:43.533Z
+date: 2024-10-04T18:38:20.376Z
+updated: 2024-10-09T17:02:50.572Z
 tags:
   - ai video
   - ai facebook
@@ -58,13 +58,6 @@ Click done on the right corner to post the music story. Your story will be avail
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
 Serene music on a video background adds feeling to the story and makes it more attractive. Music adds life to a boring video and keeps the viewer's attention on it for longer. It is easy to add music to your video or photo story directly in a few simple steps. Here is how to do it:
@@ -79,25 +72,11 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
 
@@ -115,18 +94,18 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **Step 4: Export edited file**
 
@@ -140,6 +119,20 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -150,13 +143,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -164,6 +150,13 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -174,6 +167,13 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 1. **Why don't I have music stickers on Facebook? And how to fix it?**
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -196,20 +196,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-revolutionizing-flight-indispensable-drone-extras-unveiled/"><u>[New] Revolutionizing Flight Indispensable Drone Extras Unveiled</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-snatch-facebook-videos-and-save-as-mp3s-for-2024/"><u>[New] Snatch Facebook Videos and Save as MP3s for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-fb-live-integration-with-cable-tv/"><u>[Updated] FB Live Integration with Cable TV</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-beginner-to-expert-a-comprehensive-guide-to-looping-your-favorite-vids-for-2024/"><u>[Updated] From Beginner to Expert A Comprehensive Guide to Looping Your Favorite Vids for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-history-on-your-flip-watching-old-fb-stories/"><u>[Updated] In 2024, History on Your Flip Watching Old FB Stories</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-burn-video-to-dvd-on-mac-2-ways/"><u>2024 Approved Burn Video to DVD on Mac [2 Ways]</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-collective-chronicle-converter/"><u>2024 Approved Collective Chronicle Converter</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-steps-to-utilizing-azures-speech-to-text-service-effectively/"><u>2024 Approved Essential Steps to Utilizing Azure's Speech-to-Text Service Effectively</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-experience-the-next-wave-watching-fb-live-on-roku/"><u>2024 Approved Experience the Next Wave Watching FB Live on Roku</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-heartbreak-strategies-for-retaining-purchases-on-facebook/"><u>Avoid Heartbreak: Strategies for Retaining Purchases on Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/avoiding-fakes-instagram-selfie-wisdom/"><u>Avoiding Fakes Instagram Selfie Wisdom</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-how-to-find-and-download-hp-spectre-x360s-compatible-windows-drivers/"><u>Step-by-Step: How to Find and Download HP Spectre X360's Compatible Windows Drivers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/tactics-for-success-amidst-facebooks-algorithm-evolution-for-2024/"><u>Tactics for Success Amidst Facebook’s Algorithm Evolution for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-vivo-y77t-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Vivo Y77t to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/vidmessenger-extractor-plus/"><u>VidMessenger Extractor Plus</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>[New] In 2024, A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-resolving-poor-image-quality-on-facebook-live-feeds/"><u>[New] Resolving Poor Image Quality on Facebook Live Feeds</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fix-stuck-instagram-story-pins/"><u>[Updated] 2024 Approved Fix Stuck Instagram Story Pins</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-how-to-download-facebook-story-5-methods/"><u>[Updated] 2024 Approved How to Download Facebook Story [5 Methods]</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lightning-methods-ios-media-on-windows/"><u>[Updated] Lightning Methods IOS Media on Windows</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-soundscapes-spectrum-music-finder-service/"><u>2024 Approved Soundscapes Spectrum Music Finder Service</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-trimming-tactics-for-time-strapped-youtubers/"><u>2024 Approved Trimming Tactics for Time-Strapped YouTubers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/deciphering-triller-an-alternative-that-defies-conventional-video-platforms/"><u>Deciphering Triller An Alternative That Defies Conventional Video Platforms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capturing-screen-content-on-huawei-mate-10-20-and-p-series-phones-via-built-in-recorders/"><u>In 2024, Capturing Screen Content on Huawei Mate 10, 20 & P-Series Phones via Built-In Recorders</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/professional-grade-program-elimination-with-revo-uninstaller-pro-latest-update/"><u>Professional-Grade Program Elimination with Revo Uninstaller Pro - Latest Update!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-fluency-with-these-top-9-free-websites-for-learning-any-language/"><u>Unlock Fluency with These Top 9 Free Websites for Learning Any Language</u></a></li>
 </ul></div>
 

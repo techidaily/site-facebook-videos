@@ -1,7 +1,7 @@
 ---
 title: "Infusing Instant Storytelling With Musical Essence"
-date: 2024-09-27T18:35:17.492Z
-updated: 2024-10-04T18:12:20.827Z
+date: 2024-10-06T16:55:59.202Z
+updated: 2024-10-09T18:50:22.388Z
 tags:
   - ai video
   - ai facebook
@@ -58,6 +58,13 @@ Click done on the right corner to post the music story. Your story will be avail
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
 Serene music on a video background adds feeling to the story and makes it more attractive. Music adds life to a boring video and keeps the viewer's attention on it for longer. It is easy to add music to your video or photo story directly in a few simple steps. Here is how to do it:
@@ -73,10 +80,10 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step 3: Add music**   **and**   **post**
@@ -86,16 +93,16 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -120,13 +127,6 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -138,13 +138,6 @@ You can upload the edited file on your Facebook stories by clicking on create st
 _For more details about editing videos on Filmora, you can check [How to Edit Videos](https://tools.techidaily.com/wondershare/filmora/download/)._
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
@@ -164,6 +157,20 @@ A user can also select elements from the given options. You can add a poll, emoj
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About Adding Music to Facebook Story
 
 1. **Can you add music to Facebook Story from a computer?**
@@ -180,13 +187,6 @@ Facebook story feature is one of the best options that one can use to gain visib
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -202,18 +202,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-smooth-video-transfer-facebook-integration-with-whatsapp/"><u>[New] In 2024, Smooth Video Transfer Facebook Integration with WhatsApp</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-social-media-savvy-how-to-successfully-post-videos-on-fb/"><u>[New] In 2024, Social Media Savvy How to Successfully Post Videos on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unleashing-potential-professional-tips-to-transform-your-social-media-presence/"><u>[Updated] In 2024, Unleashing Potential Professional Tips to Transform Your Social Media Presence</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unraveling-the-secrets-of-viral-content-creation/"><u>[Updated] In 2024, Unraveling the Secrets of Viral Content Creation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-maximizing-your-reach-live-360-videos-on-facebook/"><u>[Updated] Maximizing Your Reach Live 360 Videos on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-transforming-vision-into-action-building-a-successful-fb-reel-channel/"><u>[Updated] Transforming Vision Into Action Building a Successful FB Reel Channel</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-driver-update-for-brother-hl-l23er-full-version/"><u>Get the Latest Driver Update for Brother HL-L23er: Full Version</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-simple-guide-turning-favorite-tiktok-beats-into-cellphone-signals/"><u>In 2024, Simple Guide Turning Favorite TikTok Beats Into Cellphone Signals</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-streamline-social-tweet-to-fb-guide/"><u>In 2024, Streamline Social Tweet to FB Guide</u></a></li>
-<li><a href="https://program-issues.techidaily.com/optimizing-gaming-experience-tackling-reduced-frames-per-second-in-farming-simulator-22-pc/"><u>Optimizing Gaming Experience: Tackling Reduced Frames per Second in Farming Simulator 22 (PC)</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unleash-creative-writing-potential-through-advanced-ai-tools-by-hix-and-gpt-4/"><u>Unleash Creative Writing Potential Through Advanced AI Tools by HIX & GPT-4</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-perplexity-ai-understanding-and-utilizing-the-trending-conversation-bot-efficiently/"><u>Unveiling Perplexity AI: Understanding and Utilizing the Trending Conversation Bot Efficiently</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-convenience-at-your-fingertips-enable-autoplay-of-youtube-videos-on-fb/"><u>[New] 2024 Approved Convenience at Your Fingertips Enable Autoplay of YouTube Videos on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-maximizing-profile-video-attraction-strategies/"><u>[New] 2024 Approved Maximizing Profile Video Attraction Strategies</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-bring-your-sims-4-gameplay-to-life-on-screen-for-2024/"><u>[New] Bring Your Sims 4 Gameplay to Life on Screen for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-roku-experience-for-facebook-live-broadcasts-for-2024/"><u>[New] Enhancing Roku Experience for Facebook Live Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-videos-unleashed-with-new-mobile-app/"><u>[New] FB Videos Unleashed with New Mobile App</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-seamless-media-consumption-enable-automatic-playback-of-youtube-content-on-fb/"><u>[New] In 2024, Seamless Media Consumption Enable Automatic Playback of YouTube Content on FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-potential-top-free-video-opener-hacks/"><u>[New] Unlock Potential Top Free Video Opener Hacks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-snippet-grabber-fb-to-mp3-for-2024/"><u>[Updated] Snippet Grabber FB to Mp3 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-essential-iphoneside-by-side-guide-for-fb-sharing/"><u>[Updated] The Essential iPhoneside by Side Guide for FB Sharing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-secure-shots-easy-methods-for-masking-facial-details/"><u>2024 Approved Secure Shots Easy Methods for Masking Facial Details</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-top-five-new-facebook-features-you-should-know/"><u>In 2024, Top Five New Facebook Features You Should Know</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-google-voice-calls-the-ultimate-guide/"><u>Mastering Google Voice Calls The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-5-methods-capturing-facebook-stories-on-devices/"><u>Top 5 Methods Capturing Facebook Stories on Devices</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-5-upcoming-enhancements-set-to-revolutionize-your-google-play-experience/"><u>Top 5 Upcoming Enhancements Set to Revolutionize Your Google Play Experience</u></a></li>
+<li><a href="https://win-dash.techidaily.com/windows-compatible-hp-officejet-pro-8620-driver-downloads-and-updates/"><u>Windows Compatible HP OfficeJet Pro 8620 Driver Downloads & Updates</u></a></li>
 </ul></div>
 

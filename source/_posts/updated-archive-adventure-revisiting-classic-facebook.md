@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Archive Adventure  Revisiting Classic Facebook\""
-date: 2024-08-29T02:58:25.650Z
-updated: 2024-08-30T02:58:25.650Z
+date: 2024-10-03T00:38:17.073Z
+updated: 2024-10-09T20:33:10.807Z
 tags:
   - ai video
   - ai facebook
@@ -61,6 +61,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -73,13 +80,17 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -92,16 +103,10 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -111,8 +116,12 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Features:**
 
 4K Resolution Editing Support
@@ -139,9 +148,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -159,15 +165,17 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -175,3 +183,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2023s-leading-cost-free-fb-picture-and-video-developer-tools/"><u>[New] 2023'S Leading, Cost-Free FB Picture and Video Developer Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-dissecting-the-emerging-trends-in-facebook-short-videos-for-2024/"><u>[New] Dissecting the Emerging Trends in Facebook Short Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-11-cheap-vlogging-cameras/"><u>[New] In 2024, Top 11 Cheap Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-the-exchange-of-fb-vids-on-whatsapp/"><u>[New] Mastering the Exchange of FB Vids on WhatsApp</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[Updated] 2024 Approved Directing Content Destination From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-join-the-social-scene-facebook-live-streams-on-roku-tv/"><u>[Updated] 2024 Approved Join The Social Scene Facebook Live Streams on Roku TV</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-retrospective-facebook-viewing-techniques-for-laptops-and-phones/"><u>[Updated] 2024 Approved Retrospective Facebook Viewing Techniques for Laptops and Phones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-solo-scrutiny-an-examination-of-3dr-printers/"><u>[Updated] 2024 Approved Solo Scrutiny An Examination of '3DR' Printers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-facebook-lives-dual-display/"><u>[Updated] 2024 Approved Unveiling the Secrets of Facebook Live's Dual Display</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-becoming-a-streaming-pro-iphone-and-android-strategies-for-2024/"><u>[Updated] Becoming a Streaming Pro IPhone & Android Strategies for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-no-cost-conversion-elevate-your-facebook-videos-to-mp4-and-hd-quality/"><u>[Updated] In 2024, No-Cost Conversion Elevate Your Facebook Videos to MP4 & HD Quality</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-social-media-streamlining-iphoneandroid-tips-for-effective-feeds/"><u>[Updated] Social Media Streamlining IPhone/Android Tips for Effective Feeds</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/choosing-the-right-horizon-smart-strategies-for-buying-an-impressive-4k-display/"><u>Choosing the Right Horizon Smart Strategies for Buying an Impressive 4K Display</u></a></li>
+<li><a href="https://windows11.techidaily.com/command-your-computer-mastery-of-windows-through-alomware/"><u>Command Your Computer: Mastery of Windows Through AlomWare</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-efficiency-enhancement-codes/"><u>Elite Efficiency Enhancement Codes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-v30-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo V30</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-free-dvd-ripping-software-for-windows-10-and-11-complete-downloads-revealed/"><u>Top Free DVD Ripping Software for Windows 10 & 11: Complete Downloads Revealed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-productivity-potential-top-strategies-using-chatgpt-for-time-management/"><u>Unlock Productivity Potential: Top Strategies Using ChatGPT for Time Management</u></a></li>
+</ul></div>
+

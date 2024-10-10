@@ -1,7 +1,7 @@
 ---
 title: "[New] Maximize Story Exposure with Linked FB Profile"
-date: 2024-10-02T17:18:01.751Z
-updated: 2024-10-04T16:50:18.957Z
+date: 2024-10-07T16:56:22.932Z
+updated: 2024-10-09T16:07:48.669Z
 tags:
   - ai video
   - ai facebook
@@ -51,6 +51,13 @@ Note: Before we share the steps that you need to follow, please keep in mind tha
 
 ![create Facebook Page story](https://images.wondershare.com/filmora/article-images/create-story-on-facebook-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** You need to type the website name and, on the top, you will see the link icon. Once you are ready with the website name, click on the link icon. Now can choose some buttons based on what kind of link you have shared. For example, shop now, book now, call now, and so on.
 
 ![add link to Facebook Page story](https://images.wondershare.com/filmora/article-images/add-link-to-facebook-story.jpg)
@@ -67,18 +74,24 @@ Facebook acquired WhatsApp in February 2014, and since both the apps are connect
 
 ![add WhatsApp status](https://images.wondershare.com/filmora/article-images/add-whatsapp-status.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** On your status page, you can add the link you want people to see. Now, share the link. Once done, right below your My Status, you will see an option “Share to Facebook Story.” To cross-post your WhatsApp status with the link, please click on “Share to Facebook Story.”
 
 ![share WhatsApp status to facebook story](https://images.wondershare.com/filmora/article-images/share-whatsapp-status-to-facebook-story.jpg)
 
 **Step 4:** You will be redirected to Facebook and asked if you want to share your WhatsApp status as a Facebook story? Click on the share icon, and that’s it.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Add YouTube Video Link on Facebook Story?
 
@@ -88,25 +101,11 @@ If you have found an interesting video on YouTube or want to promote your YouTub
 
 ![share youtube video to facebook  ](https://images.wondershare.com/filmora/article-images/youtube-share-option-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2:** Click on the Share button. You will see the embedded link and other options. Next, you need to click on the Facebook option.
 
 You will be redirected to the Facebook app. There you will be asked if you want to share it as News Feed or Your Story. You need to click on the Story option, and in this way you will share the YouTube video to Facebook Story.
 
 ![share youtube video to facebook  story ](https://images.wondershare.com/filmora/article-images/share-youtube-video-link-to-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And you will see the Story with YouTube video link at the top of your Story section.
 
@@ -120,26 +119,33 @@ Facebook stories offer another feature, which is known as the Swipe Up Link. On 
 
 ![add swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-swipe-up-button-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** On your story page, you see a link icon. Click on that, and you will be able to add the link you want to add to the story. Choose any of the buttons, and the link will now be ready.
 
 ![add link to swipe up button to Facebook story](https://images.wondershare.com/filmora/article-images/add-link-to-swipe-up-button-facebook-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Please note that the swipe option will be visible to your audience only after you have added the link.
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Social Media Video Maker and Editor
@@ -160,10 +166,10 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -187,20 +193,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-expert-picks-the-10-most-affordable-video-conferencing-for-ios-and-android/"><u>[New] 2024 Approved Expert Picks The 10 Most Affordable Video Conferencing for iOS & Android</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-watch-facebook-live-on-roku-in-2024/"><u>[New] How to Watch Facebook Live on Roku, In 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-advanced-techniques-in-itunes-video-saving/"><u>[New] In 2024, Advanced Techniques in iTunes Video Saving</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-firefoxs-video-downloader-boost-optimal-extensions-and-plugins-for-facebook-content/"><u>[New] In 2024, Firefox's Video Downloader Boost Optimal Extensions & Plugins for Facebook Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-live-engagement-on-fb-how-to-get-started/"><u>[New] Live Engagement on FB How to Get Started</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-rapidly-discover-friends/"><u>[Updated] The Ultimate Guide to Rapidly Discover Friends</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/extracting-and-saving-high-quality-audio-from-mkv-files-as-m4a-format-quick-tutorial/"><u>Extracting and Saving High-Quality Audio From MKV Files as M4A Format | Quick Tutorial</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebook-video-extractor-mp3-format-support/"><u>Facebook Video Extractor – MP3 Format Support</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/finding-free-spotify-like-music-streaming-services-with-no-cost-a-complete-guide/"><u>Finding Free Spotify-Like Music Streaming Services with No Cost: A Complete Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-follower-verification-techniques-for-professionals/"><u>In 2024, Facebook Follower Verification Techniques for Professionals</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-g22-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia G22?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/prepping-for-progress-a-technological-lifesaver/"><u>Prepping for Progress A Technological Lifesaver</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-best-165hz-monitors-for-gaming/"><u>The Best 165Hz Monitors for Gaming</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-essentials-for-becoming-a-top-notch-interviewer/"><u>The Essentials for Becoming a Top-Notch Interviewer</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/ultimate-6-film-repository-on-fb/"><u>Ultimate 6 Film Repository on Fb</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-setting-up-your-vlog-fb-preferred-dimensions/"><u>[New] 2024 Approved Setting Up Your Vlog FB Preferred Dimensions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-expertly-select-the-fastest-5-chrome-plugins-for-fb-video-downloads-for-2024/"><u>[New] Expertly Select The Fastest 5 Chrome Plugins for FB Video Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-acceleratedecelerate-your-youtube-videos-a-step-by-step-guide/"><u>[New] In 2024, Accelerate/Decelerate Your YouTube Videos A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-iphone-hdr-a-professionals-secret-weapon/"><u>[New] IPhone HDR A Professional's Secret Weapon</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-reach-broader-audiences-link-your-twitch-live-streams-to-facebook/"><u>[New] Reach Broader Audiences Link Your Twitch Live Streams to Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-x-recorder-download-for-pc-for-2024/"><u>[New] X-Recorder Download for PC for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-how-to-capture-and-stream-in-stunning-hd-fb/"><u>[Updated] 2024 Approved How to Capture and Stream in Stunning HD (FB)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-high-definition-hd-youtube-and-fb-videos/"><u>[Updated] In 2024, The Ultimate Guide to High Definition (HD) YouTube & FB Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-navigating-legal-aspects-of-recording-whatsapp-talks/"><u>[Updated] Navigating Legal Aspects of Recording WhatsApp Talks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pioneering-practices-in-multichannel-video-distribution-fbwhatsapp-for-2024/"><u>[Updated] Pioneering Practices in Multichannel Video Distribution (FB/WhatsApp) for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-next-gen-clarity-in-depth-review-of-best-8k-monitors/"><u>2024 Approved Next-Gen Clarity In-Depth Review of Best 8K Monitors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/hitting-your-targets-with-these-8-social-media-planners-for-2024/"><u>Hitting Your Targets with These 8 Social Media Planners for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-do-i-access-the-full-range-of-shared-media-on-messenger-in-2024/"><u>How Do I Access the Full Range of Shared Media on Messenger, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-elevate-your-profiles-visual-appeal/"><u>In 2024, Elevate Your Profile's Visual Appeal</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-se-2020-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone SE (2020) With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-iosandroid-apps-for-photo-writing/"><u>In 2024, Innovative iOS/Android Apps for Photo-Writing</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-ultimate-solution-to-persistent-overwatch-game-freezes-and-how-to-implement-them/"><u>The Ultimate Solution to Persistent Overwatch Game Freezes and How to Implement Them</u></a></li>
 </ul></div>
 

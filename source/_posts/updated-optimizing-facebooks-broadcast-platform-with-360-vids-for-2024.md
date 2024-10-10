@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimizing Facebook's Broadcast Platform with 360 Vids for 2024"
-date: 2024-08-29T02:58:28.703Z
-updated: 2024-08-30T02:58:28.703Z
+date: 2024-10-08T22:19:00.430Z
+updated: 2024-10-10T03:07:44.626Z
 tags:
   - ai video
   - ai facebook
@@ -34,12 +34,12 @@ thumbnail: https://thmb.techidaily.com/a69a15798572265a2574284260281ddf651b6e2ed
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specification for Live 360
 
  Those who are searching for the tech specs related to live 360 degree feature must go through these points:
@@ -51,9 +51,6 @@ No advertising on the website.
 * Supported video frame rate is 30fps only.
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How to Go Live 360?
 
  You can use these two tricks to go live 360:
@@ -62,9 +59,6 @@ No advertising on the website.
 
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Go Live 360 with Instagram 360?
 
  Step 1: First of all connect your Insta 360 camera and move to its home screen.
@@ -90,8 +84,18 @@ No advertising on the website.
  Step 10: Delete your video from timeline whenever you want.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to go Live 360 from Facebook Website Flow?
 
  Step 1: Simply visit fb.com/live/create from your device.
@@ -108,13 +112,17 @@ No advertising on the website.
 
  Step 7: Go live 360 on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How does Live 360 looks like?
 
  Live 360 degree videos on facebok have same impact as that of other commonly uploaded 360 video. Users can easily tilt or pan their smartphones to enjoy different viewing angles. Broadcasters, that are using live 360 as their cameras native app will be able to enjoy live reactions and comments from viewers on screen but the effect is same as like normal live streams. Once 360 degree videos are available on Facebook live, viewers can easily download them. If you are using desktop to watch them then simply go to your favourite video post in your group, page or profile. Then expand its view and you will find three dot type icon on your screen. Hit this icon and soon you will be able to download your video to your device. It will get saved as like an equirectangle flattened image.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Tips for Live 360
 
 * It is important to connect via strong internet connection.
@@ -127,15 +135,17 @@ No advertising on the website.
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -143,3 +153,27 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-expert-video-downloader-kit-ideal-for-firefox-browser-users/"><u>[New] Expert Video Downloader Kit Ideal for FireFox Browser Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-high-fidelity-mp4-streamer-to-facebook-for-2024/"><u>[New] High-Fidelity MP4 Streamer to Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-scan-for-collective-shared-content-on-messenger/"><u>[New] In 2024, Scan for Collective Shared Content on Messenger</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>[Updated] 2024 Approved Strengthen Your Content Identity Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-branded-content-collaborations-on-streaming-services/"><u>[Updated] Branded Content Collaborations on Streaming Services</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-share-a-world-view-iphone-360-film-techniques/"><u>[Updated] In 2024, Share a World View IPhone 360 Film Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-solutions-for-non-deliverable-facebook-messenger-videos-on-androidios/"><u>[Updated] In 2024, Solutions for Non-Deliverable Facebook Messenger Videos on Android/iOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-master-your-most-watched-videos-on-fb-today-and-beyond-2023-for-2024/"><u>[Updated] Master Your Most-Watched Videos on FB Today & Beyond 2023 for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premium-audio-exploration-top-gpodc-picks/"><u>[Updated] Premium Audio Exploration Top GPodC Picks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-securing-social-streaming-download-strategies-unveiled/"><u>[Updated] Securing Social Streaming Download Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-launching-a-successful-vlog-a-guide-to-profitability/"><u>2024 Approved Launching a Successful Vlog A Guide to Profitability</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-social-integration-share-from-twitch-to-fb/"><u>2024 Approved Seamless Social Integration Share From Twitch to FB</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-filmmakers-handbook-building-effective-luts/"><u>A Filmmaker's Handbook Building Effective LUTs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/deciphering-the-meanings-behind-facebooks-status-symbols-a-closer-look-at-the-blues-for-2024/"><u>Deciphering the Meanings Behind Facebook's Status Symbols A Closer Look at the Blues for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/getting-your-samsung-soundbar-back-on-track-a-step-by-step-guide/"><u>Getting Your Samsung Soundbar Back on Track: A Step-by-Step Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-it-when-a-roku-tv-wont-turn-on/"><u>How to Fix It When a Roku TV Won't Turn On</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-lava-blaze-2-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Lava Blaze 2 Pro Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-initiating-into-the-world-of-facebook-video-content-creation/"><u>In 2024, Initiating Into the World of Facebook Video Content Creation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-server-hiccups-in-ms-store-win-1011/"><u>Navigating Through Server Hiccups in MS Store, Win 10/11</u></a></li>
+</ul></div>
+
