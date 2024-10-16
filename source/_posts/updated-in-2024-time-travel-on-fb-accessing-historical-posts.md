@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Time Travel on FB  Accessing Historical Posts\""
-date: 2024-10-03T01:14:22.644Z
-updated: 2024-10-09T22:49:01.393Z
+date: 2024-10-13T21:03:30.150Z
+updated: 2024-10-16T07:46:05.513Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,13 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -53,20 +60,27 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -84,6 +98,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -96,23 +117,9 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -121,13 +128,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -186,16 +186,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-sparkling-ideas-creating-engaging-fb-ad-videos/"><u>[New] Sparkling Ideas Creating Engaging FB Ad Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-most-innovative-15-android-virtualization-apps/"><u>[Updated] In 2024, The Most Innovative 15 Android Virtualization Apps</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-the-complete-blueprint-to-infuse-life-with-emojis-in-your-discord-statuses/"><u>[Updated] The Complete Blueprint to Infuse Life with Emojis in Your Discord Statuses</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-make-your-mark-active-living-on-facebook/"><u>2024 Approved How to Make Your Mark Active Living on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/a-comprehensive-guide-to-successful-fb-cover-video-strategies-for-2024/"><u>A Comprehensive Guide to Successful FB Cover Video Strategies for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comprehensive-introduction-to-hybrid-education-a-complete-guide-to-implementing-blended-learning/"><u>Comprehensive Introduction to Hybrid Education: A Complete Guide to Implementing Blended Learning</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/get-your-free-h265-hevc-encoder-to-enhance-4k-and-8k-video-experience/"><u>Get Your Free H.265 HEVC Encoder to Enhance 4K & 8K Video Experience</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/harnessing-the-power-of-ai-with-chatgpt-on-your-mac-computer/"><u>Harnessing the Power of AI with ChatGPT on Your Mac Computer</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-make-money-with-facebook-a-practical-roadmap/"><u>In 2024, Make Money with Facebook A Practical Roadmap</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-and-solution-fixing-user-profile-settings-cause-driver-failure/"><u>Troubleshooting and Solution: Fixing 'User Profile Settings Cause Driver Failure'</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-masterclass-in-live-streaming-integrating-dslr-into-your-digital-space/"><u>[New] 2024 Approved Masterclass in Live Streaming Integrating DSLR Into Your Digital Space</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-partnered-filmmaking-expand-your-channels-reach/"><u>[New] 2024 Approved Partnered Filmmaking Expand Your Channel's Reach</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-boost-engagement-syncing-youtube-and-facebook-for-2024/"><u>[New] Boost Engagement Syncing YouTube and Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-to-check-what-youve-liked-on-facebook-lately-for-2024/"><u>[New] How To Check What You've Liked on Facebook Lately for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fb-livestream-success-on-television-four-pathways/"><u>[New] In 2024, FB Livestream Success on Television Four Pathways</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-seamless-strategies-downloading-graphics-images-from-facebook-and-beyond-for-2024/"><u>[New] Seamless Strategies Downloading Graphics Images From Facebook & Beyond for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-as-a-learning-tool-insider-advice-for-teachers-for-2024/"><u>[New] YouTube as a Learning Tool Insider Advice for Teachers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-proper-techniques-for-streaming-from-gopro-camera-to-social-networks/"><u>[Updated] 2024 Approved Proper Techniques for Streaming From GoPro Camera to Social Networks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-digital-storytelling-unlocked-creating-memorable-slideshows-on-fb/"><u>[Updated] Digital Storytelling Unlocked Creating Memorable Slideshows on FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-capturing-every-move-in-games-with-fbx/"><u>[Updated] In 2024, Capturing Every Move in Games with FBX</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-3d-luts-complete-guide/"><u>[Updated] Mastering 3D LUTs Complete Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722970995233-get-the-latest-amd-radeon-rx-480-driver-updates-free-downloads/"><u>Get the Latest AMD Radeon RX 480 Driver Updates - Free Downloads</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oneplus-12r-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your OnePlus 12R</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-dominance-plan-studio-protocol-vs-beta-update/"><u>In 2024, Channel Dominance Plan Studio Protocol Vs. Beta Update</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-amd-rx-5700-xt-drivers-on-your-pc-compatible-with-recent-windows-os-versions/"><u>Install AMD RX 5700 XT Drivers on Your PC: Compatible with Recent Windows OS Versions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-viewing-and-modifying-a-pages-file-on-desktop-pcs/"><u>Ultimate Guide: Viewing and Modifying a Pages File on Desktop PCs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tips to Transform Your Videos Into Social Media Stars\""
-date: 2024-10-04T00:13:02.675Z
-updated: 2024-10-10T01:25:01.582Z
+date: 2024-10-09T05:37:48.136Z
+updated: 2024-10-15T23:31:18.381Z
 tags:
   - ai video
   - ai facebook
@@ -76,10 +76,10 @@ First of all, you need to install the software on your Windows/Mac computer and 
 ![tupi](https://images.wondershare.com/filmora/article-images/import-video-filmora.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2: Crop the video**
@@ -87,6 +87,13 @@ First of all, you need to install the software on your Windows/Mac computer and 
 You got to right click on the selected video and then select ‘Crop & Zoom’ from the dropdown list.
 
 ![crop and zoom](https://images.wondershare.com/filmora/article-images/crop-and-zoom.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Open the edit panel**
 
@@ -100,20 +107,13 @@ Here, you need to press ‘OK’ and export the file to your computer. Later you
 
 ![export video](https://images.wondershare.com/filmora/article-images/export-video-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to create square videos by Adobe Premiere
@@ -128,6 +128,13 @@ First you need to import video to Premiere Pro. Go to File > Import, and then se
 
 ![import video premiere](https://images.wondershare.com/filmora/article-images/import-video-premiere.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2：Sequence settings**
 
 Click Sequence in the top, and then select Sequence Settings. First to seclect ARRI Cinema to activiate the settings. In the video area, adjust the frame size. You need to keep horizontal and vertical number the same in order to create square video. Here, we adjsut it to 600\. Leave the rest options the same. Click OK.
@@ -139,10 +146,10 @@ Click Sequence in the top, and then select Sequence Settings. First to seclect A
 Export your video once the changes are satisfactory and enjoy!
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bottom Line
@@ -152,13 +159,6 @@ From the above article, we are sure that square videos on Facebook are significa
 **You may also like:** [How to Schedule a Post on Your Facebook: The Ultimate Guide >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -177,20 +177,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-content-step-by-step-guide-to-youtube-video-editing/"><u>[New] 2024 Approved Crafting Content Step by Step Guide to YouTube Video Editing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-discover-facebooks-latest-transformations/"><u>[New] Discover Facebook's Latest Transformations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elite-mp4-streamer-system-for-fb/"><u>[New] In 2024, Elite MP4 Streamer System for FB</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-transforming-youtube-viewing-how-to-efficiently-insert-timestamps/"><u>[New] In 2024, Transforming YouTube Viewing How to Efficiently Insert Timestamps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-10-facebook-video-players-for-2024/"><u>[New] Top 10 Facebook Video Players for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-ultimate-iphone-photo-watermarking-sites-list/"><u>[New] Ultimate iPhone Photo Watermarking Sites List</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-videodownloading-made-simple-the-best-5-free-apps/"><u>[New] Videodownloading Made Simple The Best 5 Free Apps</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-perfect-crossfading-techniques-using-audacity/"><u>[Updated] 2024 Approved Perfect Crossfading Techniques Using Audacity</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-achieve-hd-video-quality-on-fb-live-for-2024/"><u>[Updated] Achieve HD Video Quality on FB Live for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723011623306-amazon-prime-video-malfunction-heres-how-you-can-fix-it/"><u>Amazon Prime Video Malfunction? Here's How You Can Fix It</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/premium-convert-mp4-to-facebook-media-for-2024/"><u>Premium Convert MP4 to Facebook Media for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-solution-for-paradox-launcher-malfunctions-and-errors/"><u>Step-by-Step Solution for Paradox Launcher Malfunctions and Errors</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/transforming-your-profile-video-allure-for-2024/"><u>Transforming Your Profile Video Allure for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/youtubes-yummy-1-8-video-selection/"><u>YouTube's Yummy #1-#8 Video Selection</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>[New] 2024 Approved Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-instructions-on-changing-fb-page-backdrop/"><u>[New] 2024 Approved Instructions on Changing FB Page Backdrop</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-iphone-and-android-unite-for-music-on-your-fb-profile/"><u>[New] 2024 Approved IPhone & Android Unite for Music on Your FB Profile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-essential-tutorial-for-facebook-live-on-roku-tv/"><u>[New] 2024 Approved The Essential Tutorial for Facebook Live on Roku TV</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-art-of-captivating-viewers-instavideo-marketing-essentials/"><u>[New] In 2024, The Art of Captivating Viewers InstaVideo Marketing Essentials</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-premium-playlist-manager-for-android-users/"><u>[New] Premium Playlist Manager for Android Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-implementing-effective-transitions-on-inshot/"><u>[New] Step-by-Step Implementing Effective Transitions on Inshot</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-recent-views-uncovered-for-you/"><u>[Updated] Facebook’s Recent Views Uncovered for You</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-revolutionizing-videography-with-the-impressive-nikon-j5-for-2024/"><u>[Updated] Revolutionizing Videography with the Impressive Nikon J5 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-ipad-360-video-creation-for-facebook-for-2024/"><u>[Updated] The Ultimate iPad 360 Video Creation for Facebook for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revamping-images-with-advanced-features/"><u>2024 Approved Revamping Images with Advanced Features</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-restoring-functionality-to-the-steelseries-arctis-headset-microphone/"><u>Expert Advice: Restoring Functionality to the SteelSeries Arctis Headset Microphone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-from-capture-to-sharing-fb-video-uploads-via-pc-plus-android/"><u>In 2024, From Capture to Sharing FB Video Uploads via PC + Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-ultimate-collection-highest-ranking-8-4k-players/"><u>In 2024, Ultimate Collection Highest Ranking 8 4K Players</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionize-your-home-network-with-netgear-nighthawk-x6-wireless-mesh-extender-a-complete-review/"><u>Revolutionize Your Home Network with Netgear Nighthawk X6 Wireless Mesh Extender: A Complete Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-3-step-approach-to-effective-copywriting-on-facebook-for-2024/"><u>The 3-Step Approach to Effective Copywriting on Facebook for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/web-mpeg-gif-movavi/"><u>Web용 MPEG GIF 영상 제자리 대조, 무료 구현: Movavi</u></a></li>
 </ul></div>
 

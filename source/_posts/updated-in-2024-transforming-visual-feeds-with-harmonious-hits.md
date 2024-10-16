@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Transforming Visual Feeds with Harmonious Hits"
-date: 2024-10-06T00:14:06.189Z
-updated: 2024-10-09T17:49:30.965Z
+date: 2024-10-10T03:01:45.913Z
+updated: 2024-10-15T19:31:05.296Z
 tags:
   - ai video
   - ai facebook
@@ -72,6 +72,13 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  **Step 3: Add music**   **and**   **post**
 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
@@ -79,10 +86,10 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -100,13 +107,6 @@ Note: You may need to set up the project aspect ratio accordingly for the Facebo
 Drag video to timeline, hover the cursor over the audio and video file until a + sign appears, which means add to the project.
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: Edit the audio**
 
@@ -127,16 +127,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -158,10 +152,10 @@ A user can also select elements from the given options. You can add a poll, emoj
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
@@ -175,10 +169,10 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Conclusion**
@@ -202,19 +196,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-fbs-flash-video-frontier/"><u>[New] FB's Flash Video Frontier</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-continuous-media-gatherers/"><u>[New] In 2024, Continuous Media Gatherers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-engaging-audiences-with-facebooks-virtual-reality-content/"><u>[New] In 2024, Engaging Audiences with Facebook's Virtual Reality Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-discover-the-best-tools-to-grab-fb-lite-videos/"><u>[Updated] Discover the Best Tools to Grab FB Lite Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhance-your-fb-with-iphonesandroids-favorite-tunes/"><u>[Updated] In 2024, Enhance Your FB with iPhones/Androids' Favorite Tunes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-the-art-of-video-production-for-facebooks-youtube/"><u>[Updated] Unveiling the Art of Video Production for Facebook's YouTube</u></a></li>
-<li><a href="https://win-net.techidaily.com/creating-customized-backdrops-adding-your-business-emblem-to-flipbook-pages-using-flipbuilder/"><u>Creating Customized Backdrops: Adding Your Business Emblem to FlipBook Pages Using FlipBuilder</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ensuring-a-secure-gaming-experience-for-children-setting-up-discords-parental-guidance-features/"><u>Ensuring a Secure Gaming Experience for Children: Setting Up Discord’s Parental Guidance Features</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-top-tier-no-cost-webm-video-streamers-for-browsers-for-2024/"><u>Exploring Top-Tier, No-Cost WebM Video Streamers for Browsers for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-nubia-z50-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Nubia Z50 Ultra | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/harnessing-chatgpt-for-impressive-job-applications/"><u>Harnessing ChatGPT for Impressive Job Applications</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How To Activate and Use Life360 Ghost Mode On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-15-pro-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 15 Pro Screen Mirroring You Must Know | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-zte-nubia-flip-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from ZTE Nubia Flip 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-best-youtube-thumbnail-size/"><u>[New] 2024 Approved The Best YouTube Thumbnail Size</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-hitting-your-targets-with-these-8-social-media-planners/"><u>[New] In 2024, Hitting Your Targets with These 8 Social Media Planners</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-live-media-masters-choice-vmix-vs-wirecast-for-professionals-for-2024/"><u>[New] Live Media Masters Choice VMix Vs. Wirecast for Professionals for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-swiftly-stow-facebook-broadcasts-for-smartphonedesktop-users-for-2024/"><u>[New] Swiftly Stow Facebook Broadcasts for Smartphone/Desktop Users for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-sound-enhancing-fb-video-posts-a-comprehensive-guide/"><u>[Updated] Sound-Enhancing FB Video Posts A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/5-effizienteste-methoden-zum-hochladen-von-iphone-fotos-auf-deinen-pc-ein-umfassender-leitfaden/"><u>5 Effizienteste Methoden Zum Hochladen Von iPhone-Fotos Auf Deinen PC: Ein Umfassender Leitfaden</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/blur-out-not-into-discovering-photo-clarity-web-tools/"><u>Blur Out, Not Into! Discovering Photo Clarity Web Tools</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/eliminate-ghost-line-effects-from-laptop-displays-quickly/"><u>Eliminate Ghost Line Effects From Laptop Displays Quickly</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-amd-rx-6900-xt-drivers-compatible-with-win11win10win8win7-free-download/"><u>Get the Latest AMD RX 6900 XT Drivers Compatible with Win11/Win10/Win8/Win7 - Free Download</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-the-broken-right-click-feature-on-a-mouse-for-windows-10-users/"><u>How to Fix the Broken Right-Click Feature on a Mouse for Windows 10 Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unveiling-facebook-livestreaming-on-roku/"><u>Unveiling Facebook Livestreaming on Roku</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Silent Videos to Engaging Content  Swiftly Add Captions on FB\""
-date: 2024-08-24T03:18:26.600Z
-updated: 2024-08-25T03:18:26.600Z
+date: 2024-10-09T06:08:59.583Z
+updated: 2024-10-16T05:27:50.031Z
 tags:
   - ai video
   - ai facebook
@@ -64,17 +64,44 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
@@ -93,6 +120,13 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -103,14 +137,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-hot-takes-top-ten-video-hits-from-social-media-giants/"><u>[New] In 2024, Hot Takes Top Ten Video Hits From Social Media Giants</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-recording-skype-calls-quick-guide-for-windows-and-mac-users/"><u>[New] Recording Skype Calls - Quick Guide for Windows and Mac Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-effective-streaming-strategies-facebook-crossposting/"><u>[Updated] 2024 Approved Effective Streaming Strategies Facebook Crossposting</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harmony-at-hand-free-audio-from-fb-for-2024/"><u>[Updated] Harmony at Hand Free Audio From FB for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-stealthiest-instagram-story-viewers-for-2024/"><u>[Updated] The Stealthiest Instagram Story Viewers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-achieving-gentle-volume-alteration-using-fl-studio/"><u>2024 Approved Achieving Gentle Volume Alteration Using FL Studio</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-samsung-galaxy-s23-tactical-edition-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Samsung Galaxy S23 Tactical Edition Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/dealing-with-audio-malfunctions-on-windows-10-comprehensive-solutions/"><u>Dealing with Audio Malfunctions on Windows 10 – Comprehensive Solutions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-elevate-your-experience-top-5-facebook-revelations/"><u>In 2024, Elevate Your Experience Top 5 Facebook Revelations</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-top-6-free-video-watermark-software/"><u>New Top 6 Free Video Watermark Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionize-charging-with-the-ultimate-magsafe-multi-device-dock-enhanced-power-and-cooling-for-all-your-apple-gadgets-featured/"><u>Revolutionize Charging with the Ultimate MagSafe Multi-Device Dock: Enhanced Power & Cooling for All Your Apple Gadgets - Featured</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-strategies-for-integrating-facebook-live-into-your-site-for-2024/"><u>Top Strategies for Integrating Facebook Live Into Your Site for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windows-m2ts-2024/"><u>Windows 지원하는 M2TS 프리앱 : 2024 년에 가장 최신 재구성 및 해결 전략</u></a></li>
+</ul></div>
+

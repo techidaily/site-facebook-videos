@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Seamless Viewing of Time-Honored Facebook Stories\""
-date: 2024-10-06T23:31:33.717Z
-updated: 2024-10-09T19:56:03.655Z
+date: 2024-10-11T18:03:12.789Z
+updated: 2024-10-15T16:30:59.491Z
 tags:
   - ai video
   - ai facebook
@@ -43,13 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -60,39 +53,19 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -106,6 +79,13 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 3:** Then Select “Archive” from the given options.
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
@@ -126,6 +106,13 @@ The only chance is that if your friend has uploaded those stories on highlights 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -177,6 +164,19 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -192,14 +192,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2023-play-facebook-videos-on-tv/"><u>[Updated] 2023 | Play Facebook Videos on TV?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-best-fb-video-extractors-for-ios-devices-ranked-1/"><u>[Updated] 2024 Approved Best FB Video Extractors for iOS Devices Ranked #1</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-ensuring-privacy-4-steps-to-safely-log-fb-calls/"><u>[Updated] 2024 Approved Ensuring Privacy 4 Steps to Safely Log FB Calls</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-path-to-profitable-fb-animation-ad-success-stories/"><u>[Updated] In 2024, The Path to Profitable FB Animation Ad Success Stories</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-10t-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Realme 10T 5G Phone with Broken Screen</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-no-displayed-video-fixing-camera-issue-with-sony-a6400/"><u>In 2024, No Displayed Video Fixing Camera Issue with Sony A6400</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-hardware-analysis-by-toms-tech-experts/"><u>In-Depth Hardware Analysis by Tom's Tech Experts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-premier-pro-essentials-accessible-for-all-editors/"><u>The Premier Pro Essentials - Accessible for All Editors</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-16-kostenlose-logo-design-programme-fur-windows-movavi/"><u>Top 16 Kostenlose Logo-Design-Programme Für Windows - Movavi</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-leverage-fb-for-extensive-reach-and-impact-for-2024/"><u>[New] Leverage FB for Extensive Reach and Impact for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-success-selecting-co-stars-for-youtube-projects/"><u>[New] Unlocking Success Selecting Co-Stars for YouTube Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decoding-the-art-of-asmr-filmmaking-techniques/"><u>[Updated] In 2024, Decoding the Art of ASMR Filmmaking Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unearth-these-quirky-overlooked-facebook-pages-for-2024/"><u>[Updated] Unearth These Quirky, Overlooked Facebook Pages for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unleash-power-in-social-media-10-advanced-tactics-for-fb-optimization-for-2024/"><u>[Updated] Unleash Power in Social Media 10 Advanced Tactics for FB Optimization for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-locating-live-broadcasts-and-shared-films-on-fb/"><u>In 2024, Locating Live Broadcasts and Shared Films on FB</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-backward-movies-on-snapchat/"><u>Mastering the Art of Backward Movies on Snapchat</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-meizu-21-pro-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Meizu 21 Pro Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/pgm/"><u>오늘날의 가장 깔끔한 무료 PGM 포스트 대체 기능 - 모바이</u></a></li>
 </ul></div>
 

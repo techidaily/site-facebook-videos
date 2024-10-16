@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Social Media Nostalgia  How to Edit Lookback for 2024\""
-date: 2024-08-09T21:58:19.427Z
-updated: 2024-08-10T21:58:19.427Z
+date: 2024-10-12T23:39:58.107Z
+updated: 2024-10-16T02:55:01.049Z
 tags:
   - ai video
   - ai facebook
@@ -49,8 +49,12 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -59,15 +63,17 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
 
 #### 3. Edit the audio of Look Back video
@@ -76,9 +82,6 @@ The powerful video editing program for your Windows PC</a>
 
  If you don't like the original background music of your Look Back video, just replace it and add a new one. To do this, right click the video and select the "Audio Detach" option. Then the background music will immediately be separated and appear on the music timeline. You can easily delete it and add a new one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
 #### 4. Add more effects to your Look Back video
@@ -88,8 +91,12 @@ The powerful video editing program for your Windows PC</a>
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
@@ -101,15 +108,16 @@ The powerful video editing program for your Windows PC</a>
 * Premiere your video on iPhone, iPad, Galaxy, HTC and other mobile devices.
 * Burn to DVD to preserve or share.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -117,11 +125,33 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-evaluation-report-elite-parrot-ar-drone-20/"><u>[New] Evaluation Report Elite Parrot AR Drone 2.0</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-maiden-recording-appraisal-article/"><u>[New] Maiden Recording Appraisal Article</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-instagrams-world-everything-you-need-to-know/"><u>Exploring Instagram's World: Everything You Need to Know</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-12-pro-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-itel-s23-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Itel S23 to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-15-best-facebook-analyzers-to-increase-sales/"><u>In 2024, 15 Best Facebook Analyzers to Increase Sales</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-acoustic-amplification-of-social-media-content-on-facebook/"><u>In 2024, Acoustic Amplification of Social Media Content on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-audience-viewing-experience-how-to-choose-video-aspect-ratio/"><u>In 2024, Audience Viewing Experience How to Choose Video Aspect Ratio</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-boost-your-like-ratio-tips-for-squaring-up-videos/"><u>In 2024, Boost Your Like Ratio Tips for Squaring Up Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-boosting-social-media-reach-the-best-2e-free-fb-video-creation-tools/"><u>In 2024, Boosting Social Media Reach The Best 2E Free FB Video Creation Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-breaking-the-mold-revolutionary-methods-to-boost-your-fb-page-rank/"><u>In 2024, Breaking the Mold Revolutionary Methods to Boost Your FB Page Rank</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-bring-your-gopro-adventures-online-facebookperiscope-livestream-setup/"><u>In 2024, Bring Your Gopro Adventures Online Facebook/Periscope Livestream Setup</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-combining-chords-and-clips-the-ultimate-fb-video-soundtrack/"><u>In 2024, Combining Chords and Clips The Ultimate FB Video Soundtrack</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-convenience-at-your-fingertips-enable-autoplay-of-youtube-videos-on-fb/"><u>In 2024, Convenience at Your Fingertips Enable Autoplay of YouTube Videos on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-lava-blaze-2-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Lava Blaze 2 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://windows11.techidaily.com/mend-cure-your-windows-11-function-key-woes/"><u>Mend: Cure Your Windows 11 Function Key Woes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pinnacle-zooctorial-template-repositories/"><u>Pinnacle Zooctorial Template Repositories</u></a></li>
+</ul></div>
+

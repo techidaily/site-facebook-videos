@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Discovering Facebook's Quintessential Updates\""
-date: 2024-08-09T21:58:31.500Z
-updated: 2024-08-10T21:58:31.500Z
+date: 2024-10-12T16:30:43.421Z
+updated: 2024-10-16T02:44:21.792Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 
 # Top Five New Facebook Features You Should Know
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -32,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -45,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Messenger Day – The Snapchat Way
 
  This app was also launched in the month of March and surprisingly it appeared like biggest competitor against Instagram Stories and Snapchat. However, few features like stickers, filters and posts disappearing within 24 hours etc are also same as that of other competing platforms.
@@ -57,14 +48,24 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
 
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
 
@@ -76,16 +77,24 @@ thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Group Videos
 
  Last but not the least, Group video chat is the best solution to all crazy messenger users who wants to stay connected with all their friends on the go. The amazing news is that you can add about 50 users to one video group chat. Further, it will also help you to put fun filters to keep your chats interactive and full of laughter. In case if you find those Facebook chat heads annoying on your device screen then you can now easily remove them from profile settings. In simple words, Facebook has lots of things wrapped inside its platform for you all; get ready to have the real fun.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -93,11 +102,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-equitable-technology-review-by-inclusive-gurus-for-2024/"><u>[Updated] Equitable Technology Review by Inclusive Gurus for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-crafting-viral-covers-for-your-facebook-profile/"><u>2024 Approved Crafting Viral Covers for Your Facebook Profile</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-discover-free-and-paid-luts-for-profound-canon-camera-effects/"><u>2024 Approved Discover Free & Paid LUTs for Profound Canon Camera Effects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-elevate-your-campaigns-innovative-approaches-to-fb-video-ads/"><u>2024 Approved Elevate Your Campaigns Innovative Approaches to FB Video Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-live-stream-gopro-to-facebook-and-periscope/"><u>2024 Approved How to Live Stream Gopro to Facebook and Periscope?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-leveraging-fb-livestream-for-post-produced-content-dissemination/"><u>2024 Approved Leveraging FB Livestream for Post-Produced Content Dissemination</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-optimize-your-watch-activate-av1-on-youtube-platform/"><u>2024 Approved Optimize Your Watch Activate AV1 on YouTube Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-revive-missing-fb-watch-icon-solutions/"><u>2024 Approved Revive Missing FB Watch Icon - Solutions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-time-hopping-through-facebook-stories-a-device-based-expedition/"><u>2024 Approved Time-Hopping Through Facebook Stories A Device-Based Expedition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/cloaked-observer-of-facebook-snapshots-for-2024/"><u>Cloaked Observer of Facebook Snapshots for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/convert-facebook-to-mp4-hack-for-quick-access/"><u>Convert Facebook to MP4 – Hack for Quick Access</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/engaging-gpt-3-in-poetic-creation-process/"><u>Engaging GPT-3 in Poetic Creation Process</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/explore-olden-days-on-facebook-device-friendly-tips/"><u>Explore Olden Days on Facebook - Device-Friendly Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/go-from-gaming-to-socializing-streaming-xbox-to-fb-live/"><u>Go From Gaming to Socializing Streaming Xbox to FB Live</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-resonating-with-your-device-a-comprehensive-guide-for-customizing-auditory-experience-on-android/"><u>In 2024, Resonating With Your Device A Comprehensive Guide for Customizing Auditory Experience on Android</u></a></li>
+<li><a href="https://blog-min.techidaily.com/line-pc/"><u>LINE通話中声帯だけ録音! PCでも簡単なヘッドフォン録音テクニック</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/losungsschatz-ersetzen-der-kopier-einfuge-funktion-unter-windows-11-mit-den-besten-alternativen/"><u>Lösungsschatz: Ersetzen Der Kopier-Einfüge-Funktion Unter Windows 11 Mit Den Besten Alternativen</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/mastering-past-facebook-feed-exploration-for-laptops-and-phones/"><u>Mastering Past Facebook Feed Exploration for Laptops and Phones</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-mystery-of-machine-learning-hallucinations-and-effective-spotting-techniques/"><u>Unveiling the Mystery of Machine Learning Hallucinations & Effective Spotting Techniques</u></a></li>
+</ul></div>
+

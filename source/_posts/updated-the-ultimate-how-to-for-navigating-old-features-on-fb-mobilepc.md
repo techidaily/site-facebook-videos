@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for Navigating Old Features on FB, Mobile/PC\""
-date: 2024-10-08T22:28:03.701Z
-updated: 2024-10-10T01:04:37.016Z
+date: 2024-10-11T08:19:12.815Z
+updated: 2024-10-15T16:54:13.607Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +102,16 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -125,10 +131,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -168,19 +174,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-2023s-social-media-video-extractor-for-all-platforms/"><u>[New] 2024 Approved 2023'S Social Media Video Extractor for All Platforms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-heres-what-you-dont-know-about-instagram-story-viewer/"><u>[New] In 2024, Here's What You Don't Know About Instagram Story Viewer</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-instant-view-enabling-fb-videos-to-play-by-themselves/"><u>[New] In 2024, Instant View Enabling FB Videos to Play By Themselves</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-skyrocketing-fb-engagement-masterful-seo-techniques-explored-for-2024/"><u>[New] Skyrocketing FB Engagement Masterful SEO Techniques Explored for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[New] Unleash Your FB Potential A Strategic Plan for More Likes and Shares</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-infinite-jest-joyride-top-kids-game-lineup/"><u>[Updated] 2024 Approved Infinite Jest Joyride - Top Kids' Game Lineup</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-dive-into-camtasias-ken-burns-feature-rich-tutorial-for-2024/"><u>[Updated] Dive Into Camtasia’s Ken Burns Feature-Rich Tutorial for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-iphone-meme-magic-for-2024/"><u>[Updated] IPhone Meme Magic for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/broadcast-mastery-mobile-livestraning-on-facebook-unveiled-for-2024/"><u>Broadcast Mastery Mobile Livestraning on Facebook Unveiled for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/clear-focus-navigating-the-nuances-of-zooming/"><u>Clear Focus Navigating the Nuances of Zooming</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/enhancing-your-social-presence-facebook-bios-101/"><u>Enhancing Your Social Presence Facebook Bios 101</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fb-stream-to-sound-an-audio-conversion-tool-for-2024/"><u>FB Stream to Sound An Audio Conversion Tool for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-restoring-geforce-experience-setting-capabilities/"><u>Step-by-Step Guide to Restoring GeForce Experience Setting Capabilities</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721460024839-unable-to-use-the-contact-list-on-your-iphone-try-these-3-troubleshooting-steps-right-now/"><u>Unable to Use the Contact List on Your iPhone? Try These 3 Troubleshooting Steps Right Now</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-how-to-access-full-range-of-groups-shared-media/"><u>[New] In 2024, How to Access Full Range of Group's Shared Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-sign-up-saga-crafting-your-digital-persona-facebook/"><u>[Updated] 2024 Approved Sign Up Saga Crafting Your Digital Persona (Facebook)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-webcam-techniques-for-live-recording-powerpoint/"><u>[Updated] 2024 Approved Webcam Techniques for Live Recording PowerPoint</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-pinnacle-solution-for-virtual-realms/"><u>[Updated] In 2024, Pinnacle Solution for Virtual Realms</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-dota-2-from-continuously-crashing-expert-advice/"><u>How to Stop Dota 2 From Continuously Crashing - Expert Advice</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fixing-non-functional-airdrop-between-iphones-ipads-and-macs/"><u>In 2024, Fixing Non-Functional AirDrop Between iPhones, iPads & Macs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-fb-live-streams-a-guide-for-roku-users-for-2024/"><u>Mastering FB Live Streams A Guide for Roku Users for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/reinstating-old-school-windows-photo-viewer-on-modern-win10/"><u>Reinstating Old-School Windows Photo Viewer on Modern Win10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/streamline-social-sharing-integrate-your-fb-story/"><u>Streamline Social Sharing Integrate Your FB Story</u></a></li>
+<li><a href="https://article-tips.techidaily.com/transformative-beauty-practices/"><u>Transformative Beauty Practices</u></a></li>
 </ul></div>
 
