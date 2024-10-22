@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-10-13T09:16:24.794Z
-updated: 2024-10-15T22:36:12.212Z
+date: 2024-10-19T19:35:29.889Z
+updated: 2024-10-21T19:23:46.279Z
 tags:
   - ai video
   - ai facebook
@@ -43,6 +43,13 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -52,13 +59,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 2:** Then, on the Profile Page, select the “More” dropdown button.
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
@@ -84,13 +84,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -103,9 +96,29 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -114,13 +127,6 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -149,10 +155,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -186,18 +192,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-boost-your-online-presence-tips-and-techniques-for-exceptional-fb-profiles/"><u>[New] 2024 Approved Boost Your Online Presence Tips and Techniques for Exceptional FB Profiles</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-leading-tag-tracker-software-on-major-platforms-like-fb-tweet-and-insta/"><u>[New] 2024 Approved Leading Tag Tracker Software on Major Platforms Like FB, Tweet & Insta</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-beginning-vlog-essential-gear-and-initial-editing-tools/"><u>[New] Beginning Vlog Essential Gear & Initial Editing Tools</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-elevate-engagement-escalate-ranks-on-fb-pages/"><u>[New] Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-sleeper-strikers-top-10-undetected-fb-memes/"><u>[New] In 2024, Sleeper Strikers Top 10 Undetected FB Memes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-simplifying-fb-live-sessions-on-roku-devices/"><u>[New] Simplifying FB Live Sessions on Roku Devices</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-chuckle-inducing-snaps-applying-the-cartoon-face-effect-on-snapchat/"><u>[Updated] Chuckle-Inducing Snaps Applying the Cartoon Face Effect on Snapchat</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-social-media-sphere-speaking-up-to-fans/"><u>2024 Approved The Social Media Sphere Speaking Up to Fans</u></a></li>
-<li><a href="https://facebook.techidaily.com/debunking-the-digital-dossiers-unraveling-facebooks-misconits/"><u>Debunking the Digital Dossiers: Unraveling Facebook's Misconits</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-samsung-galaxy-s23-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Samsung Galaxy S23 to Protect Your Individual Information</u></a></li>
-<li><a href="https://win-answers.techidaily.com/in-depth-strategies-to-overcome-teardown-malfunctions-expert-advice/"><u>In-Depth Strategies to Overcome Teardown Malfunctions: Expert Advice</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-expert-advice-for-mastering-the-art-of-shortening-your-youtube-videos/"><u>Ultimate Expert Advice for Mastering the Art of Shortening Your YouTube Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlocking-internet-history-easy-ways-to-search-and-use-the-wayback-machine-for-research/"><u>Unlocking Internet History: Easy Ways to Search and Use the Wayback Machine for Research</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebooks-countdown-the-best-10-music-videos-of-now/"><u>[New] 2024 Approved Facebook's Countdown The Best 10 Music Videos of Now</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-expand-your-reach-sharing-live-streams-on-facebook/"><u>[New] In 2024, Expand Your Reach Sharing Live Streams on Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>[New] In 2024, Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-essence-of-style-in-ae-title-design-for-2024/"><u>[New] The Essence of Style in AE Title Design for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-essential-screen-capture-best-mac-apps-reviewed-and-rated/"><u>[Updated] 2024 Approved Essential Screen Capture Best Mac Apps Reviewed & Rated</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-easily-create-captions-and-subtitles-for-facebook-videos/"><u>[Updated] How to Easily Create Captions and Subtitles for Facebook Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlocking-the-secrets-to-collecting-fb-gifs-a-comprehensive-manual/"><u>[Updated] In 2024, Unlocking the Secrets to Collecting FB GIFs A Comprehensive Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-tips-on-selecting-free-audio-tracks-for-your-yt-clips/"><u>[Updated] Top Tips on Selecting Free Audio Tracks for Your YT Clips</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-brother-hl-l2380dw-printing-right-with-a-fresh-driver-installation-on-windows-pcs/"><u>Get Your Brother HL-L2380DW Printing Right with a Fresh Driver Installation on Windows PCs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-repeatloop-youtube-videos-automatically/"><u>How to Repeat/Loop YouTube Videos Automatically</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-the-stuck-gpsvc-hang-in-windows/"><u>Overcoming the Stuck GPSVC Hang in Windows</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-samsung-galaxy-s23-fe-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Samsung Galaxy S23 FE IMEI without Root A Comprehensive Guide</u></a></li>
 </ul></div>
 

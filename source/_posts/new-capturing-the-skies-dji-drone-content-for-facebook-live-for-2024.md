@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Capturing the Skies  DJI Drone Content for Facebook Live for 2024\""
-date: 2024-08-09T21:57:28.718Z
-updated: 2024-08-10T21:57:28.718Z
+date: 2024-10-15T23:46:37.240Z
+updated: 2024-10-21T23:08:54.410Z
 tags:
   - ai video
   - ai facebook
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/e12cb801e0d6f6813ed277d29658e5821adadea3d
 
 **Step 2:** A New window will appear where you need to select the live broadcast platform.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![broadcast platform ](https://images.wondershare.com/filmora/article-images/broadcast-platform.jpg)
 
 **Step 3:** From the available options, select facebook as your destination.
@@ -48,16 +45,10 @@ thumbnail: https://thmb.techidaily.com/e12cb801e0d6f6813ed277d29658e5821adadea3d
 
 **Step 4:** Now your application will ask you to login with the facebook account. Enter your id and password in the specified field and hit log in option.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![facebook account drone ](https://images.wondershare.com/filmora/article-images/facebook-account-drone.jpg)
 
 **Step 5:** You need to follow all suggested steps on screen just to authorize your DJI Go App to get connected with your provided facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ DJI Go app](https://images.wondershare.com/filmora/article-images/dji-go-app.jpg)
 
 **Step 6:** As soon as these settings get finished, now your device will take you back to the DJI Go Application. Here you will find option to go live; hit this option and it will help you to live stream your content within few seconds.
@@ -72,35 +63,37 @@ thumbnail: https://thmb.techidaily.com/e12cb801e0d6f6813ed277d29658e5821adadea3d
 
 **Step 9:** As soon as your video becomes live, you will be able to find all the details about viewers, audio level and live time. All these details are indicated on the top left corner of screen.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ left corner.](https://images.wondershare.com/filmora/article-images/left-corner.jpg)
 
  Note that it captures audio from your smartphone instead of picking any audio information from drone. In case if you want to disable this audio content then hit the blue icon that is available on top left corner of your screen.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ the top left](https://images.wondershare.com/filmora/article-images/the-top-left.jpg)
 
  It is also possible to disable comments and audio and you can easily make choices to end your live video at any moment. You will be able to get detailed summery of your post and if you close the application then facebook will automatically save content so that it can be viewed later.
 
 ![disable audio ](https://images.wondershare.com/filmora/article-images/disable-audio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![save your video ](https://images.wondershare.com/filmora/article-images/save-your-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## About DJI Drone Phantom-4
 
  Phantom 4 is a highly advanced and latest design in the drone series that can help you to control flights with ease. Its lightweight construction and compact size make it first choice of professionals. [DJI Phantom 4](https://www.dji.com/phantom-4 ) can record videos with 720 p HD view and it is able to stay in air for about 28 minutes. You will definitely love to explore its intelligent navigation system and speed.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,11 +101,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-comprehensively-understanding-instagram-video-restrictions/"><u>[New] 2024 Approved Comprehensively Understanding Instagram Video Restrictions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-innovations-in-captivating-fb-ad-creation/"><u>[New] 2024 Approved Innovations in Captivating FB Ad Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-social-simulacrum-sculpting-crafting-exaggerated-profiles/"><u>[New] In 2024, Social Simulacrum Sculpting Crafting Exaggerated Profiles</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-step-into-the-stream-a-guide-to-roku-and-facebook-live-broadcasts/"><u>[New] In 2024, Step Into the Stream A Guide to ROKU & Facebook Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expressiveness-in-yt-adopting-emojis-for-2024/"><u>[Updated] Expressiveness in YT Adopting Emojis for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-optimizing-your-fb-profile-with-stunning-cover-videos-for-2024/"><u>[Updated] Optimizing Your FB Profile with Stunning Cover Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-pathway-to-accessing-fb-videos-via-windowsmacos-for-2024/"><u>[Updated] Pathway to Accessing FB Videos via Windows/macOS for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-pros-guide-to-iphone-voice-memos-and-more/"><u>2024 Approved The Pro's Guide to iPhone Voice Memos and More</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-nokia-g42-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Nokia G42 5G FRP</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/harmonizing-visual-narratives-with-live-sounds/"><u>Harmonizing Visual Narratives with Live Sounds</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sifting-through-the-advantages-and-disadvantages-of-vr/"><u>In 2024, Sifting Through the Advantages and Disadvantages of VR</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/offline-access-top-quality-fb-videos-at-home/"><u>Offline Access Top Quality FB Videos at Home</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/present-day-drones-and-their-upcoming-role-evolution-for-2024/"><u>Present-Day Drones and Their Upcoming Role Evolution for 2024</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/resolviendo-problemas-del-modo-pantalla-en-windows-11-guia-con-6-pasos-practicos/"><u>Resolviendo Problemas Del Modo Pantalla en Windows 11 - Guía Con 6 Pasos Prácticos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Honor X50 GT? | Dr.fone</u></a></li>
+</ul></div>
+

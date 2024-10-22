@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Perfecting Profile Playlists on Facebook Through Mobile"
-date: 2024-08-09T21:52:53.225Z
-updated: 2024-08-10T21:52:53.225Z
+date: 2024-10-16T23:37:28.997Z
+updated: 2024-10-21T16:31:55.857Z
 tags:
   - ai video
   - ai facebook
@@ -19,23 +19,14 @@ thumbnail: https://thmb.techidaily.com/92ce41ef8b05767b09e5cccf1de47f0c1a1c9c1b0
 
 # Rock Your Facebook Profile: Add, Pin, Play, & Manage Music (iPhone & Android)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -70,14 +61,21 @@ Here’s something you should be aware of before learning **how to** **add a son
 
 ![add Music  to Facebook Profile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -107,27 +105,21 @@ There’s another feature that Facebook allows you to use, and that’s pinning 
 
 **Step 2:** Go to your profile page and locate the Music tab.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Profile Music Option](https://images.wondershare.com/filmora/article-images/facebook-profile-music-option.jpg)
 
 **Step 3:** Now, click on the Music option. Each song will have three dots; click on that, and then you will see the option Pin to Profile. Click on that, and the song will be pinned to your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![Pin music on Facebook Profile](https://images.wondershare.com/filmora/article-images/pin-music-on-facebook-profile.jpg)
 
 To check whether the song is pinned to your profile or not, visit your Facebook profile, and you will see it right below your profile picture.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Play and Listen Songs You Have Added to Facebook Profile?
 
 By adding fresh songs to your profile, you will make your profile look and sound better. And it’s pretty apparent that after adding a song to your profile picture, you will like to hear it out as well. So, here’s how you can listen to the added song.
@@ -138,9 +130,6 @@ By adding fresh songs to your profile, you will make your profile look and sound
 
 **Step 3:** You will see all songs that you have added to your profile. Click on any of the songs to listen to it. Moreover, you can click on any song to listen to it.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Profile Music History](https://images.wondershare.com/filmora/article-images/facebook-profile-music-history-list.jpg)
 
 ## Part 4: How to Remove Unwanted Music from Facebook Profile?
@@ -154,6 +143,13 @@ Just like you can add songs to your profile, you can easily remove them as well.
 **Step 3:** From the options, you need to click on the deleted song from the profile option. By doing this, the song will be permanently removed from your profile.
 
 ![delete Facebook Profile Music](https://images.wondershare.com/filmora/article-images/delete-music-track-from-facebook-profile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can remove one song or multiple of them.
 
@@ -171,6 +167,13 @@ If you are someone who likes to express yourself through music, then Facebook ca
 
 ![Facebook Profile Music feature](https://images.wondershare.com/filmora/article-images/facebook-profile-music-feature.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And that’s how the Music feature works on Facebook.
 
 **Conclusion**
@@ -183,20 +186,15 @@ Now that you have learned **how to add a song to your Facebook profile** try it 
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -205,11 +203,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-shuttered-by-darkness-iphone-tips-and-tricks/"><u>[New] 2024 Approved Shuttered by Darkness IPhone Tips & Tricks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-craft-stunning-designs-learn-to-cleanse-images-background-in-canva/"><u>[New] Craft Stunning Designs Learn to Cleanse Images' Background in Canva</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-your-youtube-channel-perfecting-video-scriptwriting-skills-for-2024/"><u>[New] Elevate Your YouTube Channel Perfecting Video Scriptwriting Skills for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-amplification-a-comprehensive-guide-to-sharing-videos-on-facebook/"><u>[New] The Art of Amplification A Comprehensive Guide to Sharing Videos on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-framework-for-crafting-compelling-live-video-thumbnails/"><u>[New] The Ultimate Framework for Crafting Compelling Live Video Thumbnails</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-3-hd-film-scrapers-on-fb/"><u>[New] Top 3 HD Film Scrapers on Fb</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-reviving-cut-off-livestreams-solving-facebook-streaming-hiccups/"><u>[Updated] 2024 Approved Reviving Cut-Off Livestreams Solving Facebook Streaming Hiccups</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-conquer-youtube-searches-with-these-top-11-seo-strategies-for-2024/"><u>[Updated] Conquer YouTube Searches with These Top 11 SEO Strategies for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/1716089177416-updated-how-to-watch-facebook-live-on-roku/"><u>[Updated] How to Watch Facebook Live on Roku</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-future-of-video-on-facebook-focusing-on-shorter-formats/"><u>2024 Approved The Future of Video on Facebook Focusing on Shorter Formats</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-elevate-your-content-with-effective-video-seo/"><u>In 2024, Elevate Your Content with Effective Video SEO</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-essential-fixes-to-tackle-fb-story-load-failures/"><u>In 2024, Essential Fixes to Tackle Fb Story Load Failures</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/social-stream-top-8-viral-videos-for-2024/"><u>Social Stream Top 8 Viral Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-2023-shift-in-facebooks-video-presentation-style/"><u>The 2023 Shift in Facebook’s Video Presentation Style</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/transform-your-gaming-experience-with-the-alienware-curved-34-inch-oled-available-for-749-at-best-buy/"><u>Transform Your Gaming Experience with the Alienware Curved 34 Inch OLED - Available for $749 at Best Buy</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-why-isnt-my-iphone-sending-imessages-expert-tips-and-techniques/"><u>Troubleshooting: Why Isn't My iPhone Sending iMessages? Expert Tips & Techniques</u></a></li>
+<li><a href="https://extra-information.techidaily.com/windows-11-apps-and-games-to-explore-and-download/"><u>Windows 11 Apps and Games to Explore and Download</u></a></li>
+</ul></div>
+

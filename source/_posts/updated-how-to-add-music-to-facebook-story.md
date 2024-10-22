@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Music to Facebook Story?"
-date: 2024-10-10T05:21:59.931Z
-updated: 2024-10-16T03:16:50.301Z
+date: 2024-10-20T16:50:09.484Z
+updated: 2024-10-21T16:12:20.686Z
 tags:
   - ai video
   - ai facebook
@@ -58,6 +58,13 @@ Click done on the right corner to post the music story. Your story will be avail
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
 Serene music on a video background adds feeling to the story and makes it more attractive. Music adds life to a boring video and keeps the viewer's attention on it for longer. It is easy to add music to your video or photo story directly in a few simple steps. Here is how to do it:
@@ -79,17 +86,10 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -108,18 +108,18 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **Step 4: Export edited file**
 
@@ -133,6 +133,13 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -143,13 +150,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -157,6 +157,13 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -174,13 +181,6 @@ Facebook story feature is one of the best options that one can use to gain visib
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -196,18 +196,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-social-searchers-guide-fb-profiles-made-easy/"><u>[New] 2024 Approved The Social Searcher's Guide FB Profiles Made Easy</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-latest-insights-on-facebook-whats-new/"><u>[New] In 2024, Latest Insights on Facebook - What's New?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ultimate-image-booster-intense-visual-upgrade/"><u>[Updated] 2024 Approved Ultimate Image Booster Intense Visual Upgrade</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-mastering-management-top-8-tools-for-effective-task-allocation/"><u>[Updated] In 2024, Mastering Management Top 8 Tools for Effective Task Allocation</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-top-picks-for-virtual-reality-gaming-software-2023-guide/"><u>[Updated] Top Picks for Virtual Reality Gaming Software - 2023 Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-visual-storytelling-through-youtube-split-screens/"><u>[Updated] Visual Storytelling Through YouTube Split-Screens</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/accessing-and-viewing-roku-original-programming-without-an-actual-roku-unit-tips-and-tricks/"><u>Accessing and Viewing Roku Original Programming without an Actual Roku Unit: Tips & Tricks</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-14-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 14 When Its Locked Within Seconds</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/inspiring-illustrations-video-customer-stories/"><u>Inspiring Illustrations: Video Customer Stories</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/stealthy-facebook-video-navigator/"><u>Stealthy Facebook Video Navigator</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/swift-switch-toggle-microsofts-window-integrated-chat-support/"><u>Swift Switch: Toggle Microsoft’s Window-Integrated Chat Support</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-beginners-guide-to-designing-engaging-and-shareable-fb-slideshows-for-2024/"><u>The Beginner's Guide to Designing Engaging and Shareable FB SlideShows for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-optimal-live-streaming-scenery-ideas/"><u>[Updated] 2024 Approved Optimal Live Streaming Scenery Ideas</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-create-viral-tiktok-content-step-by-step-templates-guide/"><u>[Updated] In 2024, Create Viral TikTok Content Step-by-Step Templates Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-elevate-facebook-videos-with-synchronized-musical-charm/"><u>[Updated] In 2024, Elevate Facebook Videos with Synchronized Musical Charm</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-facebook-short-videos-and-everything-about-them/"><u>[Updated] In 2024, Facebook Short Videos and Everything About Them</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-spotlight-on-facebook-discover-the-most-watched-vids/"><u>[Updated] In 2024, Spotlight on Facebook Discover the Most Watched Vids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-personalized-timeline-presentation-facebook-lookback-tips/"><u>[Updated] Personalized Timeline Presentation Facebook Lookback Tips</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-motorola-razr-40-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Motorola Razr 40 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-lava-yuva-2-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Lava Yuva 2? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-f14-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy F14 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-motorola-edge-40-pro-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Motorola Edge 40 Pro Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-seamless-tweet-integration-on-facebook-platform/"><u>In 2024, Seamless Tweet Integration on Facebook Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/innovative-tactics-for-stellar-facebook-ad-videos/"><u>Innovative Tactics for Stellar Facebook Ad Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-motorola-g54-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Motorola G54 5G Phones</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-directx-errors-on-fifa-20-expert-tips-and-fixes/"><u>Troubleshooting DirectX Errors on FIFA 20 – Expert Tips and Fixes</u></a></li>
 </ul></div>
 

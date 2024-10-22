@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick and Easy Caption Crafting for Engaging FB Video Posts"
-date: 2024-10-13T20:07:50.705Z
-updated: 2024-10-16T09:24:30.097Z
+date: 2024-10-18T00:02:33.424Z
+updated: 2024-10-21T17:05:24.353Z
 tags:
   - ai video
   - ai facebook
@@ -64,18 +64,18 @@ It is also possible to delete Facebook video captions with ease. Click the trash
 
 Save all updates when you are satisfied with preview.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Here are few simple to follow steps
 
@@ -83,18 +83,24 @@ Here are few simple to follow steps
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -110,25 +116,25 @@ Once you have finished the text based editing task then hit the Export option av
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -146,15 +152,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-a-compre-market-leaders-guide-to-the-most-effective-fb-video-ad-approaches/"><u>[New] 2024 Approved A Compre Market Leader's Guide to the Most Effective FB Video Ad Approaches</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-explore-all-content-jointly-shared-photos-and-vids/"><u>[New] In 2024, Explore All Content Jointly Shared Photos & Vids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-maximizing-engagement-in-post-facebook-algorithm-world-for-2024/"><u>[Updated] Maximizing Engagement in Post-Facebook Algorithm World for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-quintessential-quotient-facebooks-top-5-adjustments-for-2024/"><u>[Updated] The Quintessential Quotient Facebook's Top 5 Adjustments for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premier-tips-for-capturing-the-excitement-of-online-cricket-matches/"><u>2024 Approved Premier Tips for Capturing the Excitement of Online Cricket Matches</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-iphone-se-2020-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on iPhone SE (2020)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-realme-c33-2023-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Realme C33 2023 Devices</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-xr-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone XR Passcode not Working?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unleash-the-skys-potential-with-drone-livestreaming-on-fb/"><u>In 2024, Unleash the Sky's Potential with Drone Livestreaming on FB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-premier-selection-of-usb-internet-connectors-for-the-year-2024/"><u>The Premier Selection of USB Internet Connectors for the Year 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-crafting-an-elite-home-computer-for-professional-4k-editing/"><u>[New] Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-leap-into-a-bigger-view-the-new-full-screen-fb-video-trend/"><u>[New] Leap Into a Bigger View The New Full-Screen FB Video Trend</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-guide-to-increasing-traffic-with-powerful-social-media-videos-for-2024/"><u>[New] The Ultimate Guide to Increasing Traffic with Powerful Social Media Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-open-source-banner-resources-a-gift-to-youtubers/"><u>[Updated] Open Source Banner Resources A Gift to YouTubers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-simplified-approach-to-overhauling-facebook-photo-background-for-2024/"><u>[Updated] Simplified Approach to Overhauling Facebook Photo Background for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-effortless-strategies-for-facebook-stories-seamless-uploads/"><u>In 2024, Effortless Strategies for Facebook Stories' Seamless Uploads</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-13-pro-max-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 13 Pro Max to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapchat-friendly-how-to-use-your-camera-roll-effectively/"><u>In 2024, Snapchat-Friendly How to Use Your Camera Roll Effectively</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-the-truth-accessing-microsoft-word-without-spending-a-penny-is-it-possible/"><u>Unveiling the Truth: Accessing Microsoft Word Without Spending a Penny - Is It Possible?</u></a></li>
 </ul></div>
 

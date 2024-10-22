@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Periscope to Pro  Livestreaming Basics for iOS and Android\""
-date: 2024-08-09T21:57:17.965Z
-updated: 2024-08-10T21:57:17.965Z
+date: 2024-10-18T16:45:17.780Z
+updated: 2024-10-21T16:14:48.478Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
 # How to livestream on facebook from android and iOS?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Steps to go live using Facebook for Android and iOS
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
@@ -47,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![audience ](https://images.wondershare.com/filmora/article-images/audience.jpg)
 
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![broadcast ](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
 
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
@@ -71,14 +59,21 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
  9\. Once you are finished with your broadcasting just tap on the **‘Finish’** button. You can choose to play your video, save it to your computer or upload it somewhere else. Now click on done and you will be directed to another page for editing.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![further editng ](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Notes and tips
 
  1\. You need to keep in mind that the maximum time limit for broadcasting on Facebook is 30 minutes.
@@ -91,13 +86,18 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -105,3 +105,19 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2023-sound-savvy-with-facebook-downloader-for-2024/"><u>[New] 2023 Sound Savvy with Facebook Downloader for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-build-a-loyal-audience-on-facebook-using-effective-growth-methods-for-2024/"><u>[New] Build a Loyal Audience on Facebook Using Effective Growth Methods for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-your-signature-voice-for-instagram-success-for-2024/"><u>[New] Crafting Your Signature Voice for Instagram Success for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-boost-engagement-stream-live-from-twitch-embed-on-fb/"><u>[Updated] 2024 Approved Boost Engagement Stream Live From Twitch, Embed on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-achieving-visual-harmony-in-your-fb-videos-with-proper-ratio-adjustments/"><u>[Updated] Achieving Visual Harmony in Your FB Videos with Proper Ratio Adjustments</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/bridging-connectivity-gaps-watching-facebook-live-on-your-roku-for-2024/"><u>Bridging Connectivity Gaps Watching Facebook Live on Your Roku for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gimp-tutorial-mastering-filters-and-layers/"><u>GIMP Tutorial Mastering Filters & Layers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/master-the-skill-of-running-vlc-in-full-screen-permanently-a-comprehensive-tutorial/"><u>Master the Skill of Running VLC in Full Screen Permanently – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/next-generation-of-intel-desktops-could-exceed-heat-specs-raises-concerns-for-arrow-lake-series/"><u>Next Generation of Intel Desktops Could Exceed Heat Specs, Raises Concerns for Arrow Lake Series</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-the-iphone-15-for-advanced-users-gizmobugle/"><u>The Ultimate Guide to the iPhone 15 for Advanced Users | GizmoBugle</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-the-hidden-in-built-radios-are-your-mac-or-ipad-equipped/"><u>Unlocking the Hidden In-Built Radios: Are Your Mac or iPad Equipped?</u></a></li>
+</ul></div>
+

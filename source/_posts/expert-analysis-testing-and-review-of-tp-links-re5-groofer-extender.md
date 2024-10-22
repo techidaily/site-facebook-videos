@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
-date: 2024-10-10T18:43:27.801Z
-updated: 2024-10-16T01:29:51.876Z
+date: 2024-10-14T21:24:07.714Z
+updated: 2024-10-21T23:19:10.846Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
@@ -64,13 +64,20 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
@@ -78,6 +85,13 @@ Lifewire / Kelsey Simon
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -92,13 +106,6 @@ Harran is a whole different city at night.
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -116,33 +123,7 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -152,11 +133,25 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -169,13 +164,6 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,19 +186,15 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-cutting-edge-techniques-for-captivating-online-advertising/"><u>[New] Cutting-Edge Techniques for Captivating Online Advertising</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-gopro-expertise-unleashed-livestreams-directed-at-periscope-and-facebook-for-2024/"><u>[New] Gopro Expertise Unleashed Livestreams Directed at Periscope & Facebook for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-begin-your-clip-and-cut-career-with-xps-editor/"><u>[Updated] Begin Your Clip-and-Cut Career with XP's Editor</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-delving-into-past-facebook-chronicles-with-tech-help/"><u>[Updated] Delving Into Past Facebook Chronicles with Tech Help</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-how-to-skillfully-secure-and-save-gif-images-from-facebooks-domain/"><u>[Updated] How To Skillfully Secure and Save GIF Images From Facebook's Domain</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-securing-your-facebook-memories-top-5-downloading-methods/"><u>[Updated] Securing Your Facebook Memories Top 5 Downloading Methods</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-seo-essentials-for-climbing-the-youtube-popularity-ladder-for-2024/"><u>[Updated] SEO Essentials for Climbing the YouTube Popularity Ladder for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-social-sharing-simplified-uploading-immersive-mobile-photography-for-2024/"><u>[Updated] Social Sharing Simplified Uploading Immersive Mobile Photography for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/complete-guide-steps-to-erase-your-yahoo-email-address-forever/"><u>Complete Guide: Steps to Erase Your Yahoo Email Address Forever</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/cut-trim-and-split-the-best-free-mpeg-video-editors-for-2024/"><u>Cut, Trim, and Split The Best Free MPEG Video Editors for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/different-methods-to-unlock-your-iphone-6-plus-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 6 Plus</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-14-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 14 Without iTunes</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-tropico-6-gameplay-in-a-utopian-island-setting/"><u>In-Depth Analysis of Tropico 6 Gameplay in a Utopian Island Setting</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/prime-focus-best-photo-viewing-win11-app/"><u>Prime Focus Best Photo Viewing Win11 App</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-multimedia-transfer-facebook-videos-on-whatsapp/"><u>[New] In 2024, Mastering Multimedia Transfer Facebook Videos on WhatsApp</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-prime-mp4-fb-file-shifter/"><u>[Updated] In 2024, Prime MP4-FB File Shifter</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/discovering-if-muted-on-snapstreak-for-2024/"><u>Discovering If Muted on Snapstreak for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-speed-with-the-tp-link-archer-c80-the-budget-wireless-router-reviewed/"><u>Experience Speed with the TP-Link Archer C80 - The Budget Wireless Router Reviewed</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-preserving-high-quality-vision-ultimate-techniques-to-compress-videos-for-instagram/"><u>Guide: Preserving High-Quality Vision - Ultimate Techniques to Compress Videos for Instagram</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-samsung-galaxy-z-fold-5-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Samsung Galaxy Z Fold 5 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-make-and-upload-360-video-to-facebook/"><u>In 2024, How to Make and Upload 360 Video to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/sharecast-mobilepc-video-extractor-for-2024/"><u>Sharecast Mobile/PC Video Extractor for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-full-erase-of-your-iphone-using-pc-windowsmac-with-stellar/"><u>Ultimate Guide: Full Erase of Your iPhone Using PC (Windows/Mac) with Stellar</u></a></li>
 </ul></div>
 

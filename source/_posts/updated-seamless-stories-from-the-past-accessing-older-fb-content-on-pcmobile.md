@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless Stories From The Past  Accessing Older FB Content on PC/Mobile\""
-date: 2024-10-10T08:13:34.846Z
-updated: 2024-10-15T22:00:26.227Z
+date: 2024-10-19T22:26:13.345Z
+updated: 2024-10-22T00:57:55.201Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,16 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +108,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -125,10 +131,10 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -168,18 +174,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-10-facebook-jail-secrets-to-avoid-being-blocked-get-out-of-it-for-2024/"><u>[New] 10 Facebook Jail Secrets to Avoid Being Blocked / Get Out of It for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-ultimate-guide-top-101-personal-profiles-on-facebook/"><u>[New] 2024 Approved Ultimate Guide Top 101 Personal Profiles on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-core-framework-principles-for-engaging-online-promotions/"><u>[New] In 2024, Core Framework Principles for Engaging Online Promotions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-navigating-digital-memory-lane-with-backward-image-scans-facebook-for-2024/"><u>[New] Navigating Digital Memory Lane with Backward Image Scans (Facebook) for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-spy-on-fb-chronicles-discreetly/"><u>[Updated] 2024 Approved Spy on FB Chronicles Discreetly</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-prime-live-soundscapes-for-fans/"><u>[Updated] Prime Live Soundscapes for Fans</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unlock-social-growth-youtube-links-to-fb/"><u>[Updated] Unlock Social Growth YouTube Links to FB</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-leading-gaming-mobile-devices-for-202n-expert-review-by-zdnet/"><u>Discover the Leading Gaming Mobile Devices for 202N - Expert Review by ZDNET</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-se-2020-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone SE (2020) Data From iTunes? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-nokia-c12-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Nokia C12</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-samsung-galaxy-m14-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Samsung Galaxy M14 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-obs-vs-shadowplay-the-streaming-software-showdown/"><u>In 2024, Obs vs ShadowPlay The Streaming Software Showdown</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-plan-ahead-masterful-fb-timelines-using-free-resources/"><u>In 2024, Plan Ahead Masterful Fb Timelines Using Free Resources</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-recording-powerhouse-tactics-for-windows-10-aficionados/"><u>[New] In 2024, Recording Powerhouse Tactics for Windows 10 Aficionados</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-finding-classic-facebook-content/"><u>[New] The Art of Finding Classic Facebook Content</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-pinnacle-of-macro-photography-and-cinematography/"><u>[New] The Pinnacle of Macro Photography and Cinematography</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-compact-guide-to-macs-screen-recording-shortcuts-for-2024/"><u>[Updated] Compact Guide to Mac's Screen Recording Shortcuts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-steps-for-modifying-your-social-network-cover-pictorial/"><u>[Updated] In 2024, Steps for Modifying Your Social Network Cover Pictorial</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-the-art-of-podcast-rss-mastery/"><u>[Updated] In 2024, Unveiling the Art of Podcast RSS Mastery</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-harvesting-high-res-hangouts/"><u>2024 Approved Harvesting High-Res Hangouts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-ultimate-facebook-playbook-for-business-growth-30-key-points/"><u>In 2024, The Ultimate Facebook Playbook for Business Growth (30 Key Points)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-6-free-easy-to-use-artificial-intelligence-tools/"><u>Top 6 Free, Easy-to-Use Artificial Intelligence Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unraveling-the-purpose-of-facebooks-blue-messenger-emblem/"><u>Unraveling the Purpose of Facebook's Blue Messenger Emblem</u></a></li>
 </ul></div>
 

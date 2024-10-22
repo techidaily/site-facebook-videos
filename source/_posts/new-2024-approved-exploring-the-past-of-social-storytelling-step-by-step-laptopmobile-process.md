@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring the Past of Social Storytelling  Step-by-Step Laptop/Mobile Process\""
-date: 2024-08-09T21:56:23.228Z
-updated: 2024-08-10T21:56:23.228Z
+date: 2024-10-18T20:29:33.606Z
+updated: 2024-10-21T20:15:49.237Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/11a5b5bdf5c605b4fbfac8e2beadd347faae794ed
 
 # How to View Old Stories on Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -40,9 +37,6 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -61,9 +55,6 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to View Stories on Facebook Desktop?
 
 You can use Facebook on your desktop; it is feasible to use it on a desktop when you are using it for professional purposes such as blogging or business. It is possible to view old Facebook stories through desktop also; here is how:
@@ -79,8 +70,12 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to View A Friend’s Old Facebook Story?
 
 It is nearly impossible to view your friend’s story once it has disappeared. You cannot watch the stories even if they are achieved. However, there is one way to view old stories of your friends. Here is how:
@@ -100,8 +95,12 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
 
 We tend not to save stories to our devices when clicking them directly from the Facebook app. However, you can save a post to your device from the stories archive using simple steps. Let's see how to do it:
@@ -119,8 +118,12 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to See Old Stories on a Facebook Business Page?
 
 Facebook business pages help in enhancing business significantly, primarily if you use story features for customer interaction. If you want to keep track of old stories, you can use the following method:
@@ -143,13 +146,18 @@ Facebook is an excellent platform to interact with your audience, and the story 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -157,3 +165,25 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-audible-riches-from-social-media-videos-fb-to-mp3-guide/"><u>[New] 2024 Approved Audible Riches From Social Media Videos - FB To MP3 Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-decoding-youtubes-payment-scheme/"><u>[New] 2024 Approved Decoding YouTube's Payment Scheme</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-instantly-start-youtube-videos-on-your-facebook-timeline/"><u>[New] 2024 Approved Instantly Start YouTube Videos on Your Facebook Timeline</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-premier-mp4-converter-for-smooth-fb-integration/"><u>[New] 2024 Approved Premier MP4 Converter for Smooth FB Integration</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-direct-stream-from-fb-to-whatsapp-group-chat/"><u>[New] Direct Stream From FB to WhatsApp Group Chat</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-a-comprehensive-guide-to-implementing-and-evaluating-fb-in-stream-ads/"><u>[New] In 2024, A Comprehensive Guide to Implementing & Evaluating FB In-Stream Ads</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elevating-adventure-pro-gopro-strategies/"><u>[Updated] Elevating Adventure Pro-GoPro Strategies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-social-media-visibility-with-quality-livestreams-on-wirecast/"><u>[Updated] Enhancing Social Media Visibility with Quality Livestreams on Wirecast</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-boost-engagement-with-effective-wirecast-broadcasts-on-fb/"><u>[Updated] In 2024, Boost Engagement with Effective Wirecast Broadcasts on FB</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-on-repairing-unresponsive-realtek-mics/"><u>Expert Advice on Repairing Unresponsive Realtek Mics</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-on-resolving-steam-server-connection-problems/"><u>Expert Advice on Resolving Steam Server Connection Problems</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/freeze-your-pc-display-effortlessly-for-2024/"><u>Freeze Your PC Display Effortlessly for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-itel-p55-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Itel P55 Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-art-of-persuasion-on-facebook-a-beginners-and-expert-playbook/"><u>In 2024, The Art of Persuasion on Facebook A Beginner’s & Expert Playbook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/make-your-iphone-work-like-a-home-wi-fi-network-a-complete-tutorial/"><u>Make Your iPhone Work Like a Home Wi-Fi Network: A Complete Tutorial</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-6-most-popular-destinations-for-viewing-music-videoclips-on-the-web/"><u>The 6 Most Popular Destinations for Viewing Music Videoclips on the Web</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/why-im-not-making-the-leap-to-iphone-16-pro-despite-owning-an-iphone-14-tech-analysis-on-zdnet/"><u>Why I'm Not Making the Leap to iPhone 16 Pro Despite Owning an iPhone 14 | Tech Analysis on ZDNET</u></a></li>
+</ul></div>
+
