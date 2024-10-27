@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Blending Beats  Posting Tunes on Digital Diaries\""
-date: 2024-10-14T16:45:35.572Z
-updated: 2024-10-21T17:20:04.371Z
+date: 2024-10-20T18:10:33.625Z
+updated: 2024-10-27T19:51:38.504Z
 tags:
   - ai video
   - ai facebook
@@ -79,23 +79,17 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -132,6 +126,13 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -142,13 +143,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -158,10 +152,10 @@ A user can also select elements from the given options. You can add a poll, emoj
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
@@ -174,18 +168,18 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Conclusion**
 
 Facebook story feature is one of the best options that one can use to gain visibility and increase interaction. Everyone should know how to add music to Facebook story as it makes the viewer focus more on your story content. We are sure you must have learned how to add music to enhance your stories.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -202,21 +196,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-seize-your-facebook-videos-with-these-leading-apps/"><u>[New] 2024 Approved Seize Your Facebook Videos with These Leading Apps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-science-behind-engaging-video-content-on-fb/"><u>[New] The Science Behind Engaging Video Content on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-master-social-media-youtube-to-facebook-links/"><u>[Updated] In 2024, Master Social Media YouTube to Facebook Links</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes/"><u>[Updated] The Ultimate Guide to Enhancing Reels with Harmonious Tunes</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-iphone-tips-for-perfecting-motion-shot-photography/"><u>2024 Approved IPhone Tips for Perfecting Motion Shot Photography</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-maximizing-viewing-experience-in-android/"><u>2024 Approved Maximizing Viewing Experience in Android</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/comment-resoudre-lerreur-dinstallation-de-mises-a-jour-windows-code-x80240023-en-quatre-etapes-simples/"><u>Comment Résoudre L'Erreur D’Installation De Mises À Jour Windows (Code X80240023) en Quatre Étapes Simples</u></a></li>
-<li><a href="https://win-able.techidaily.com/diagnosing-and-resolving-frequent-crashes-in-the-pc-version-of-metro-exodus-edt/"><u>Diagnosing and Resolving Frequent Crashes in the PC Version of Metro Exodus EDT</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fb-melody-cache-legally-for-2024/"><u>FB Melody Cache (Legally) for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/how-to-build-a-career-in-graphic-design/"><u>How to Build A Career In Graphic Design</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-cutting-edge-tips-for-outshining-others-in-facebooks-social-space/"><u>In 2024, Cutting-Edge Tips for Outshining Others in Facebook's Social Space</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/methods-for-a-no-ads-experience-on-social-platforms/"><u>Methods for a No-Ads Experience on Social Platforms</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-lava-yuva-2-pro-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Lava Yuva 2 Pro Black and White | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-solutions-for-a-laptop-battery-that-wont-charge/"><u>Quick Solutions for a Laptop Battery That Won't Charge</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-poco-x6-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Poco X6 on Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/streamline-operations-ranking-the-top-8-facebook-task-managers-for-2024/"><u>Streamline Operations Ranking the Top 8 Facebook Task Managers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-effective-methods-share-twitch-stream-on-facebook/"><u>[New] 2024 Approved Effective Methods | Share Twitch Stream on Facebook?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhancing-profile-clips-for-impact/"><u>[New] 2024 Approved Enhancing Profile Clips for Impact</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-capturing-moments-dslr-setup-for-online-streaming-pcmac-for-2024/"><u>[New] Capturing Moments DSLR Setup for Online Streaming (PC/Mac) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-key-techniques-boosting-video-reach-across-both-platforms-for-2024/"><u>[New] Key Techniques Boosting Video Reach Across Both Platforms for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-recover-disappearing-watch-icon-for-fb-users/"><u>[New] Recover Disappearing Watch Icon for FB Users</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-skills-for-capturing-soundless-videography/"><u>[Updated] 2024 Approved Essential Skills for Capturing Soundless Videography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebook-video-wonders-your-must-see-list/"><u>[Updated] 2024 Approved Facebook Video Wonders - Your Must-See List</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-counter-facebooks-instantaneous-deletion-of-videos-for-2024/"><u>[Updated] How to Counter Facebook's Instantaneous Deletion of Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-classic-collection-finding-yesteryears-social-media-gems/"><u>[Updated] In 2024, Classic Collection Finding Yesteryear's Social Media Gems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-making-marks-trendsetting-on-social-media-platforms/"><u>[Updated] In 2024, Making Marks Trendsetting on Social Media Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-book-trailers-you-wont-miss/"><u>[Updated] The Ultimate Guide to Book Trailers You Won't Miss</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-stop-snippet-playback-on-youtube/"><u>2024 Approved The Ultimate Guide Stop Snippet Playback on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/blending-beats-into-bits-the-sound-savvy-image-for-2024/"><u>Blending Beats Into Bits The Sound-Savvy Image for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-z-flip-5-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy Z Flip 5 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-monetizing-popularity-pay-per-million-views/"><u>In 2024, Monetizing Popularity Pay Per Million Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-ultimate-copyright-strategy-for-online-video-creators/"><u>In 2024, The Ultimate Copyright Strategy for Online Video Creators</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-amazon-lunas-performance-seamless-online-gaming-unveiled/"><u>In-Depth Look at Amazon Luna's Performance - Seamless Online Gaming Unveiled</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-oneplus-9-a-look-at-where-it-lacks/"><u>In-Depth Review of OnePlus 9: A Look at Where It Lacks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tutorial-mise-a-jour-du-disque-premium-bootable-vers-un-ssd-pour-une-demarrage-accelere-sous-windows-10/"><u>Tutorial : Mise À Jour Du Disque Premium Bootable Vers Un SSD Pour Une Démarrage Accéléré Sous Windows 10</u></a></li>
 </ul></div>
 

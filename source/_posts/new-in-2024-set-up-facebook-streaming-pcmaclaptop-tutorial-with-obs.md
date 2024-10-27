@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Set Up Facebook Streaming  PC/Mac/Laptop Tutorial with OBS\""
-date: 2024-10-16T01:16:57.948Z
-updated: 2024-10-21T23:46:39.655Z
+date: 2024-10-25T20:15:04.981Z
+updated: 2024-10-27T18:03:30.545Z
 tags:
   - ai video
   - ai facebook
@@ -72,6 +72,13 @@ Step 2: Now adjust the bit rate, it must be kept below 4000 Kbps and then choose
 
 ![ bitrate ](https://images.wondershare.com/filmora/article-images/bitrate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: Make settings for resolution as well as FPS. The desired maximum resolution level is 720p or 1280x720 whereas frame rate must be kept at 30 fps.
 
 ![resolution ](https://images.wondershare.com/filmora/article-images/resolution.jpg)
@@ -84,22 +91,22 @@ Step 5: It is time to move to the ‘create live video’ page. You have to copy
 
 ![create ](https://images.wondershare.com/filmora/article-images/create.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 6: Now come back to your OBS settings page and choose stream option. From list of services, prefer to choose Facebook Live option and then simply paste the stream key in the specified field on your screen.
 
 ![service ](https://images.wondershare.com/filmora/article-images/service.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## C. Preview and Test your before go live
@@ -112,47 +119,40 @@ Step 2: Now move back to your facebook page and then choose to preview.
 
 ![click preview ](https://images.wondershare.com/filmora/article-images/click-preview.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: It is time to add your title as per preferences, make selection for your targeted audience and once you have finished all settings and testing process then hit button “Go Live”.
 
 ![Click Go1 ](https://images.wondershare.com/filmora/article-images/click-go1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Click Go2](https://images.wondershare.com/filmora/article-images/click-go2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Once your procedure for live streaming is complete then you are free to end the live video anytime over facebook page. The video will be automatically added to your Live video library and you can find it their anytime in future.
 
 ![ End Live Video](https://images.wondershare.com/filmora/article-images/end-live-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 5: This is all about how to live stream your videos over facebook directly from your computer. Hope you will enjoy streaming a new impressive video soon!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video tutorial
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook stream parameter requirements
 
@@ -181,24 +181,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-archive-hunt-accessing-yesteryears-facebook-stories-for-2024/"><u>[New] Archive Hunt Accessing Yesteryear's Facebook Stories for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ssential-guide-to-forming-powerful-content-partnerships-on-youtube/"><u>[New] Essential Guide to Forming Powerful Content Partnerships on YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-expert-guide-to-screen-zooming-on-microsoft-teams/"><u>[New] Expert Guide to Screen Zooming on Microsoft Teams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-direct-sharing-twitch-live-links-for-facebook-friends/"><u>[New] In 2024, Direct Sharing Twitch Live Links for Facebook Friends</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-syncing-tunes-with-video-posts-on-facebook-for-2024/"><u>[New] Syncing Tunes with Video Posts on Facebook for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-break-barriers-enhancing-live-social-media-collaborations/"><u>[Updated] 2024 Approved Break Barriers Enhancing Live Social Media Collaborations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-transforming-fb-videos-into-mp3-files/"><u>[Updated] 2024 Approved Transforming Fb Videos Into MP3 Files</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-revive-your-profile-resetting-2023s-facebook-error/"><u>[Updated] In 2024, Revive Your Profile Resetting 2023'S Facebook Error</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-solutions-to-the-steelseries-arctis-1-mic-failure-challenge/"><u>Effective Solutions to the SteelSeries Arctis 1 Mic Failure Challenge</u></a></li>
-<li><a href="https://win-web3.techidaily.com/essential-hardware-prerequisites-for-vsphere-8-a-comprehensive-guide/"><u>Essential Hardware Prerequisites for vSphere 8: A Comprehensive Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-nokia-c32-by-drfone-android/"><u>Full Guide to Unlock Your Nokia C32</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-13t-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Xiaomi 13T to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-first-flight-experience-the-best-beginner-drones/"><u>In 2024, First Flight Experience The Best Beginner Drones</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-watch-or-iphone-11-pro-by-drfone-ios/"><u>In 2024, How To Bypass Activation Lock On Apple Watch Or iPhone 11 Pro?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-itel-p40-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Itel P40 to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-art-of-digital-retrieval-saving-and-storing-chats-on-fb/"><u>In 2024, The Art of Digital Retrieval Saving and Storing Chats on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/navigating-the-world-of-facebook-cover-vids-explained-for-2024/"><u>Navigating the World of Facebook Cover Vids Explained for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-checklist-of-essential-equipment-for-2024/"><u>The Ultimate Checklist of Essential Equipment for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/uncover-the-secret-correcting-mobile-video-sharing-on-fb-messenger/"><u>Uncover the Secret Correcting Mobile Video Sharing on FB Messenger</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fetching-mp3-from-facebook-groups/"><u>[New] 2024 Approved Fetching MP3 From Facebook Groups</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-sounds-unlimited-grab-and-go/"><u>[New] FB Sounds Unlimited Grab & Go</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onetizing-mastery-a-triple-step-approach-to-understanding-youtube-revenue-for-2024/"><u>[New] Monetizing Mastery A Triple Step Approach to Understanding YouTube Revenue for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-effortless-fusion-of-youtube-audio-with-imovie-masterpieces-for-2024/"><u>[Updated] Effortless Fusion of YouTube Audio with iMovie Masterpieces for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-master-mp4-uploader-and-downloader-fb-edition-for-2024/"><u>[Updated] Master MP4 Uploader & Downloader FB Edition for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seamless-media-exchange-transferring-facebook-content-to-whatsapp-for-2024/"><u>[Updated] Seamless Media Exchange Transferring Facebook Content to WhatsApp for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-savvy-discover-the-coolpix-w100/"><u>Budget-Savvy: Discover the Coolpix W100</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-asus-audio-driver-software-today/"><u>Download ASUS Audio Driver Software Today</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-can-you-create-animated-facebook-ads-with-high-roi-for-2024/"><u>How Can You Create Animated Facebook Ads With High ROI for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-chivalry-2-crashing-issues-solutions-found/"><u>How to Fix Chivalry 2 Crashing Issues - Solutions Found</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-a34-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy A34 5G?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-honor-magic-v2-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Honor Magic V2 Phone With/Without IMEI Number</u></a></li>
 </ul></div>
 

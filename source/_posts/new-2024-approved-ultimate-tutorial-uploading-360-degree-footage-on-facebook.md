@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Ultimate Tutorial  Uploading 360-Degree Footage on Facebook\""
-date: 2024-10-12T22:57:48.481Z
-updated: 2024-10-15T20:57:23.291Z
+date: 2024-10-25T18:58:30.610Z
+updated: 2024-10-27T20:41:26.758Z
 tags:
   - ai video
   - ai facebook
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
@@ -78,15 +78,28 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
 
@@ -95,10 +108,10 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -123,13 +136,6 @@ thumbnail: https://thmb.techidaily.com/e8bfc69e4cfa6c5e7699d7a6d6fe4dbd7b3f6ecf3
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -145,19 +151,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-determining-facebook-video-orientation-choices-ahead/"><u>[New] 2024 Approved Determining Facebook Video Orientation Choices Ahead</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-discover-the-best-15-youtube-science-think-tanks/"><u>[New] 2024 Approved Discover the Best 15 YouTube Science Think Tanks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-mac-enthusiasts-take-on-screenflow-software-review/"><u>[New] 2024 Approved Mac Enthusiast's Take on ScreenFlow Software Review</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-dji-spark-ultimate-portable-camera-uav-guide-for-2024/"><u>[New] DJI Spark Ultimate Portable Camera UAV Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-faceless-watchers-of-fb-flashbacks/"><u>[New] Faceless Watchers of Fb Flashbacks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-15-tools-for-boosting-fb-sales-through-data-analysis/"><u>[New] Top 15 Tools for Boosting FB Sales Through Data Analysis</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-dual-performance-the-tiktok-duet-trend/"><u>[Updated] 2024 Approved Dual Performance The TikTok Duet Trend</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-choosing-between-bandicam-and-camtasia-for-2024/"><u>[Updated] Choosing Between Bandicam & Camtasia for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-dji-drone-prospectus-phantom-3-edition-for-2024/"><u>[Updated] DJI Drone Prospectus Phantom 3 Edition for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-viewability-of-fb-videos-hv-debate/"><u>[Updated] Enhancing Viewability of FB Videos – H/V Debate</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook/"><u>[Updated] In 2024, Top 20 Moments of Laughter Best FB Jail Gems for a Sunny Outlook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-leverage-fb-for-extensive-reach-and-impact/"><u>[Updated] Leverage FB for Extensive Reach and Impact</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-value-laptop-an-in-depth-look-at-the-asus-vivobook-eleven/"><u>Discovering the Best Value Laptop: An In-Depth Look at the Asus VivoBook Eleven</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/touchpad-woes-driver-fixed-functions-as-normal/"><u>Touchpad Woes: Driver Fixed, Functions As Normal</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-essential-top-5-xbox-hdds-for-gamers/"><u>[New] 2024 Approved Essential Top 5 Xbox HDDs for Gamers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-best-facebook-practices-videographers-dilemrante-for-2024/"><u>[New] Best Facebook Practices Videographer's Dilemrante for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-break-new-ground-in-social-sagas-free-extended-versions-await/"><u>[Updated] Break New Ground in Social Sagas – Free, Extended Versions Await</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-which-is-better-for-vloggers-on-facebook-vertical-or-horizontal/"><u>[Updated] Which Is Better for Vloggers on Facebook Vertical or Horizontal?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-in-class-steadicam-equipment-for-drone-cinematography/"><u>2024 Approved Best-in-Class Steadicam Equipment for Drone Cinematography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unraveling-the-mystery-of-non-uploading-video-features/"><u>2024 Approved Unraveling the Mystery of Non-Uploading Video Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/alleviating-isolation-with-ai-conversations/"><u>Alleviating Isolation with AI Conversations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capture-and-save-your-linkedin-content-the-ultimate-guide-to-best-tools-for-2024/"><u>Capture & Save Your LinkedIn Content The Ultimate Guide to Best Tools for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-samsung-galaxy-a25-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Samsung Galaxy A25 5G Phone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-optimal-videography-minimizing-sound-interference-effectively/"><u>In 2024, Optimal Videography Minimizing Sound Interference Effectively</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pushing-boundaries-the-future-of-filmmaking-in-4k-with-yi-for-2024/"><u>Pushing Boundaries The Future of Filmmaking in 4K With Yi for 2024</u></a></li>
 </ul></div>
 

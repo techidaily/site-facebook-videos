@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
-date: 2024-10-14T21:24:07.714Z
-updated: 2024-10-21T23:19:10.846Z
+date: 2024-10-22T18:41:19.298Z
+updated: 2024-10-27T19:53:35.888Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
@@ -65,6 +65,21 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
 <!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
+
+## **Setup Process: Straight into the action**
+
+ The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
+
+![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
+
+<!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
   <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
@@ -74,26 +89,11 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## **Setup Process: Straight into the action**
-
- The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
-
-![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
- Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -108,6 +108,13 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -133,25 +140,11 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -164,6 +157,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,15 +186,22 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-multimedia-transfer-facebook-videos-on-whatsapp/"><u>[New] In 2024, Mastering Multimedia Transfer Facebook Videos on WhatsApp</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-prime-mp4-fb-file-shifter/"><u>[Updated] In 2024, Prime MP4-FB File Shifter</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/discovering-if-muted-on-snapstreak-for-2024/"><u>Discovering If Muted on Snapstreak for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-speed-with-the-tp-link-archer-c80-the-budget-wireless-router-reviewed/"><u>Experience Speed with the TP-Link Archer C80 - The Budget Wireless Router Reviewed</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-preserving-high-quality-vision-ultimate-techniques-to-compress-videos-for-instagram/"><u>Guide: Preserving High-Quality Vision - Ultimate Techniques to Compress Videos for Instagram</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-samsung-galaxy-z-fold-5-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Samsung Galaxy Z Fold 5 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-make-and-upload-360-video-to-facebook/"><u>In 2024, How to Make and Upload 360 Video to Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/sharecast-mobilepc-video-extractor-for-2024/"><u>Sharecast Mobile/PC Video Extractor for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-full-erase-of-your-iphone-using-pc-windowsmac-with-stellar/"><u>Ultimate Guide: Full Erase of Your iPhone Using PC (Windows/Mac) with Stellar</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-record-video-calls-on-facebook-4-methods/"><u>[New] 2024 Approved How to Record Video Calls on Facebook [4 Methods]</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-revolutionizing-home-broadcasts-with-advanced-webcams/"><u>[New] 2024 Approved Revolutionizing Home Broadcasts with Advanced WebCams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-vocal-variations-a-curated-list-of-the-best-15-youtube-vocals-tutorials/"><u>[New] 2024 Approved Vocal Variations A Curated List of the Best 15 YouTube Vocals Tutorials</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fbs-viral-anthems-list-crafting-your-number-one-song/"><u>[New] In 2024, FB's Viral Anthems List Crafting Your Number One Song</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-is-it-possible-to-see-all-chatted-content-of-others-in-2024/"><u>[New] Is It Possible to See All Chatted Content of Others, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-looking-to-access-the-whole-spectrum-of-shared-media-by-contacts/"><u>[Updated] 2024 Approved Looking to Access the Whole Spectrum of Shared Media by Contacts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-overcoming-technical-challenges-with-fb-live-videos-for-2024/"><u>[Updated] Overcoming Technical Challenges with FB Live Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[Updated] Top 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-what-drives-youtubes-content-creator-hub-in-2024/"><u>[Updated] What Drives YouTube's Content Creator Hub, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-from-noob-to-pro-making-the-list-of-popular-fb-songs-and-videos/"><u>2024 Approved From Noob to Pro Making the List of Popular FB Songs and Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725289753553-dvd/"><u>安心・安全なDVDのレンタルとコピー - お試し無料版ソフトウェア</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/convert-fb-video-to-downloadable-mp3-for-2024/"><u>Convert FB Video to Downloadable MP3 for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/elevate-brand-recognition-optimizing-facebook-with-keywords-and-links-for-2024/"><u>Elevate Brand Recognition Optimizing Facebook with Keywords and Links for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-get-more-engagement-on-fb-video-content-for-2024/"><u>How to Get More Engagement on FB Video Content for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-precision-voice-transformation-through-morphvox/"><u>In 2024, Precision Voice Transformation Through MorphVOX</u></a></li>
+<li><a href="https://win11.techidaily.com/master-your-entertainment-with-these-7-free-players/"><u>Master Your Entertainment with These 7 FREE Players</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/user-testimonials-in-action-mac-videos/"><u>User Testimonials in Action: Mac Videos</u></a></li>
 </ul></div>
 

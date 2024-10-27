@@ -1,7 +1,7 @@
 ---
 title: "[New] Harmonizing Visual Narratives with Live Sounds"
-date: 2024-10-14T19:16:26.236Z
-updated: 2024-10-21T17:24:50.341Z
+date: 2024-10-25T18:31:04.062Z
+updated: 2024-10-27T19:54:10.976Z
 tags:
   - ai video
   - ai facebook
@@ -73,10 +73,10 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step 3: Add music**   **and**   **post**
@@ -84,13 +84,6 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 After tapping on the music sticker, click on the song you want to play with your story. When you are done editing the sticker and your story, click   **Done** on the top right corner to post it.
 
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
 
@@ -108,6 +101,13 @@ Drag video to timeline, hover the cursor over the audio and video file until a +
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/add-facebook-story-video-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Edit the audio**
 
 Double click on the audio file within the panel given on the top of the Filmora screen. You will find a few options to edit audio, such as fade-in, fade-out, equalizer, volume, etc.
@@ -115,10 +115,10 @@ Double click on the audio file within the panel given on the top of the Filmora 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step 4: Export edited file**
@@ -134,10 +134,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
@@ -151,10 +151,10 @@ You can click on the play button after selecting the song, and it will appear in
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
@@ -196,24 +196,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-revamp-chrome-browsing-sharper-social-media-videos/"><u>[New] 2024 Approved Revamp Chrome Browsing Sharper Social Media Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-essential-20-hysterical-detention-cell-gifs-to-amplify-your-online-joy-for-2024/"><u>[New] Essential 20 Hysterical Detention Cell Gifs to Amplify Your Online Joy for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-surveying-the-spectrum-of-windows-movie-maker-updates/"><u>[New] Surveying the Spectrum of Windows Movie Maker Updates</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-guide-to-selecting-facebook-live-capturers/"><u>[New] The Ultimate Guide to Selecting Facebook Live Capturers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-facebook-live-broadcasts-a-quick-guide/"><u>[Updated] 2024 Approved Navigating Facebook Live Broadcasts A Quick Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-fresh-film-views-ranked-alternatives-1-7-for-2024/"><u>[Updated] Fresh Film Views Ranked Alternatives #1-7 for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-list-of-ex-followers-on-instagram/"><u>[Updated] List of Ex-Followers on Instagram</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-profit-from-social-media-maximizing-facebook-earnings/"><u>[Updated] Profit From Social Media Maximizing Facebook Earnings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-removing-your-facebook-live-video-tech-steps/"><u>[Updated] Removing Your Facebook Live Video Tech Steps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-trending-titles-navigating-through-facebooks-hot-takes/"><u>2024 Approved Trending Titles Navigating Through Facebook's Hot Takes</u></a></li>
-<li><a href="https://facebook.techidaily.com/9-innovative-software-solutions-for-smarter-posting/"><u>9 Innovative Software Solutions for Smarter Posting</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebooks-pathway-to-viral-stardom-explained-for-2024/"><u>Facebook's Pathway to Viral Stardom Explained for 2024</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-motorola-moto-g14-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>In 2024, From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-samsung-galaxy-s23-fe-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Samsung Galaxy S23 FE Phone?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-step-by-step-guide-for-top-picture-editor/"><u>In 2024, Step-by-Step Guide for Top Picture Editor</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/music-management-for-social-media-iphone-and-android-basics-for-2024/"><u>Music Management for Social Media IPhone & Android Basics for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/section-2a-understanding-employee-attitudes/"><u>Section 2A: Understanding Employee Attitudes</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-transforming-hidden-content-fb-video-strategies/"><u>[New] 2024 Approved Transforming Hidden Content FB Video Strategies</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-expert-advice-on-quick-and-clean-ppt-captures/"><u>[New] In 2024, Expert Advice on Quick and Clean PPT Captures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-art-of-finding-instagram-filters-on-a-budget/"><u>[New] In 2024, The Art of Finding Instagram Filters on a Budget</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-definitive-guide-to-screencast-editors/"><u>[Updated] 2024 Approved The Definitive Guide to Screencast Editors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-beating-the-curve-adapting-to-new-facebook-content-rules/"><u>[Updated] In 2024, Beating the Curve Adapting to New Facebook Content Rules</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-essential-hashtags-the-must-use-list-for-todays-social-media-success/"><u>[Updated] In 2024, Essential Hashtags The Must-Use List for Today's Social Media Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-rectifying-half-volume-issues-on-fb-media-for-2024/"><u>[Updated] Rectifying Half-Volume Issues on Fb Media for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-transitioning-tweets-into-facebook-visibility/"><u>[Updated] Transitioning Tweets Into Facebook Visibility</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-facebook-live-video-downloaders/"><u>2023 Facebook Live Video Downloaders</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-troubleshoot-facebook-live-pause-strategies-for-smooth-broadcasts/"><u>2024 Approved Troubleshoot Facebook Live Pause Strategies for Smooth Broadcasts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhancing-apple-device-photo-quality-with-easy-hacks/"><u>Enhancing Apple Device Photo Quality with Easy Hacks</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-apple-iphone-12-pro-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On Apple iPhone 12 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y100-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y100 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-organic-growth-your-afb-playbook/"><u>In 2024, Unlocking Organic Growth Your AFB Playbook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/next-gen-fb-converter-transform-vids-to-premium-mp4/"><u>Next-Gen FB Converter Transform Vids to Premium MP4</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quick-glance-fastest-photo-viewer-in-11-os-for-2024/"><u>Quick Glance Fastest Photo Viewer in 11 OS for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/todays-top-social-media-stars-a-look-at-8-hits-for-2024/"><u>Today's Top Social Media Stars A Look at 8 Hits for 2024</u></a></li>
 </ul></div>
 
