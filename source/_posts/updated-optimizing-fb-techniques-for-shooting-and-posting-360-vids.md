@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-10-22T17:35:24.590Z
-updated: 2024-10-27T17:31:11.015Z
+date: 2024-10-29T16:15:29.760Z
+updated: 2024-11-02T16:08:46.323Z
 tags:
   - ai video
   - ai facebook
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to upload 360 degree videos on Facebook
@@ -82,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -95,10 +95,16 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
@@ -124,10 +130,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,17 +151,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-social-media-hitmakers-top-10-music-video-recipes-for-fb/"><u>[New] 2024 Approved Social Media Hitmakers - TOP 10 Music Video Recipes for FB</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-get-youtube-posters-at-zero-price-top-free-downloading-tool/"><u>[New] In 2024, Get YouTube Posters at Zero Price - Top Free Downloading Tool</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-grab-and-reel-the-essential-5-apps-for-social-media-video-capture/"><u>[New] In 2024, Grab & Reel The Essential 5 Apps for Social Media Video Capture</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-live-video-on-fb-audience-focused-guide/"><u>[New] Live Video on FB Audience-Focused Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-download-friends-8-top-rated-free-fb-extractors/"><u>[Updated] Download Friends 8 Top-Rated Free FB Extractors</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-master-your-media-best-ios-players-for-phones-and-tablets/"><u>[Updated] Master Your Media Best iOS Players for Phones & Tablets</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/analyzing-the-microsoft-surface-duos-performance-issues-and-steep-pricing/"><u>Analyzing the Microsoft Surface Duo's Performance Issues and Steep Pricing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/comparative-analysis-of-fb-video-formats-for-2024/"><u>Comparative Analysis of FB Video Formats for 2024</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/how-to-troubleshoot-and-fix-m3u8-playback-issues-in-google-chrome-on-windows-pcs-2024-update/"><u>How to Troubleshoot and Fix M3U8 Playback Issues in Google Chrome on Windows PCs - 2024 Update</u></a></li>
-<li><a href="https://video-capture.techidaily.com/snap-complete-web-panel/"><u>Snap Complete Web Panel</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-guide-converting-magic-lantern-mlv-videos-to-mp4-format/"><u>Ultimate Guide: Converting Magic Lantern MLV Videos to MP4 Format</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-digital-storytelling-with-facebook-slideshow-creation/"><u>[New] 2024 Approved Digital Storytelling with Facebook SlideShow Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-setup-to-screening-wirecasts-role-in-facebook-streaming/"><u>[New] 2024 Approved From Setup to Screening Wirecast’s Role in Facebook Streaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-intermittent-video-playback-fix-and-resolve-issues/"><u>[New] 2024 Approved Intermittent Video Playback - Fix & Resolve Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-quick-guide-to-free-online-facebook-video-to-mp4-converter-hd-tutorial/"><u>[Updated] Quick Guide to Free Online Facebook Video to MP4 Converter (HD) Tutorial</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-spy-on-fb-chronicles-discreetly-for-2024/"><u>[Updated] Spy on FB Chronicles Discreetly for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-terrain-trove-top-maps-for-treasure-seeking-for-2024/"><u>[Updated] Terrain Trove Top Maps for Treasure Seeking for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/10-new-windows-11-perks-after-version-update/"><u>10 New Windows 11 Perks After Version Update</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elite-motion-effect-bundles/"><u>Elite Motion Effect Bundles</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/gecata-game-recorder-review-complete-for-2024/"><u>Gecata Game Recorder Review [Complete] for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-samsung-galaxy-m34-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Samsung Galaxy M34 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-look-at-the-asrock-b7n60m-pro-rs-chipset-board-cost-effective-and-rich-in-m2-slots/"><u>In-Depth Look at the ASRock B7n60M Pro RS Chipset Board: Cost-Effective and Rich in M.2 Slots</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-silence-effective-solutions-for-audio-problems-in-the-it-takes-two-game-on-pc/"><u>Overcoming Silence: Effective Solutions for Audio Problems in the It Takes Two Game on PC</u></a></li>
 </ul></div>
 

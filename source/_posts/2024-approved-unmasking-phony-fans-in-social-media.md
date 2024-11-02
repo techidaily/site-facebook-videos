@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unmasking Phony Fans in Social Media\""
-date: 2024-08-09T21:41:12.125Z
-updated: 2024-08-10T21:41:12.125Z
+date: 2024-10-26T16:22:52.414Z
+updated: 2024-11-02T16:16:14.286Z
 tags:
   - ai video
   - ai facebook
@@ -45,8 +45,12 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
@@ -54,29 +58,35 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Calculate Engagement rate
 
 [Engagement rate](https://trackmaven.com/marketing-dictionary/engagement-rate/) is nothing but the average number of engagements received by influencer for each post divided by number of followers. When an influencer has below 1% engagement, it implies involvement of few fake followers in certain amount. So, it is prevalent to track the numbers and do the calculation, so that there is no chance of fake followers on Facebook that can ruin your business.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
 
@@ -88,23 +98,14 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we have realized that finding fake Facebook followers is not that tough, if you learn the right way to do. The above mentioned points in the article would assist you in getting the best out of Facebook fake follower tracking and resolving.
 
 Knowing these aspects, you will be able to protect your brand page and garner genuine followers on Facebook without any hassle. Ensure that while picking a third party tool, opt for a trustworthy one so that your Facebook page gains better results and genuine followers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -113,8 +114,6 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -122,5 +121,20 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-creators-guide-to-understanding-youtube-policies/"><u>[New] In 2024, A Creator’s Guide to Understanding YouTube Policies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fb-content-design-the-right-orientation-for-your-videos/"><u>[New] In 2024, FB Content Design The Right Orientation for Your Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-optimize-call-transcription-4-proven-tips-for-fb-video-calls-for-2024/"><u>[New] Optimize Call Transcription 4 Proven Tips for FB Video Calls for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-simplifying-visual-transformations-utilizing-luts-for-obs-videos/"><u>[New] Simplifying Visual Transformations Utilizing LUTs for OBS Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-box-office-hype-films/"><u>[New] Ultimate Box Office Hype Films</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-buyers-path-to-a-top-360-camera-purchase-guide/"><u>[Updated] Buyer's Path to a Top 360 Camera Purchase Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-edit-videos-with-vimeo-create-in-2024/"><u>[Updated] How to Edit Videos with Vimeo Create, In 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-find-your-favorite-general-knowledge-quiz-channel-of-the-year-24/"><u>[Updated] In 2024, Find Your Favorite General Knowledge Quiz Channel of the Year, '24</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-your-fb-videos-instant-mp4-download/"><u>[Updated] Unlock Your FB Videos - Instant MP4 Download</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-anticipated-shifts-in-social-media-marketing-fb-ad-trends-of-24/"><u>2024 Approved The Anticipated Shifts in Social Media Marketing FB Ad Trends of '24</u></a></li>
+<li><a href="https://common-error.techidaily.com/african-americans/"><u>African Americans</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/dashboard-directions-entering-google-meet-pcmobile-for-2024/"><u>Dashboard Directions Entering Google Meet (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-mastering-the-location-of-youtubes-creator-dashboard/"><u>In 2024, Mastering the Location of YouTube's Creator Dashboard</u></a></li>
+</ul></div>
 

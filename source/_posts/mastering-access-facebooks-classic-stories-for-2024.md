@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Access  Facebook's Classic Stories for 2024\""
-date: 2024-10-20T19:41:12.344Z
-updated: 2024-10-27T17:48:18.915Z
+date: 2024-11-01T16:24:43.445Z
+updated: 2024-11-02T16:26:00.762Z
 tags:
   - ai video
   - ai facebook
@@ -43,13 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -63,6 +56,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -80,13 +80,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
@@ -96,10 +89,10 @@ You can find and see the old stories on Facebook with the help of the archived s
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
@@ -115,10 +108,10 @@ An old highlighted story shared by your friend would appear on your friend’s p
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -171,6 +164,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -186,20 +186,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-audiovisual-elements-in-eye-catching-fb-advertising-for-2024/"><u>[New] Audiovisual Elements in Eye-Catching FB Advertising for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-basics-of-effective-fb-ad-cta-design-for-2024/"><u>[New] Basics of Effective FB Ad CTA Design for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-can-i-share-videos-to-instagram-in-2024/"><u>[New] How Can I Share Videos to Instagram, In 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimizing-your-youtube-stream-with-wirecast/"><u>[New] In 2024, Optimizing Your YouTube Stream with WireCast</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastery-in-muting-facebook-videos-mobilelaptop/"><u>[Updated] 2024 Approved Mastery in Muting Facebook Videos (Mobile/Laptop)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-best-facebook-video-downloader-and-addons-for-firefox/"><u>[Updated] In 2024, Best Facebook Video Downloader And Addons for Firefox</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-innovative-virtual-bike-trails-unveiled/"><u>[Updated] Innovative Virtual Bike Trails Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-art-of-building-engaging-facebook-moment-slides/"><u>2024 Approved The Art of Building Engaging Facebook Moment Slides</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-revenue-breakdown-cpm-insights/"><u>2024 Approved YouTube Revenue Breakdown CPM Insights</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-m34-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy M34</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-hardware-with-tom-a-comprehensive-guide/"><u>Exploring Hardware with Tom: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fixing-mistaken-face-id-in-facebook-chats/"><u>Fixing Mistaken Face ID in Facebook Chats</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-nokia-c12-plus-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass Nokia C12 Plus’s lock screen pattern, PIN or password</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-stepwise-guide-for-discovering-recent-watch-history-on-fb/"><u>In 2024, Stepwise Guide for Discovering Recent Watch History on FB</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-most-engaging-ar-games-for-phones-revealed-for-2024/"><u>The Most Engaging AR Games for Phones Revealed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-dial-up-discovery-mastering-quick-search-on-social-media-for-2024/"><u>[New] Dial-Up Discovery Mastering Quick Search on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fix-disrupted-video-streams-in-instagram-reels/"><u>[New] Fix Disrupted Video Streams in Instagram Reels</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-optimizedusageofyourwebcamrecorder/"><u>[New] In 2024, OptimizedUsageOfYourWebcamRecorder</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-seamless-blend-enhancing-your-ae-projects-with-luts/"><u>[New] In 2024, The Seamless Blend Enhancing Your AE Projects with LUTs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-cyberspace-enhancer-facebook-story-backup-tool/"><u>[Updated] 2024 Approved Cyberspace Enhancer Facebook Story Backup Tool</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-demystifying-the-purpose-and-use-of-a-blue-status-symbol-on-facebook/"><u>[Updated] 2024 Approved Demystifying the Purpose and Use of a Blue Status Symbol on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-guide-to-proficient-periscope-operation/"><u>[Updated] Complete Guide to Proficient Periscope Operation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fix-missing-fb-watch-icon-quick-guide/"><u>[Updated] In 2024, Fix Missing FB Watch Icon - Quick Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tailoring-your-content-for-split-screen-audiences-via-facebook-lives-for-2024/"><u>[Updated] Tailoring Your Content for Split Screen Audiences via Facebook Lives for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oneplus-11-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-capture-and-relive-essential-win10-game-techniques/"><u>2024 Approved Capture and Relive Essential Win10 Game Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-solo-journey-through-the-world-of-3d-printing-in-3dr/"><u>2024 Approved Solo Journey Through the World of 3D Printing in '3DR'</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-v29-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo V29</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/social-avatar-customization-concocting-caricatured-images-for-2024/"><u>Social Avatar Customization Concocting Caricatured Images for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-vivo-x90s-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Vivo X90S FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/your-wayback-machine-facebooks-story-archives-at-your-service-for-2024/"><u>Your Wayback Machine Facebook’s Story Archives at Your Service for 2024</u></a></li>
 </ul></div>
 

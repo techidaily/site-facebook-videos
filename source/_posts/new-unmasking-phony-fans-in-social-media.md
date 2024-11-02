@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking Phony Fans in Social Media"
-date: 2024-10-24T16:36:00.115Z
-updated: 2024-10-27T16:07:47.926Z
+date: 2024-10-31T16:11:09.611Z
+updated: 2024-11-02T16:21:49.324Z
 tags:
   - ai video
   - ai facebook
@@ -40,36 +40,15 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
 
@@ -81,6 +60,19 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
@@ -90,6 +82,26 @@ For tracking fake followers on Facebook, you need to know their location. Knowin
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -102,10 +114,10 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -123,20 +135,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-effortless-extraction-of-facebook-hd-vids-for-2024/"><u>[New] Effortless Extraction of Facebook HD Vids for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-data-into-strategic-content-moves/"><u>[New] Transforming Data Into Strategic Content Moves</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-crafting-viral-covers-for-your-facebook-profile/"><u>[Updated] 2024 Approved Crafting Viral Covers for Your Facebook Profile</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-zero-dollars-free-techniques-for-desktop-snaps/"><u>[Updated] 2024 Approved Zero Dollars Free Techniques for Desktop Snaps</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-captivating-hdr-portraits-for-the-art-enthusiast/"><u>[Updated] Captivating HDR Portraits for the Art Enthusiast</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-complete-look-at-dji-inspire-1-explored/"><u>[Updated] Complete Look at DJI Inspire 1 Explored</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-charting-success-top-15-investment-educational-videos/"><u>[Updated] In 2024, Charting Success Top 15 Investment Educational Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-tips-for-timely-termination-of-social-media-screenshots/"><u>[Updated] In 2024, Tips for Timely Termination of Social Media Screenshots</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-saving-social-media-stories-chromes-top-5-tools-for-2024/"><u>[Updated] Saving Social Media Stories Chromes' Top 5 Tools for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-efficient-screen-capture-on-mac-with-ingenious-shortcuts/"><u>2024 Approved Efficient Screen Capture on Mac with Ingenious Shortcuts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-ultimate-guide-to-rapidly-discover-friends/"><u>2024 Approved The Ultimate Guide to Rapidly Discover Friends</u></a></li>
-<li><a href="https://network-issues.techidaily.com/end-of-switchable-graphics-problem-a-success-for-windows-11-users/"><u>End of Switchable Graphics Problem - A Success for Windows 11 Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/expert-methods-for-weaving-in-live-streaming-content-online-for-2024/"><u>Expert Methods for Weaving in Live Streaming Content Online for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-iphone-7-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My iPhone 7 After Forgetting my PIN Code? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-marketers-best-friend-20-words-that-work-wonders/"><u>In 2024, The Marketer's Best Friend - 20 Words That Work Wonders</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-do-i-access-the-full-range-of-shared-media-on-messenger/"><u>[New] 2024 Approved How Do I Access the Full Range of Shared Media on Messenger?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-keeping-track-of-facetime-with-facebooks-live-feature/"><u>[New] 2024 Approved Keeping Track of FaceTime with Facebook's Live Feature</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-accelerated-content-acquisition-with-funimate/"><u>[New] Accelerated Content Acquisition with Funimate</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-elevate-your-social-media-hd-1080p-live-videos/"><u>[New] Elevate Your Social Media HD (1080P) Live Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-social-shackles-hilarious-fb-incarceration-moments-for-cheer/"><u>[New] Top Social Shackles Hilarious FB Incarceration Moments for Cheer</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-boosting-reach-transferring-fb-videos-on-whatsapp-efficiently/"><u>[Updated] 2024 Approved Boosting Reach Transferring FB Videos on WhatsApp Efficiently</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-shape-shifting-photos-creating-effective-warps-and-curves-in-ps/"><u>[Updated] Shape-Shifting Photos Creating Effective Warps & Curves in PS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/free-mobile-image-editing-tools-top-10-overlay-app-list/"><u>Free Mobile Image Editing Tools - Top 10 Overlay App List</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-of-iphone-xr-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-extensive-insights-deconstructing-the-dji-inspire-1/"><u>In 2024, Extensive Insights Deconstructing the DJI Inspire 1</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-what-to-do-when-you-spot-your-own-face-during-a-call/"><u>In 2024, What to Do When You Spot Your Own Face During a Call?</u></a></li>
+<li><a href="https://app-tips.techidaily.com/leveraging-open-source-to-draw-global-tech-pioneers-insights-from-zdnet/"><u>Leveraging Open Source to Draw Global Tech Pioneers - Insights From ZDNet</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/optimized-with-cookiebot-technology-for-superior-data-collection-and-analysis/"><u>Optimized with Cookiebot Technology for Superior Data Collection and Analysis</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tackling-live-video-interruptions-on-social-media-fb/"><u>Tackling Live Video Interruptions on Social Media (FB)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/ultimate-guide-to-the-top-8-discreet-content-collectors/"><u>Ultimate Guide to the Top 8 Discreet Content Collectors</u></a></li>
+<li><a href="https://driver-install.techidaily.com/ultimate-performance-driver-nvidias-wintixt/"><u>Ultimate Performance Driver - NVIDIA's WinTiXT</u></a></li>
 </ul></div>
 

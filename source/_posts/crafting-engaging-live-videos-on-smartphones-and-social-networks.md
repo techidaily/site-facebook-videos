@@ -1,7 +1,7 @@
 ---
 title: "Crafting Engaging Live Videos on Smartphones & Social Networks"
-date: 2024-08-09T21:39:56.632Z
-updated: 2024-08-10T21:39:56.632Z
+date: 2024-10-29T16:10:01.249Z
+updated: 2024-11-02T16:16:58.717Z
 tags:
   - ai video
   - ai facebook
@@ -27,39 +27,24 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
  Facebook has recently launched a live feature which would allow the users to broadcast the important moments of their live to a large audience. The live feature on Facebook would allow you to reach out to the maximum number of audience who would be able to watch your videos live on Facebook. Every time you go live on Facebook your followers will be receiving notifications so that tune in to your broadcast just on time. There are loads of filters which you can apply to make your videos even more engaging.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Steps to go live using Facebook for Android and iOS
 
  1\. The first thing you need to do is log on to your Facebook account and click the **'whats on your mind'** button right above the Newsfeed icon on the FB app.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Feed](https://images.wondershare.com/filmora/article-images/news-feed.jpg)
 
  2\. Now click the **‘Live Video’** button which comes in the shape of a person icon with a broadcast sign on the head. If you are using iOS then tap on **‘Live Video’**.
 
  3\. In the 3rd step you are required to type a brief description of the video you are posting. (However this is optional).
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![optional description](https://images.wondershare.com/filmora/article-images/optional-description.jpg)
 
  4\. Now you need to select an audience for your video- you can make it public, friends or customize your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![audience](https://images.wondershare.com/filmora/article-images/audience.jpg)
 
  5\. Now you just need to tap on the **‘Go Live’** icon and start broadcasting.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![broadcast](https://images.wondershare.com/filmora/article-images/broadcast.jpg)
 
  6\. While streaming you will see a **‘Live’** button in red colour right on top. Clicking on this button would allow you to see the length of your broadcast. Just below this you will be seeing the comments from your viewers.
@@ -77,17 +62,12 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 ![further editng](https://images.wondershare.com/filmora/article-images/further-editng.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Notes and tips
 
  1\. You need to keep in mind that the maximum time limit for broadcasting on Facebook is 30 minutes.
@@ -100,13 +80,18 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -115,5 +100,23 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-masterful-mp4-transformation-tools-facebook-edition/"><u>[New] 2024 Approved Masterful MP4 Transformation Tools (Facebook Edition)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-complete-guide-to-record-google-meet-for-free-as-hostpaticipants-for-2024/"><u>[New] Complete Guide to Record Google Meet for Free [As Host/Paticipants] for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-mastery-manual-for-dynamic-distracting-filters/"><u>[New] In 2024, Mastery Manual for Dynamic, Distracting Filters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-journey-through-the-past-with-these-leading-gba-console-emulators-for-windows-computers-for-2024/"><u>[New] Journey Through the Past With These Leading GBA Console Emulators for Windows Computers for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-precision-planning-the-guide-to-online-collaboration/"><u>[New] Precision Planning The Guide to Online Collaboration</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-directly-sending-youtube-videos-to-facebook-networks/"><u>[Updated] Directly Sending YouTube Videos to Facebook Networks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-inside-look-best-practices-for-splitting-audiences-with-fb-live/"><u>[Updated] Inside Look Best Practices for Splitting Audiences with FB Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-demystifying-data-a-beginners-guide-to-facebook-insights/"><u>2024 Approved Demystifying Data A Beginner's Guide to Facebook Insights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/digital-migration-made-simple-top-5-file-transfer-routes-for-computers/"><u>Digital Migration Made Simple Top 5 File Transfer Routes for Computers</u></a></li>
+<li><a href="https://fox-making.techidaily.com/how-to-compile-and-convert-multiple-pdfs-into-an-engaging-flip-book-with-flipbuilder/"><u>How to Compile and Convert Multiple PDFs Into an Engaging Flip Book with FlipBuilder</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-honor-magic-5-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Honor Magic 5 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/real-time-transmission-of-recorded-content-on-social-media-via-facebook/"><u>Real-Time Transmission of Recorded Content on Social Media via Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-key-ingredients-of-a-powerful-podcast-launch-video/"><u>The Key Ingredients of a Powerful Podcast Launch Video</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/top-tips-to-flawlessly-integrate-timely-text-in-your-fb-videos-for-2024/"><u>Top Tips to Flawlessly Integrate Timely Text in Your FB Videos for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-time-lapse-mastery-top-video-editing-software-free-and-paid-for-2024/"><u>Updated Time-Lapse Mastery Top Video Editing Software (Free & Paid) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/violating-copyrights-in-video-posting-what-are-the-consequences/"><u>Violating Copyrights in Video Posting What Are the Consequences?</u></a></li>
+</ul></div>
 

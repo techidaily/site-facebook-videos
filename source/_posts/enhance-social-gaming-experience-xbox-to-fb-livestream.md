@@ -1,7 +1,7 @@
 ---
 title: "\"Enhance Social Gaming Experience  Xbox to FB Livestream\""
-date: 2024-08-09T21:38:32.925Z
-updated: 2024-08-10T21:38:32.925Z
+date: 2024-11-01T16:06:28.244Z
+updated: 2024-11-02T16:08:41.975Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://www.lifewire.com/thmb/kVXxldjY4nN2hgMn5Y-hRfsNJOk=/540x405/fi
 
 # How to live stream xbox to facebook live
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,10 +44,14 @@ The Windows 10 OS comes with special Xbox features which includes the capacity t
 
 a. For this you need to go to the settings of your Xbox and then choose Preferences. Now click on the box where it says “Allow game streaming to other devices”.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![game streaming](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
@@ -64,9 +65,6 @@ b. Now go to the panel on the left hand side and click on **‘connect’**.
 
 c. Your home network is going to be scanned by the Xbox software for any Xbox console present. Select the name of the console with which you would like to connect. Ensure that the console and the Windows pc are on one network.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Select the name](https://images.wondershare.com/filmora/article-images/select-the-name.jpg)
 
 d. Once the connection is established the icons would indicate that and you will find new power, streaming and media remote options. You will also be able to remotely control your console. Now the controller and the Click Stream needs to be connected so as to play your Xbox games on your Windows computer.
@@ -76,6 +74,13 @@ d. Once the connection is established the icons would indicate that and you will
 ### Method 2:Streaming Xbox to computer with a capture card
 
 You can find many [capture cards](https://www.elgato.com/en/gaming) in the market which would allow you to stream your Xbox onto your computer without altering its quality. HD60 Pro is one of those capture cards which offers perfect streaming and optimum control for an enhanced gaming experience.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Use Wirecast or OBS to stream your desktop to Facebook
 
@@ -87,15 +92,14 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons**\- It doesn’t offer any support and it would take you a long time to master the settings.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![OBS](https://images.wondershare.com/filmora/article-images/obs.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
 
@@ -103,14 +107,15 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 
 **Cons** It is way too expensive for normal gamers.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -119,8 +124,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -128,5 +131,22 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-on-the-spot-screen-savers-facebook-edition/"><u>[New] In 2024, On-the-Spot Screen Savers - Facebook Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-pioneering-video-player-apps-for-tiktok-and-vimeo-for-2024/"><u>[New] Pioneering Video Player Apps for TikTok & Vimeo for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-easy-snapchat-videos-with-multiple-snaps/"><u>[New] Step-by-Step Easy Snapchat Videos with Multiple Snaps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-pros-playbook-blurring-the-boundary-between-work-and-home-spaces/"><u>[Updated] In 2024, The Pro's Playbook Blurring the Boundary Between Work and Home Spaces</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-top-picks-for-downloading-fb-videos-on-firefox-the-ultimate-addons-and-plugins-list-2023-for-2024/"><u>[Updated] Top Picks for Downloading FB Videos on Firefox The Ultimate Addons and Plugins List, 2023 for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/100-safe-audio-download-techniques-from-youtube/"><u>100% Safe Audio Download Techniques From YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/best-11-tools-for-perfecting-your-fb-profile-pics-for-2024/"><u>Best 11 Tools For Perfecting Your FB Profile Pics for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966332-9781088235423-el-brillo-de-la-verdad/"><u>El Brillo de la Verdad | Free Book</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/essential-arsenal-for-modern-enterprise-top-trending-gadgets-and-tech-to-own-for-2024/"><u>Essential Arsenal for Modern Enterprise Top Trending Gadgets and Tech To Own for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-the-lenovo-yoga-pro-9i-a-detailed-look-at-resilient-buttons-and-compact-frame/"><u>Exploring the Lenovo Yoga Pro 9I - A Detailed Look at Resilient Buttons and Compact Frame</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-c55-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco C55 Device SIM</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-effortless-access-to-videos-find-your-perfect-chromium-extension-for-fb-vids/"><u>In 2024, Effortless Access to Videos Find Your Perfect Chromium Extension for FB Vids</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-realme-11-proplus-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Realme 11 Pro+</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-10-games-just-like-stardew-valley/"><u>Top 10 Games Just Like Stardew Valley</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/windows-oshdd/"><u>Windows OSでファイル同期：HDDマウントの復活方法</u></a></li>
+</ul></div>
 

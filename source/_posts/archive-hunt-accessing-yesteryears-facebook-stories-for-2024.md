@@ -1,7 +1,7 @@
 ---
 title: "\"Archive Hunt  Accessing Yesteryear's Facebook Stories for 2024\""
-date: 2024-08-09T21:40:21.764Z
-updated: 2024-08-10T21:40:21.764Z
+date: 2024-10-31T16:16:11.159Z
+updated: 2024-11-02T16:17:30.147Z
 tags:
   - ai video
   - ai facebook
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/58f32787f189e5c81c275c54898b5f9f19257cc09
 
 # How to See Old Stories on Facebook: Find Story Archive Easily
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -40,14 +37,18 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
@@ -57,25 +58,16 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 **Step 2:** Then, on the Profile Page, select the “More” dropdown button.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
 You can find and see the old stories on Facebook with the help of the archived section. Here following are the easy steps you could follow:
@@ -90,10 +82,20 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -110,6 +112,13 @@ The only chance is that if your friend has uploaded those stories on highlights 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -161,13 +170,18 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -176,5 +190,26 @@ Follow @Shanoon Cox
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mastering-the-art-of-social-media-videos-for-maximum-reach/"><u>[New] 2024 Approved Mastering the Art of Social Media Videos for Maximum Reach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-ultimate-instagram-live-mastering-video-chats/"><u>[New] In 2024, Ultimate Instagram Live Mastering Video Chats</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-fb-video-upload-pc-and-android-guide/"><u>[Updated] 2024 Approved Mastering FB Video Upload PC & Android Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-blocking-facebooks-advertising-overload-in-real-time-for-2024/"><u>[Updated] Blocking Facebook's Advertising Overload in Real Time for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-capture-every-moment-essential-ways-for-google-meet-recordings/"><u>[Updated] Capture Every Moment Essential Ways for Google Meet Recordings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences-for-2024/"><u>[Updated] From Basic to Brilliant Top 100+ Biographies that Captivate Audiences for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-anonymous-artifacts-auction-2023-the-quest-for-digital-secrecy/"><u>[Updated] In 2024, Anonymous Artifacts Auction-2023 The Quest for Digital Secrecy</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fb-chronicles-the-hidden-viewer/"><u>[Updated] In 2024, FB Chronicles The Hidden Viewer</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-the-nuances-of-using-switch-pro-controller-on-steam/"><u>[Updated] In 2024, Navigating the Nuances of Using Switch Pro Controller on Steam</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-discovering-if-muted-on-snapstreak/"><u>2024 Approved Discovering If Muted on Snapstreak</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-inside-outlook-unveiling-vrs-downfalls/"><u>2024 Approved Inside Outlook Unveiling VR's Downfalls</u></a></li>
+<li><a href="https://windows11.techidaily.com/chkdsk-sfc-and-dism-windows-tools-unveiled-and-explained/"><u>CHKDSK, SFC & DISM: Windows Tools Unveiled and Explained</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-quick-profile-retrieval-on-facebook/"><u>In 2024, Mastering Quick Profile Retrieval on Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unveiling-the-best-3-video-hosts-post-youtube-era/"><u>In 2024, Unveiling the Best 3 Video Hosts Post-YouTube Era</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/maximizing-social-interaction-with-innovative-fb-slideshow-techniques-for-2024/"><u>Maximizing Social Interaction with Innovative FB Slideshow Techniques for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/regaining-control-fixing-menu-item-unresponsiveness/"><u>Regaining Control: Fixing Menu Item Unresponsiveness</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-art-of-cross-promotion-twitters-to-facebooks-for-2024/"><u>The Art of Cross-Promotion Twitters to Facebooks for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-the-art-of-iphone-photography-skill-building-tips-for-2024/"><u>Unlock the Art of iPhone Photography Skill-Building Tips for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726030382895-windows/"><u>コヒーレントな音量を実現する - Windows用ガイド</u></a></li>
+</ul></div>
 

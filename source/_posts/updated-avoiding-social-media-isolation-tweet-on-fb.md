@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Avoiding Social Media Isolation  Tweet on FB\""
-date: 2024-10-12T08:44:05.100Z
-updated: 2024-10-15T21:33:48.310Z
+date: 2024-10-28T16:31:27.267Z
+updated: 2024-11-02T16:15:58.530Z
 tags:
   - ai video
   - ai facebook
@@ -39,42 +39,48 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 
 ![post tweet on facebook 1](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Once you login to your Twitter account, tap on your profile picture on the top right corner of the screen, next to the ‘Tweet' tab.
 2. Now, from the dropdown list shown to you, click ‘Settings and privacy' and then open the ‘Apps' tab from the left panel.
 
 ![post tweet on facebook 2](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now, hit the ‘Connect to Facebook' option under Applications. You will be prompted with a popup to log in, in case you haven't logged in to Facebook on the same browser. Enter the details and log in.
 
 ![post tweet on facebook 3](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-3.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Upon being prompted for permission from Twitter to access your Facebook information, click ‘Continue as \[Facebook Profile/user name\]' to continue.
 
 ![post tweet on facebook 4](https://images.wondershare.com/filmora/article-images/post-tweet-on-facebook-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Now you need to configure the ‘Select the privacy settings' to decide who is going to receive your Twitter updates on Facebook. When you post Tweets to Facebook, by default your friends will get to see them.
 2. Now, you need to tap ‘OK' and finish the process. The Tweets and Retweets will be posted to your Facebook with your Twitter username, though the replies for the Tweets won't be posted in Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Tools for managing your social media accounts
 
@@ -187,10 +193,16 @@ thumbnail: https://thmb.techidaily.com/81ebbf817b363fd779177ff51390b7d133960a108
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -208,18 +220,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high-for-2024/"><u>[New] Break Through the Crowd Key YouTube SEO Strategies to Rank High for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-enhancing-digital-meetings-focus-up-techniques/"><u>[New] Enhancing Digital Meetings Focus Up Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-transform-online-sales-with-these-premier-15-facebook-monitoring-tools/"><u>[New] In 2024, Transform Online Sales with These Premier 15 Facebook Monitoring Tools</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[Updated] 2024 Approved An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-revealed-the-10-most-reliable-android-and-ios-countdown-clocks-for-marriage-bliss/"><u>[Updated] 2024 Approved Revealed The 10 Most Reliable Android and iOS Countdown Clocks for Marriage Bliss</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-rising-above-vimeo-10-next-level-editing-applications/"><u>[Updated] 2024 Approved Rising Above Vimeo 10 Next-Level Editing Applications</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-elevating-the-profile-game-top-strategies-for-compelling-social-media-profiles-for-2024/"><u>[Updated] Elevating the Profile Game Top Strategies for Compelling Social Media Profiles for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-harnessing-the-power-of-filmora-for-youtube-video-promotions/"><u>[Updated] Harnessing the Power of Filmora for YouTube Video Promotions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-iphones-panoramic-videos-explained-for-fb-sharing/"><u>[Updated] In 2024, IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-epson-xp-400-driver-step-by-step/"><u>Download Epson XP 400 Driver | Step by Step</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-itel-a60-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Itel A60 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-amplify-your-social-media-reach-through-judicious-use-of-hash-tags-on-facebook/"><u>In 2024, How to Amplify Your Social Media Reach Through Judicious Use of Hash Tags on Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/online-alter-ego-artistry-drawing-a-fancy-profile-for-2024/"><u>Online Alter-Ego Artistry Drawing a Fancy Profile for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-craft-captivating-facebook-coverage/"><u>[New] In 2024, Craft Captivating Facebook Coverage</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-hasty-hacks-for-enhancing-personal-movie-making/"><u>[New] In 2024, Hasty Hacks for Enhancing Personal Movie Making</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unearthing-old-facebook-tales-an-easy-to-follow-device-method/"><u>[New] In 2024, Unearthing Old Facebook Tales An Easy-to-Follow Device Method</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximizing-your-youtube-income-through-understanding-cpm-for-2024/"><u>[New] Maximizing Your YouTube Income Through Understanding CPM for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-watch-facebook-videos-on-my-apple-tv-in-2024/"><u>[Updated] How to Watch Facebook Videos on My Apple TV, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-from-concept-to-measurement-configuring-and-assessing-facebooks-in-stream-ads/"><u>[Updated] In 2024, From Concept to Measurement Configuring and Assessing Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>2024 Approved Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209601377-9781547568727-el-libro-de-los-pensamientos-volumen-2/"><u>El libro de los pensamientos Volumen 2 | Free Book</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-iphone-xs-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your iPhone XS Apple ID and Apple Pay</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>In 2024, The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/instant-fb-video-to-high-quality-mp4/"><u>Instant FB Video to High-Quality MP4</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/mastering-the-fundamentals-a-complete-srt-overview/"><u>Mastering the Fundamentals A Complete SRT Overview</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/the-ai-face-off-enhanced-gemini-vs-plush-gptplus/"><u>The AI Face-Off: Enhanced Gemini Vs. Plush GPT+</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/what-is-snapchat-spotlight-how-to-use-it/"><u>What Is Snapchat Spotlight? How to Use It?</u></a></li>
 </ul></div>
 

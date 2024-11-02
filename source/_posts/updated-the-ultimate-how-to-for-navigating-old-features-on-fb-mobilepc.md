@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for Navigating Old Features on FB, Mobile/PC\""
-date: 2024-10-21T18:57:36.963Z
-updated: 2024-10-27T18:37:38.477Z
+date: 2024-10-26T16:21:12.011Z
+updated: 2024-11-02T16:14:25.135Z
 tags:
   - ai video
   - ai facebook
@@ -56,10 +56,10 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +77,10 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -102,10 +102,10 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -147,10 +147,10 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,19 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-essential-tips-for-designing-engaging-fb-video-covers-for-2024/"><u>[New] Essential Tips for Designing Engaging FB Video Covers for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevate-engagement-escalate-ranks-on-fb-pages/"><u>[New] In 2024, Elevate Engagement, Escalate Ranks on FB Pages</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-8-best-practices-in-pc-and-microphone-sounds-logging-for-2024/"><u>[Updated] 8 Best Practices in PC and Microphone Sounds Logging for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-obs-studio-for-professional-gamers/"><u>[Updated] In 2024, OBS Studio for Professional Gamers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-comprehensible-guide-to-fb-page-rank-boosting/"><u>2024 Approved The Comprehensible Guide to FB Page Rank Boosting</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-xiaomi-redmi-note-12-pro-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Xiaomi Redmi Note 12 Pro 5G via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/best-vr-cycling-experiences-awaiting-you/"><u>Best VR Cycling Experiences Awaiting You</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-strengths-of-apples-tiny-tech-giant-in-depth-look-at-ipad-mini-5/"><u>Discovering the Strengths of Apple's Tiny Tech Giant: In-Depth Look at iPad Mini 5</u></a></li>
-<li><a href="https://driver-error.techidaily.com/find-and-fix-driver-issues-a-step-by-step-guide-for-windows-11-8-and-7-users/"><u>Find and Fix Driver Issues: A Step-by-Step Guide for Windows 11, 8 & 7 Users</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo G2? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-in-the-era-of-streaming-find-facebooks-video-treasure/"><u>In 2024, In the Era of Streaming, Find Facebook's Video Treasure</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-online-obsession-the-8-must-watch-titles/"><u>In 2024, Online Obsession The 8 Must-Watch Titles</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/inside-story-stock-pictures-and-their-internet-fame-for-2024/"><u>Inside Story Stock Pictures and Their Internet Fame for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/marketing-mastery-discerning-real-engagement-from-skewed-statistics/"><u>Marketing Mastery Discerning Real Engagement From Skewed Statistics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-insider-secrets-to-sharpen-your-photoshop-skills/"><u>[New] 2024 Approved Insider Secrets to Sharpen Your Photoshop Skills</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-streamline-broadcasting-going-from-xbox-to-fb-live/"><u>[New] Streamline Broadcasting Going From Xbox to FB Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-essential-guide-for-live-facebook-streams-pcmaclaptop/"><u>[New] The Essential Guide for Live Facebook Streams (PC/Mac/Laptop)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-hastening-social-media-sharing-between-fb-and-tiktok/"><u>[Updated] In 2024, Hastening Social Media Sharing Between FB and TikTok</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-dive-into-the-deep-end-of-facebook-meme-culture/"><u>2024 Approved Dive Into The Deep End of Facebook Meme Culture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook/"><u>2024 Approved Top 20 Moments of Laughter Best FB Jail Gems for a Sunny Outlook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-huawei-nova-y91-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Huawei Nova Y91 support AVCHD video?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-honor-magic-v2-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Honor Magic V2 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reinstate-absence-of-key-dll-mfc71u-in-os/"><u>How to Reinstate: Absence of Key DLL – Mfc71u in OS</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mp3wav-mp3wav2024/"><u>MP3/WAV両方に対応 結合拡張MP3・WAVソフトウェア2024年版フリーダウンロード</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/optimizing-your-fb-video-ads-20-best-tips-for-success-for-2024/"><u>Optimizing Your FB Video Ads 20 Best Tips for Success for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-xc0f1103f-flaw-with-nvidias-windows-software/"><u>Overcoming XC0F1103F Flaw with Nvidia's Windows Software</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-pc-issues-with-halo-infinite-tips-and-tricks-for-stability/"><u>Resolving PC Issues with Halo Infinite - Tips and Tricks for Stability</u></a></li>
 </ul></div>
 
