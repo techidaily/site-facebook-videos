@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
-date: 2024-10-28T16:27:08.521Z
-updated: 2024-11-02T16:02:40.280Z
+date: 2024-11-04T04:46:51.722Z
+updated: 2024-11-07T17:19:57.948Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis: Testing and Review of TP-Link's RE5 Groofer Extender"
@@ -36,6 +36,13 @@ Lifewire / Kelsey Simon
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -72,13 +79,6 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
@@ -92,13 +92,6 @@ Harran is a whole different city at night.
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -116,14 +109,14 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Graphics: Attention to detail**
 
@@ -133,31 +126,31 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<span id="1304648">
+<span id="1374820">
 					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -170,6 +163,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +192,22 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-vidharvest-instagram-live-fb/"><u>[New] In 2024, VidHarvest Instagram Live (FB)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unveiling-the-secrets-to-successful-social-media-film-making-for-2024/"><u>[New] Unveiling the Secrets to Successful Social Media Film Making for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-investigating-fb-video-shape-variance/"><u>[Updated] 2024 Approved Investigating FB Video Shape Variance</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-neo-theater-narratives-virtual-realms/"><u>[Updated] 2024 Approved Neo-Theater Narratives Virtual Realms</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ace-circular-designs-and-spherical-structures-in-mc/"><u>[Updated] In 2024, Ace Circular Designs & Spherical Structures in MC</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-tracking-and-boosting-identifying-the-best-tools-for-instagram-analysis/"><u>[Updated] In 2024, Tracking and Boosting Identifying the Best Tools for Instagram Analysis</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlocking-hidden-social-content-where-are-your-vids/"><u>[Updated] In 2024, Unlocking Hidden Social Content Where Are Your Vids?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-nightly-serenity-with-asmr-top-choices-to-listen-to-for-2024/"><u>[Updated] Nightly Serenity with ASMR Top Choices to Listen To for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-apple-iphone-7-plus-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on Apple iPhone 7 Plus</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/community-shared-music-collections-copyright-free/"><u>Community-Shared Music Collections (Copyright-Free)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fb-moments-snappy-storytime-for-2024/"><u>FB Moments Snappy Storytime for 2024</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/how-to-restore-deleted-photos-from-your-sd-card-without-software-a-comprehensive-guide/"><u>How To Restore Deleted Photos From Your SD Card Without Software - A Comprehensive Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-v27-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on V27</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-aspect-ratio-preferences-on-facebook-vids/"><u>In 2024, Aspect Ratio Preferences on Facebook Vids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-cyberspace-companion-fb-stories-saver/"><u>In 2024, Cyberspace Companion FB Stories Saver</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-making-a-lasting-impression-with-profile-clips/"><u>In 2024, Making a Lasting Impression with Profile Clips</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/mp3-repository-from-fb-posts-for-2024/"><u>MP3 Repository From Fb Posts for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/quick-guide-tackling-windows-10s-asus-drivers/"><u>Quick Guide: Tackling Windows 10'S Asus Drivers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/e-spectacle-youtubes-top-comedic-talent-list-for-2024/"><u>Satire Spectacle YouTube's Top Comedic Talent List for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-a-comprehensive-look-at-youtube-to-facebook-file-transfers/"><u>[New] 2024 Approved A Comprehensive Look at YouTube-to-Facebook File Transfers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-strategies-for-effortlessly-sharing-youtube-videos-on-fb/"><u>[New] 2024 Approved Strategies for Effortlessly Sharing YouTube Videos on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-ultimate-tutorial-uploading-360-degree-footage-on-facebook/"><u>[New] 2024 Approved Ultimate Tutorial Uploading 360-Degree Footage on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-the-art-of-earnings-facebooks-blue-icon-badge-for-2024/"><u>[New] Mastering the Art of Earnings Facebook’s Blue Icon Badge for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-android-and-iphones-hottest-social-tools-to-increase-fb-likes/"><u>[Updated] 2024 Approved Android & iPhone's Hottest Social Tools to Increase FB Likes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-copyright-strategy-for-online-video-creators/"><u>[Updated] 2024 Approved The Ultimate Copyright Strategy for Online Video Creators</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-breakthroughs-4-innovations-for-livetv-and-fb/"><u>[Updated] Broadcasting Breakthroughs 4 Innovations for LiveTV and FB</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-video-credits-pro-the-best-suggestions-1-6/"><u>[Updated] Free Video Credits Pro - The Best Suggestions #1-6</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-initiate-online-interactions-with-this-guide-to-facebook-registration-for-2024/"><u>[Updated] Initiate Online Interactions with This Guide to Facebook Registration for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streaming-tools-duel-go-with-obs-or-shadowplay/"><u>2024 Approved Streaming Tools Duel Go with OBS or ShadowPlay?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-deep-dive-into-wi-fi-generations-exploring-from-80211abg-to-be-and-ax-standards/"><u>A Deep Dive Into Wi-Fi Generations: Exploring From 802.11A/B/G to Be & Ax Standards</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/como-cambiar-trp-por-mpg-gratuitamente-usando-movavi-guia-paso-a-paso-para-convertir-imagenes-en-linea/"><u>Cómo Cambiar TRP Por MPG Gratuitamente Usando Movavi: Guía Paso a Paso Para Convertir Imágenes en Línea</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/compare-the-best-free-screen-recorders-on-windows-os/"><u>Compare the Best Free Screen Recorders on Windows OS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-steps-to-access-your-channels-eyeballs/"><u>Decoding Steps to Access Your Channel's Eyeballs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-the-new-samsung-galaxy-z-flip-6-costs-introduction-dates-and-innovative-features/"><u>Explore the New Samsung Galaxy Z Flip 6 – Costs, Introduction Dates & Innovative Features</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/innovative-fb-video-editors-the-best-20-tools-for-effective-ads-for-2024/"><u>Innovative FB Video Editors The Best 20 Tools for Effective Ads for 2024</u></a></li>
 </ul></div>
 

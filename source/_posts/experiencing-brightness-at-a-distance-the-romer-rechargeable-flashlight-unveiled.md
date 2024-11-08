@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
-date: 2024-10-27T16:23:07.266Z
-updated: 2024-11-02T16:30:11.923Z
+date: 2024-11-04T23:14:27.726Z
+updated: 2024-11-08T08:25:17.122Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
@@ -42,10 +42,16 @@ Lifewire / Gannon Burgett
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
@@ -71,10 +77,10 @@ Lifewire / Gannon Burgett
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Sleek and slim**
@@ -99,6 +105,13 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/pMX2VbLRSNxwb3iQ2XKJW_wDvKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_8Web-5c9003a546e0fb000187a367.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  When it arrived, the battery pack was roughly 50% charged according to the onboard battery life indicator. So, as we do with all battery packs we test, we drained it completely and charged it.
@@ -112,13 +125,6 @@ Lifewire / Gannon Burgett
  For testing the ChargeTech 27000mAh, we used an iPhone XS and Samsung Galaxy S8 Active for[mobile devices](https://www.lifewire.com/what-is-a-mobile-device-2373355) and a 2016 MacBook Pro 15-inch as the laptop of choice. With each device, we fully charged the battery pack and subsequently charged each device as many times as possible with a fully charged ChargeTech, making sure to drain the mobile device to zero before plugging it back in.
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -150,18 +156,18 @@ Lifewire / Gannon Burgett
 
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,24 +199,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-global-cloud-savings-summary-comparing-and-choosing-the-cheapest/"><u>[New] 2024 Approved Global Cloud Savings Summary Comparing and Choosing the Cheapest</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-optimize-your-social-media-presence-with-mobile-based-live-videos/"><u>[New] 2024 Approved Optimize Your Social Media Presence with Mobile-Based Live Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-choose-your-vlog-aspect-on-fb-verticalhorizontal-for-2024/"><u>[New] Choose Your Vlog Aspect on FB Vertical/Horizontal for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-ideal-choices-priority-6-fb-lite-vids-for-2024/"><u>[New] Ideal Choices Priority 6 FB Lite Vids for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebooks-blue-icon-decoding-its-meaning-in-chats/"><u>[New] In 2024, Facebook's Blue Icon Decoding Its Meaning in Chats</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-instant-adjustment-match-youtube-to-mac-aspects/"><u>[Updated] Instant Adjustment Match YouTube to Mac Aspects</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-step-by-step-guide-to-perfectly-pair-videos-and-stories-for-2024/"><u>[Updated] Step-by-Step Guide to Perfectly Pair Videos and Stories for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-fleeting-feed-of-fb-shorts/"><u>2024 Approved The Fleeting Feed of FB Shorts</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/domanda-e-risposta-sulla-funzionalita-ai-winxvideo-guida-completa-agli-utilizzi-comuni/"><u>Domanda E Risposta Sulla Funzionalità AI WinXVideo – Guida Completa Agli Utilizzi Comuni</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-innovations-the-eightfold-path-to-leveraging-chatgpt-for-imagery/"><u>Exploring Innovations: The Eightfold Path to Leveraging ChatGPT for Imagery</u></a></li>
-<li><a href="https://techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-apple-iphone-se-2022-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on Apple iPhone SE (2022)? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-bridging-social-gaps-efficiently-share-video-content-between-platforms/"><u>In 2024, Bridging Social Gaps Efficiently Share Video Content Between Platforms</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-sony-xperia-5-v-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Sony Xperia 5 V</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-beginners-pathway-to-leveraging-facebook-statistics/"><u>In 2024, The Beginner's Pathway to Leveraging Facebook Statistics</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-unleash-creativity-build-logos-using-free-template-inspiration/"><u>In 2024, Unleash Creativity Build Logos Using Free Template Inspiration</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/incorporating-tracks-into-online-visual-narratives-for-2024/"><u>Incorporating Tracks Into Online Visual Narratives for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-persistent-lag-issues-in-dota-2-expert-advice/"><u>Solving Persistent Lag Issues in Dota 2: Expert Advice</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-6-effortless-steps-to-add-social-media-live-content-online/"><u>[New] 2024 Approved 6 Effortless Steps to Add Social Media Live Content Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-quiet-browsing-of-fb-narratives/"><u>[New] 2024 Approved Quiet Browsing of FB Narratives</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-enhance-facebook-visibility-uploading-panoramic-content-on-mobile/"><u>[New] Enhance Facebook Visibility Uploading Panoramic Content on Mobile</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-engage-listeners-through-instagram-and-podcasts/"><u>[Updated] How To Engage Listeners Through Instagram & Podcasts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tips-for-uploading-videos-on-instagram/"><u>[Updated] Tips for Uploading Videos on Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-vestments-the-15-most-informative-financial-videos/"><u>[Updated] Viral Vestments The 15 Most Informative Financial Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023-fb-live-stream-mp4-conversion-tool/"><u>2024 Approved 2023 FB Live Stream MP4 Conversion Tool</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-exploring-ancient-facebook-tales-your-pcmobile-checklist/"><u>2024 Approved Exploring Ancient Facebook Tales Your PC/Mobile Checklist</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebooks-recent-views-uncovered-for-you/"><u>2024 Approved Facebook’s Recent Views Uncovered for You</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-proven-subtitle-editors-the-comprehensive-top-10-list-online/"><u>2024 Approved Proven Subtitle Editors – The Comprehensive Top 10 List (Online)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvdwonderfox-dvd-ripper-pro50/"><u>DVDリッピングソフトWonderFox DVD Ripper Proを50％オフ - 限定アイテム発表！</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-delving-into-the-meaning-of-a-mysterious-blue-marker-in-fb-chats/"><u>In 2024, Delving Into the Meaning of a Mysterious Blue Marker in FB Chats</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-how-to-safeguard-tiktok-creations-a-phone-users-guide/"><u>In 2024, How to Safeguard TikTok Creations A Phone User's Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-y28-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo Y28 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-how-to-adjust-audio-volume-in-videos-4-ways-for-2024/"><u>New How to Adjust Audio Volume in Videos 4 Ways for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/perfecting-the-chorus-of-visual-content-on-facebook-through-music-for-2024/"><u>Perfecting the Chorus of Visual Content on Facebook Through Music for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/youtube-free-conversion-hack-turn-hd-fb-videos-into-high-res-mp4-for-free-for-2024/"><u>YouTube-Free Conversion Hack Turn HD FB Videos Into High-Res MP4 For Free for 2024</u></a></li>
 </ul></div>
 

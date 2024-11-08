@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Streamline Broadcasting  Going From Xbox to FB Live\""
-date: 2024-10-12T00:46:03.456Z
-updated: 2024-10-16T07:49:30.078Z
+date: 2024-11-01T18:42:11.259Z
+updated: 2024-11-08T05:12:38.243Z
 tags:
   - ai video
   - ai facebook
@@ -46,13 +46,6 @@ a. For this you need to go to the settings of your Xbox and then choose Preferen
 
 ![game streaming ](https://images.wondershare.com/filmora/article-images/game-streaming.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 b. Now you have to enable your smartglass connection. This can be done only from the profiles which are signed into your Xbox device or from a SmartGlass device.
 
 ![profiles signed ](https://images.wondershare.com/filmora/article-images/profiles-signed.jpg)
@@ -72,10 +65,10 @@ d. Once the connection is established the icons would indicate that and you will
 ![new options ](https://images.wondershare.com/filmora/article-images/new-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2:Streaming Xbox to computer with a capture card
@@ -95,10 +88,10 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 ![OBS ](https://images.wondershare.com/filmora/article-images/obs.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Wirecast](http://www.telestream.net/wirecast/overview.htm) \- would allow you to capture, produce and stream content from a number of input devices including Xbox, iOS cameras, computer etc. The Wirecast Gameshow can be used for streaming high quality computer games in full HD.
@@ -110,13 +103,20 @@ Once all is set up you can live stream you desktop screen to facebook, we are no
 ![ Wirecast](https://images.wondershare.com/filmora/article-images/wirecast.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,15 +133,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-digital-retouch-fundamentals-eliminate-backdrops-with-ease/"><u>[New] 2024 Approved Digital Retouch Fundamentals Eliminate Backdrops with Ease</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-breaking-the-videography-code-download-and-preserve-media-on-fb/"><u>[New] In 2024, Breaking the Videography Code Download and Preserve Media on FB</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-insights-into-a-common-icon-what-is-fbs-blue-video-symbol/"><u>[New] Insights Into a Common Icon What Is FB’s Blue Video Symbol?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-prime-mp4-conversion-for-seamless-facebook-sharing-for-2024/"><u>[Updated] Prime MP4 Conversion for Seamless Facebook Sharing for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-maximizing-tv-viewing-watching-fb-videos-directly/"><u>In 2024, Maximizing TV Viewing Watching FB Videos Directly</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-synthesizing-best-canon-temporal-videography/"><u>In 2024, Synthesizing Best Canon Temporal Videography</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-the-definitive-list-of-economical-teleconference-platforms/"><u>In 2024, The Definitive List of Economical Teleconference Platforms</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-google-pixel-fold-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Google Pixel Fold Phones</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-clearing-up-windows-update-jams/"><u>The Ultimate Guide to Clearing Up Windows Update Jams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook-for-2024/"><u>Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-erase-effortlessly-social-media-live-on-desktop-and-phone/"><u>[New] 2024 Approved Erase Effortlessly Social Media Live on Desktop & Phone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-beat-zoom-audio-disruptions-strategic-solutions/"><u>[New] Beat Zoom Audio Disruptions Strategic Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-examining-social-media-comment-standouts/"><u>[Updated] Examining Social Media Comment Standouts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fb-rights-instant-video-ownership-takedown-questions/"><u>[Updated] In 2024, FB Rights Instant Video Ownership Takedown Questions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-online-onyx-the-monetary-meaningfulness-of-pewdiepies-earnings/"><u>[Updated] Online Onyx The Monetary Meaningfulness of Pewdiepie's Earnings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-query-unlimited-access-to-media-sharing-in-text-based-apps-for-2024/"><u>[Updated] Query Unlimited Access to Media Sharing in Text-Based Apps for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-step-by-step-guide-to-perfecting-tiktok-broadcast-on-zoom-for-2024/"><u>[Updated] Step-by-Step Guide to Perfecting TikTok Broadcast on Zoom for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harmonic-frames-filming-music-tracks-using-iphones/"><u>2024 Approved Harmonic Frames Filming Music Tracks Using iPhones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-archivists-collection-essential-retro-visual-hacks-for-video-editors/"><u>2024 Approved The Archivist's Collection Essential Retro Visual Hacks for Video Editors</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-facebook-cover-videos-tips-and-configuration-guide-for-2024/"><u>Mastering Facebook Cover Videos Tips & Configuration Guide for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Spark 20? | Dr.fone</u></a></li>
 </ul></div>
 

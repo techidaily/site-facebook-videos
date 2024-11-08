@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Personalize Your Online Story  Mastery in FB Memories\""
-date: 2024-09-28T18:23:49.420Z
-updated: 2024-10-04T18:44:50.182Z
+date: 2024-10-31T22:37:57.287Z
+updated: 2024-11-07T18:36:46.856Z
 tags:
   - ai video
   - ai facebook
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 * Enables you to upload the edit Look Back Video to Facebook instantly.
 * Burn Look Back video to a DVD as a special gift.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Easily Edit Facebook Look Back Video with Filmora
 
 #### 1. Download and import your Look Back video
@@ -63,18 +56,18 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -90,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 5. Save or share the edited Look Back video
@@ -104,19 +104,19 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -134,17 +134,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-ultimate-gag-reel-collection-comical-cells-and-cell-blocks-on-facebook/"><u>[New] 2024 Approved The Ultimate Gag Reel Collection Comical Cells and Cell Blocks on Facebook</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-2023-guide-ios-device-live-recording-techniques/"><u>[New] In 2024, 2023 Guide IOS Device Live Recording Techniques</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-insta-reversal-unlock-the-power-of-video-rotation/"><u>[Updated] 2024 Approved Insta-Reversal Unlock the Power of Video Rotation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-scale-up-achieving-extended-facebook-coverage/"><u>[Updated] Scale Up Achieving Extended Facebook Coverage</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-algorithm-change-are-you-ready/"><u>2024 Approved Facebook Algorithm Change Are You Ready？</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-unmatched-hdds-for-enhanced-xbox-experience/"><u>2024 Approved Unmatched HDDs for Enhanced Xbox Experience</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/a-beginners-primer-to-ps4-gameplay-screenshots-and-streaming/"><u>A Beginner's Primer to PS4 Gameplay Screenshots and Streaming</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-newest-nvidia-geforce-210-drivers-for-windows-10-users/"><u>Get the Newest NVIDIA GeForce 210 Drivers for Windows 10 Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-make-a-lasting-impression-with-your-facebook-profile-story/"><u>How to Make a Lasting Impression with Your Facebook Profile Story</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-6-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock iPhone 6 with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/oppo-a2-messages-recovery-recover-deleted-messages-from-oppo-a2-by-fonelab-android-recover-messages/"><u>Oppo A2 Messages Recovery - Recover Deleted Messages from Oppo A2</u></a></li>
-<li><a href="https://app-tips.techidaily.com/ultimate-list-leading-antivirus-programs-according-to-zdnet/"><u>Ultimate List: Leading Antivirus Programs , According to ZDNet</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-share-tunes-mp3-from-fb/"><u>[New] 2024 Approved Share Tunes MP3 From FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-roadmap-for-monetization-success-on-youtube-via-adsense-for-2024/"><u>[New] A Roadmap for Monetization Success on YouTube via AdSense for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-feast-your-eyes-enjoyment-without-cost-watch-9-christmas-films-online/"><u>[New] In 2024, Feast Your Eyes, Enjoyment Without Cost Watch 9 Christmas Films Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-get-fb-videos-down-as-mp4-swiftly-and-simply/"><u>[Updated] 2024 Approved Get FB Videos Down as MP4 – Swiftly & Simply</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-elevate-your-fb-video-marketing-with-novel-strategies/"><u>[Updated] Elevate Your FB Video Marketing with Novel Strategies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-enhance-your-ig-visuals-with-three-effective-video-descriptions/"><u>[Updated] Enhance Your IG Visuals with Three Effective Video Descriptions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-sound-to-text-converters/"><u>[Updated] Premium Sound to Text Converters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-reinvent-storytelling-the-path-to-better-narratives-starts-here-for-2024/"><u>[Updated] Reinvent Storytelling – The Path to Better Narratives Starts Here for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023-hack-alert-unlocking-your-fb-account/"><u>2024 Approved 2023 Hack Alert Unlocking Your FB Account</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1728477272183-windows/"><u>如何在Windows系统中保证无风险地清理旧备份照片——分析三种技术</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/cod-black-ops-cold-war-error-fix-decode-the-meaning-of-error-80070057/"><u>Cod: Black Ops Cold War Error Fix - Decode the Meaning of Error 80070057</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-tips-on-reversing-iphone-photo-loss-using-advanced-recovery-programs/"><u>Expert Tips on Reversing iPhone Photo Loss Using Advanced Recovery Programs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-through-power-and-performance-the-apex-collection-of-17-laptops-in-24/"><u>Navigate Through Power and Performance: The Apex Collection of 17 Laptops in '24</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-talk-points-for-daily-videos/"><u>Novel Talk Points for Daily Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/securely-accessing-social-memories-fb-status-videos-guide-for-2024/"><u>Securely Accessing Social Memories FB Status Videos Guide for 2024</u></a></li>
 </ul></div>
 

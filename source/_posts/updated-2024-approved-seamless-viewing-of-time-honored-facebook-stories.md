@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Seamless Viewing of Time-Honored Facebook Stories\""
-date: 2024-11-01T16:10:47.819Z
-updated: 2024-11-02T16:00:07.978Z
+date: 2024-11-02T05:27:55.893Z
+updated: 2024-11-07T18:59:22.288Z
 tags:
   - ai video
   - ai facebook
@@ -43,13 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -63,6 +56,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -84,16 +84,16 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -102,13 +102,6 @@ If you are looking to see old Facebook stories shared by your friend then let me
 The only chance is that if your friend has uploaded those stories on highlights then yes, you can see old stories of them. Whenever your friend uploads a story he/she might get a star option in the lower corner where clicking only they can create a story and highlight on their feed.
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
@@ -149,10 +142,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -171,6 +164,13 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -186,18 +186,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-capturing-and-saving-your-favorite-facebook-stories-pcmobile/"><u>[New] Capturing & Saving Your Favorite Facebook Stories (PC/Mobile)</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-finding-your-footprint-in-the-world-of-youtube-comments/"><u>[New] In 2024, Finding Your Footprint in the World of YouTube Comments</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-hacker-alert-reclaiming-your-social-network/"><u>[New] In 2024, Hacker Alert Reclaiming Your Social Network</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-high-definition-facebook-video-downloads/"><u>[New] In 2024, Mastering High-Definition Facebook Video Downloads</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-saving-big-on-final-cut-pro-without-paying/"><u>[Updated] In 2024, Saving Big on Final Cut Pro without Paying</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-maximize-video-impact-with-full-screen-settings/"><u>[Updated] Maximize Video Impact with Full-Screen Settings</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-revealing-the-top-six-where-to-grab-your-snack-videos/"><u>2024 Approved Revealing the Top Six Where to Grab Your Snack Videos</u></a></li>
-<li><a href="https://techidaily.com/guide-on-how-to-free-up-apple-iphone-13-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up Apple iPhone 13 Space | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-v29e-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from V29e</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-htc-u23-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock HTC U23 Phone Forgot Password</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account From iPhone 14 Plus</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/journey-to-aesthetic-excellence-fusing-images-masterfully-for-2024/"><u>Journey to Aesthetic Excellence Fusing Images Masterfully for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-art-of-revisiting-historical-facebook-posts-mobilelaptop-for-2024/"><u>The Art of Revisiting Historical Facebook Posts (Mobile/Laptop) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategic-social-sharing-master-facebook-story-linking-for-2024/"><u>[New] Strategic Social Sharing Master Facebook Story Linking for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-accelerated-image-editing-your-path-to-masterful-windows-photo-work/"><u>[Updated] In 2024, Accelerated Image Editing Your Path to Masterful Windows Photo Work</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-simplifying-the-process-of-watching-fb-live-on-roku/"><u>[Updated] In 2024, Simplifying the Process of Watching FB Live on Roku</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-maximize-marketing-magic-ranking-of-8-facebook-friendly-apps-for-2024/"><u>[Updated] Maximize Marketing Magic Ranking of 8 Facebook-Friendly Apps for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-profit-maximizers-collection-8-must-have-tools-that-can-skyro-written-by-jesse-fawcett-edited-by-gpt-3/"><u>[Updated] Profit Maximizers Collection 8 Must-Have Tools That Can Skyro Written by Jesse Fawcett, Edited by GPT-3</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-snap-youtube-to-mp4-now-facebook-too/"><u>[Updated] Snap YouTube to MP4, Now Facebook Too</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unleash-potential-access-premium-sound-effects/"><u>[Updated] Unleash Potential Access Premium Sound Effects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-master-facebook-seo-essential-techniques-to-skyrocket-engagement/"><u>2024 Approved Master Facebook SEO Essential Techniques to Skyrocket Engagement</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-roll-back-an-unwanted-windows-11-update-a-comprehensive-guide/"><u>How to Roll Back an Unwanted Windows 11 Update: A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-a34-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy A34 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-strategies-to-combat-the-impact-of-new-facebook-algorithms/"><u>In 2024, Strategies to Combat the Impact of New Facebook Algorithms</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-asus-rog-phone-8-pro-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Asus ROG Phone 8 Pro Phone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-absence-of-recommended-videos-on-facebook/"><u>In 2024, Unveiling Absence of Recommended Videos on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/interactive-stories-in-real-time-with-fb-screen-features-for-2024/"><u>Interactive Stories in Real-Time with FB Screen Features for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/setting-new-reset-limit-on-account-lockouts-in-windows-1011/"><u>Setting New Reset Limit on Account Lockouts in Windows 10/11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-samsung-galaxy-m54-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Samsung Galaxy M54 5G Device</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/zooms-best-audio-fixes-clear-sounds-and-hearing-improvement-for-2024/"><u>Zoom's Best Audio Fixes Clear Sounds & Hearing Improvement for 2024</u></a></li>
 </ul></div>
 
