@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking Phony Fans in Social Media"
-date: 2024-11-03T19:09:15.764Z
-updated: 2024-11-08T10:37:33.071Z
+date: 2024-11-18T21:29:36.344Z
+updated: 2024-11-19T21:52:45.865Z
 tags:
   - ai video
   - ai facebook
@@ -57,10 +57,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
@@ -68,16 +68,10 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 4: Locate Follower country
@@ -91,23 +85,17 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,17 +123,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-compelling-proposals-a-famebit-guide-to-channel-ads/"><u>[New] 2024 Approved Crafting Compelling Proposals A FameBit Guide to Channel Ads</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-enhance-fb-story-visibility-with-these-tips-for-2024/"><u>[New] Enhance FB Story Visibility with These Tips for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tep-up-your-game-free-software-for-professional-thumbnails/"><u>[New] Step Up Your Game Free Software for Professional Thumbnails</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-elevate-your-digital-footprint-strategies-for-effective-fb-video-marketing-for-2024/"><u>[Updated] Elevate Your Digital Footprint Strategies for Effective FB Video Marketing for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-tweet-to-facebook-a-step-by-step-guide/"><u>[Updated] In 2024, Tweet to Facebook A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-mastering-fb-slideshows-for-content-sharing-for-2024/"><u>[Updated] Mastering FB Slideshows for Content Sharing for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-instagrams-personalization-settings/"><u>[Updated] Navigating Instagram's Personalization Settings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/mastering-fb-video-promos-access-free-video-toolkit/"><u>Mastering FB Video Promos Access Free Video Toolkit</u></a></li>
-<li><a href="https://driver-install.techidaily.com/maximize-graphics-with-latest-amd-gpu-update-rx-570-drivers/"><u>Maximize Graphics with Latest AMD GPU Update - RX 570 Drivers</u></a></li>
-<li><a href="https://win-latest.techidaily.com/navigating-the-relationship-between-openai-and-microsoft-strategic-collaboration-or-cutthroat-competition/"><u>Navigating the Relationship Between OpenAI & Microsoft: Strategic Collaboration or Cutthroat Competition?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-doorbell-savings-unveiled-in-depth-evaluation-of-the-remobell-video-doorbell-for-less-than-100/"><u>Smart Doorbell Savings Unveiled – In-Depth Evaluation of the RemoBell Video Doorbell for Less Than $100</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unleash-the-sunlight-exploring-the-best-solar-charger-options-for-2-as-of-2024-by-zdnet/"><u>Unleash the Sunlight: Exploring the Best Solar Charger Options for 2# as of 2024 by ZDNET</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-pathways-to-acquiring-facebooks-distinguished-verification/"><u>[New] In 2024, Pathways to Acquiring Facebook's Distinguished Verification</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-step-by-step-share-video-to-instagram/"><u>[New] In 2024, Step-by-Step Share Video to Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-inside-the-new-windows-11-innovations/"><u>[New] Inside the New Windows 11 Innovations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-essential-ad-copy-frameworks-on-facebook/"><u>[New] Mastering Essential Ad Copy Frameworks on Facebook</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-crafting-colours-with-care-top-5-displays-reviewed/"><u>[Updated] 2024 Approved Crafting Colours with Care Top 5 Displays Reviewed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-fb-live-guide-audiences/"><u>[Updated] In 2024, FB Live Guide Audiences</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-method-changing-account-numbers-on-tiktok/"><u>[Updated] The Ultimate Method Changing Account Numbers on TikTok</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-magic-advanced-techniques-for-tiktok-videos/"><u>2024 Approved Unlocking the Magic Advanced Techniques for TikTok Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/batch-conversion-of-awb-files-into-mp3-a-comprehensive-guide/"><u>Batch Conversion of AWB Files Into MP3: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/effective-methods-for-transferring-youtube-videos-to-the-social-network/"><u>Effective Methods for Transferring YouTube Videos to the Social Network</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/enhancing-televisual-engagement-through-fb-live-for-2024/"><u>Enhancing Televisual Engagement Through FB Live for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/fix-youtube-buffering-on-mobile-fb-content-for-2024/"><u>Fix YouTube Buffering on Mobile FB Content for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/from-megapixels-to-ai-mastery-the-remarkable-journey-and-future-promise-of-smartphone-photography-explored-by-zdnet/"><u>From Megapixels to AI Mastery: The Remarkable Journey and Future Promise of Smartphone Photography | Explored by ZDNET</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-accountability-combating-covid-19-disinformation/"><u>Platform Accountability: Combating COVID-19 Disinformation</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-speech-logging-for-mac-our-top-5-list-unveiled/"><u>Ultimate Speech Logging for Mac Our Top 5 List Unveiled</u></a></li>
 </ul></div>
 
