@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick and Easy Caption Crafting for Engaging FB Video Posts"
-date: 2024-11-17T23:22:48.359Z
-updated: 2024-11-19T17:23:33.487Z
+date: 2024-11-23T18:15:53.693Z
+updated: 2024-11-28T16:44:44.132Z
 tags:
   - ai video
   - ai facebook
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
 You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create Subtitles and Captions for Facebook Video
 
 Here are a few simple steps to get things done:
@@ -34,6 +38,10 @@ Here are a few simple steps to get things done:
 Step 1: First of all, you need to move to your video library. In case if you find this library is empty, then you can add videos to it from your personal device. Simply use the upload button to get your video to which you wish to add subtitles or captions.
 
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
 
@@ -49,6 +57,10 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -58,24 +70,25 @@ For this case, all you need to do is select the Generate option from tool and ca
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
 It is also possible to delete Facebook video captions with ease. Click the trash can option below Caption bar. Check previews of all changes that you have made by editing or deleting your captions.
 
 Save all updates when you are satisfied with preview.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit Facebook Video Text/Subtitles with Wondershare Filmora
 
 It is convenient to create captions in Facebook with the automatic generate tool or uploading the .SRT file, but if you want your text/subtitle with more cool visual effects, like dialog balloons, headings, we recommend you to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can easily update intro, credit and captions as well as subtitles to your Facebook videos using Wondershare Filmora tool. If you want to make video for business, here comes [Filmora Business](https://tools.techidaily.com/wondershare/filmora/download/). It is a simple to use video editor to make short video on Facebook. You can make amazing Facebook videos. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are few simple to follow steps
 
@@ -89,13 +102,6 @@ First if all, you need to add your video file to Wondershare Filmora timeline. N
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
 * **Add Titles:**When you are ready to add titles to your Facebook videos, then simply move to Text/Credit Tab on your software tool, here you will find more than 90 text templates. Choose any of these as per your need and finally drag it to title track available on timeline. Soon you will find a text thumbnail on screen with a letter T. Open text editor panel by double clicking on this text thumbnail and now you can start typing you’re your titles. Make selections for animation, color and font type.
@@ -107,21 +113,7 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -140,19 +132,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-effortless-techniques-recording-and-storing-gotomeeting-data/"><u>[New] In 2024, Effortless Techniques Recording and Storing GoToMeeting Data</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-checklist-for-top-notch-fb-cover-videos-for-2024/"><u>[New] The Ultimate Checklist for Top-Notch FB Cover Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-transform-your-video-cover-image-with-easy-steps-for-2024/"><u>[New] Transform Your Video Cover Image with Easy Steps for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-effective-usage-of-hashtags-by-advertisers-on-fb/"><u>2024 Approved Effective Usage of Hashtags by Advertisers on FB</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-gamers-nexus-1000plus-game-sessions/"><u>2024 Approved Gamers' Nexus 1,000+ Game Sessions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-create-awesome-instagram-videos/"><u>2024 Approved How to Create Awesome Instagram Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-quick-clips-the-facebook-trend/"><u>2024 Approved Quick Clips The Facebook Trend</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-speech-recognition-made-easy-a-guide-to-text-conversion-in-ms-word/"><u>2024 Approved Speech Recognition Made Easy A Guide to Text Conversion in MS Word</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-mirror-apple-iphone-7-to-your-windows-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Mirror Apple iPhone 7 to your Windows PC | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/nostalgia-unleashed-a-guide-to-fb-archives/"><u>Nostalgia Unleashed A Guide to FB Archives</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-oneplus-nord-ce-3-lite-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My OnePlus Nord CE 3 Lite 5G Black and White | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unblocking-video-sharing-how-to-solve-fb-chat-issues-for-iphonesandroid/"><u>Unblocking Video Sharing How to Solve FB Chat Issues for iPhones/Android</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/whats-new-in-windows-insight-on-july-2024-service-packs-and-patches/"><u>What's New in Windows: Insight on July 2024 Service Packs & Patches</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-broadcasting-facebook-videos-whats-the-future-like-for-2024/"><u>[New] Broadcasting Facebook Videos What's the Future Like for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-extract-and-convert-fb-videos-to-mp3-files-efficiently-for-2024/"><u>[New] Extract and Convert FB Videos to MP3 Files Efficiently for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-fb-algorithm-maximizing-page-visibility-for-2024/"><u>[New] Navigating the FB Algorithm Maximizing Page Visibility for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-streamline-your-video-search-on-facebook-tips-and-tricks/"><u>[Updated] 2024 Approved Streamline Your Video Search on Facebook (Tips & Tricks)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unmask-invisible-fb-posts-with-these-proven-effective-12-fixes-for-23/"><u>[Updated] 2024 Approved Unmask Invisible FB Posts with These Proven, Effective 12 Fixes for '23</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-maximizing-gopro-content-integration-with-social-networks-for-2024/"><u>[Updated] Maximizing GoPro Content Integration with Social Networks for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-pickup-or-overkill-navigating-the-ultimate-android-photo-editor/"><u>[Updated] PickUp or Overkill? Navigating the Ultimate Android Photo Editor</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques/"><u>[Updated] The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersion-redefined-vrs-cinematic-promise/"><u>2024 Approved Immersion Redefined VR's Cinematic Promise</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-instagram-a-comprehensive-guide-to-video-posting/"><u>2024 Approved Instagram A Comprehensive Guide to Video Posting</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-iphone-app-recommendations-for-watermarking-pics/"><u>Essential iPhone App Recommendations for Watermarking Pics</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://win-hot.techidaily.com/resolved-issue-unfreezing-the-windows-backup-process-stuck-at-97/"><u>Resolved Issue: Unfreezing the Windows Backup Process Stuck at 97%</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/unlocking-ebook-content-effective-techniques-for-drm-stripping-from-book-pages-including-page-19/"><u>Unlocking eBook Content: Effective Techniques for DRM Stripping From Book Pages, Including Page 19</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-secrets-to-success-in-offworld-trading-company-a-review-of-strategic-market-manipulation-techniques/"><u>Unlocking the Secrets to Success in Offworld Trading Company: A Review of Strategic Market Manipulation Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Smart 8? | Dr.fone</u></a></li>
 </ul></div>
 

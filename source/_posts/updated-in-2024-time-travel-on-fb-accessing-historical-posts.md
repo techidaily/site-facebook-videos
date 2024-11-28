@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Time Travel on FB  Accessing Historical Posts\""
-date: 2024-11-15T21:08:55.549Z
-updated: 2024-11-19T20:59:41.241Z
+date: 2024-11-25T17:02:43.634Z
+updated: 2024-11-28T17:06:20.587Z
 tags:
   - ai video
   - ai facebook
@@ -57,16 +57,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -85,10 +82,7 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
@@ -104,15 +98,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -123,16 +118,7 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Features:**
@@ -192,18 +178,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-complete-guide-for-macos-sierra-patches-and-plug-ins/"><u>[New] Complete Guide for macOS Sierra Patches and Plug-Ins</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-uniting-two-giants-transmitting-facebook-vids-on-whatsapp/"><u>[New] In 2024, Uniting Two Giants Transmitting Facebook Vids on WhatsApp</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-videoharvester-fb-groups/"><u>[New] In 2024, VideoHarvester FB Groups</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-syncing-tiktok-videos-with-your-facebook-profile/"><u>[New] Syncing TikTok Videos with Your Facebook Profile</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-transforming-passive-browsing-into-active-participation-on-fb/"><u>[Updated] Transforming Passive Browsing Into Active Participation on FB</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gigglemaker-step-by-step-to-fun-videos/"><u>2024 Approved GiggleMaker Step-by-Step to Fun Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-apple-iphone-15-pro-max-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About Apple iPhone 15 Pro Max Activation Lock</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ck-guide-to-purging-watched-youtube-videos/"><u>A Quick Guide to Purging Watched YouTube Videos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-do-shared-chatgpt-links-operate-an-overview/"><u>How Do Shared ChatGPT Links Operate? An Overview</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-magic-6-lite-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor Magic 6 Lite Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-nokia-c110-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Nokia C110 without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-frame-reconfigurator-for-videos/"><u>In 2024, Frame Reconfigurator for Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-pinterest-avatar-recording-resolution-frame-rate-length/"><u>In 2024, Pinterest Avatar Recording Resolution, Frame Rate, Length</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-unlocking-hdr-potential-with-photo-hdr-techniques/"><u>[New] 2024 Approved Unlocking HDR Potential with Photo-HDR Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-achieving-high-quality-fb-video-1080p-streaming-guide/"><u>[New] Achieving High-Quality FB Video 1080P Streaming Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-converting-fb-videos-to-tv-friendly-formats/"><u>[Updated] 2024 Approved Converting FB Videos to TV-Friendly Formats</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-techniques-to-pull-facebook-videos-easily/"><u>[Updated] In 2024, Techniques to Pull Facebook Videos Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-secret-to-youtube-success-reaching-a-milestone-of-500plus-views/"><u>[Updated] Unlock the Secret to YouTube Success Reaching a Milestone of 500+ Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-learn-cinematic-techniques-with-youtube-veterans-and-novices/"><u>2024 Approved Learn Cinematic Techniques with YouTube Veterans and Novices</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-nubia-red-magic-8s-proplus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Nubia Red Magic 8S Pro+ by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-oneplus-nord-n100-smartphone-evaluation/"><u>Affordable Excellence: OnePlus Nord N100 Smartphone Evaluation</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-connection-tips-how-to-pair-a-bluetooth-keyboard-successfully/"><u>Easy Connection Tips: How To Pair A Bluetooth Keyboard Successfully</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improve-performance-six-crucial-steps-to-avoid-crashing-during-playthrough-of-modern-warfare-aturality/"><u>Improve Performance: Six Crucial Steps to Avoid Crashing During Playthrough of Modern Warfare Aturality</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-tips-for-effective-screen-broadcasts-on-fb-live/"><u>In 2024, Tips for Effective Screen Broadcasts on FB Live</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-ultimate-guide-resurrecting-non-displayed-fb-video-posts-2023/"><u>The Ultimate Guide Resurrecting Non-Displayed FB Video Posts, 2023</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-adding-captions-to-your-mp4-files/"><u>Ultimate Guide: Adding Captions to Your MP4 Files</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unbelievably-versatile-and-compact-how-this-budget-8-in-1-usb-hub-outperforms-expectations/"><u>Unbelievably Versatile & Compact: How This Budget 8-in-1 USB Hub Outperforms Expectations</u></a></li>
 </ul></div>
 

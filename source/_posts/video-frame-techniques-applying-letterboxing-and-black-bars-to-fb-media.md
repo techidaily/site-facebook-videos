@@ -1,7 +1,7 @@
 ---
 title: "\"Video Frame Techniques  Applying Letterboxing & Black Bars to FB Media\""
-date: 2024-11-16T23:37:50.405Z
-updated: 2024-11-19T18:18:20.409Z
+date: 2024-11-26T16:50:51.204Z
+updated: 2024-11-28T18:27:49.499Z
 tags:
   - ai video
   - ai facebook
@@ -37,13 +37,6 @@ Want to have a try? Come on!
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 1: Make a Letterbox by Project Ratio Mismatch
 
 This method is suitable for users whose source videos are not in square format (1:1). It is a simple method in which the aspect ratios of the source and project videos are compared. In this method, a letterbox will be created automatically when there is a mismatch between the aspect ratio of the original video and the project you are creating using the Filmora application. Let us see how this can be done:
@@ -53,10 +46,7 @@ This method is suitable for users whose source videos are not in square format (
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
@@ -64,10 +54,7 @@ This method is suitable for users whose source videos are not in square format (
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
@@ -82,9 +69,17 @@ And you can also go to the **Elements** tab, and add some creative elements such
 
 ![add-emoji-elements](https://images.wondershare.com/filmora/article-images/add-emoji-elements.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 5\. Export the square video to local computer in mp4 or other supported formats
 
 ![filmora9-export-panel](https://images.wondershare.com/filmora/article-images/filmora9-export-panel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 6\. Upload the exported square video to Facebook, and show how it looks like on Facebook.
 
@@ -98,23 +93,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
@@ -125,30 +106,28 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![custom-letterbox](https://images.wondershare.com/filmora/article-images/custom-letterbox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 6\. Drag and drop the subtitle again from the Titles-Subtitles option. This time for the top section of the video
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 8\. Export the video to your computer or phone in mp4, then upload it to Facebook, and finally, you will see the magic!
 
 ![post-my-video](https://images.wondershare.com/filmora/article-images/post-my-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## To Sum up
@@ -174,17 +153,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-android-and-iphones-leading-social-apps-to-skyrocket-likes-on-fb/"><u>[New] Android & iPhone's Leading Social Apps to Skyrocket Likes on FB</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-eyeballs-to-earnings-the-price-of-popular-videos-for-2024/"><u>[New] From Eyeballs to Earnings The Price of Popular Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-proven-ways-to-enhance-your-fb-presence-and-boost-engagement/"><u>[New] Proven Ways to Enhance Your FB Presence and Boost Engagement</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-navigate-the-transfer-of-social-media-photos-to-hard-drive/"><u>[Updated] 2024 Approved Navigate the Transfer of Social Media Photos to Hard Drive</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-effortless-device-integration-with-obs-for-streaming-on-pcmac-for-2024/"><u>[Updated] Effortless Device Integration with OBS for Streaming on PC/Mac for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-vertical-vs-horizontal-deciding-facebook-video-orientation/"><u>[Updated] In 2024, Vertical vs Horizontal Deciding Facebook Video Orientation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-maximizing-clarity-improve-iphoneandroid-video-quality/"><u>2024 Approved Maximizing Clarity Improve iPhone/Android Video Quality</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-the-gtx-hemisphere-950-code-43-issue-in-windows-11-a-comprehensive-guide/"><u>Fixing the GTX Hemisphere 950 'Code 43' Issue in Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/mastering-telegram-web-a-beginners-walkthrough-for-2024/"><u>Mastering Telegram Web A Beginner's Walkthrough for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/opening-playing-and-organizing-your-srt-files-efficiently-for-2024/"><u>Opening, Playing, and Organizing Your SRT Files Efficiently for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/perfecting-motion-capture-a-guide-to-gopro-time-lapse-photos-for-2024/"><u>Perfecting Motion Capture A Guide to GoPro Time Lapse Photos for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-tecno-spark-20-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Tecno Spark 20 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-master-screen-integration-into-real-time-streaming/"><u>[New] 2024 Approved Master Screen Integration Into Real-Time Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-list-5-leading-youtube-shortened-url-services-for-2024/"><u>[New] Essential List 5 Leading YouTube Shortened URL Services for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-clearing-the-path-free-facebook-videos-from-interruptions/"><u>[New] In 2024, Clearing the Path Free Facebook Videos From Interruptions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-3-elemental-strategies-for-writing-effective-social-media-promotions/"><u>[New] In 2024, The 3 Elemental Strategies for Writing Effective Social Media Promotions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nline-capture-screen-to-youtube-posting-with-pcmac-for-2024/"><u>[New] Online Capture Screen-to-YouTube Posting with PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-updated-compilation-prime-top-10-android-apps-for-facebook-video-download/"><u>[Updated] 2024 Approved Updated Compilation Prime Top 10 Android Apps for Facebook Video Download</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-countdown-the-best-10-music-videos-of-now-for-2024/"><u>[Updated] Facebook's Countdown The Best 10 Music Videos of Now for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-optimizing-engagement-in-the-new-facebook-algorithms-era/"><u>[Updated] Optimizing Engagement in the New Facebook Algorithms Era</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-top-cover-photo-creators-facebook-edition-top-11-list/"><u>[Updated] Top Cover Photo Creators Facebook Edition - Top 11 List</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-photography-tips-accurately-annotating-dates-on-pictures/"><u>2024 Approved Photography Tips Accurately Annotating Dates on Pictures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-immersive-gaming-discovering-the-philips-49-evnia-curved-oled-screen/"><u>Dive Into Immersive Gaming: Discovering the Philips 49'' Evnia Curved OLED Screen</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/flip-the-like-ratio-with-squared-up-social-media-content/"><u>Flip the Like Ratio with Squared-Up Social Media Content</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hardware-assisted-virtualization-and-isolation/"><u>Hardware-Assisted Virtualization and Isolation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-infinix-hot-40-pro-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Infinix Hot 40 Pro Devices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577356828-linguistic-leap-forward-our-special-95-off-language-program/"><u>Linguistic Leap Forward: Our Special 95% Off Language Program</u></a></li>
+<li><a href="https://techtrends.techidaily.com/optimal-frequency-when-is-the-right-time-to-buy-a-new-smartphone/"><u>Optimal Frequency: When Is the Right Time to Buy a New Smartphone?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-apple-iphone-13-mini-and-browser-drfone-by-drfone-virtual-ios/"><u>Prevent Cross-Site Tracking on Apple iPhone 13 mini and Browser | Dr.fone</u></a></li>
 </ul></div>
 

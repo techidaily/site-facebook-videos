@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for Navigating Old Features on FB, Mobile/PC\""
-date: 2024-11-18T00:19:57.983Z
-updated: 2024-11-19T20:49:19.336Z
+date: 2024-11-27T16:41:20.284Z
+updated: 2024-11-28T16:06:55.761Z
 tags:
   - ai video
   - ai facebook
@@ -37,6 +37,10 @@ Facebook has a complex interface, but it will be much easier to navigate it once
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to View Old Stories on iPhone/Android Facebook App?
 
 Facebook mobile application is one of the convenient ways of using it as it has a user-friendly interface. You can quickly post stories through the Facebook mobile app and interact with your friends. Here is how you can view old stories on a mobile app:
@@ -56,10 +60,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -77,10 +78,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -118,16 +116,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -153,10 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -174,17 +160,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-maximizing-ad-performance-with-engaging-fb-animation-strategies/"><u>[New] In 2024, Maximizing Ad Performance with Engaging FB Animation Strategies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-the-world-of-facebook-analytics/"><u>[New] In 2024, Navigating the World of Facebook Analytics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-more-hidden-shorts-just-visible-ones/"><u>[New] No More Hidden Shorts, Just Visible Ones</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-quick-guide-to-free-online-facebook-video-to-mp4-converter-hd-tutorial-for-2024/"><u>[New] Quick Guide to Free Online Facebook Video to MP4 Converter (HD) Tutorial for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-etsy-listing-image-ratio-advice/"><u>[Updated] In 2024, Etsy Listing Image Ratio Advice</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1725285503711-avchdtsmovaviwmvflv/"><u>全サポート動画フォーマットの変換技術＆方法：AVCHD、TS、MOV、AVI、WMV、FLV対応コンバータ</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-xcover-7-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy XCover 7 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-geforce-rtx-3060-ti-graphics-card-driver-version-for-windows-11/"><u>Latest GeForce RTX 3060 Ti Graphics Card Driver Version for Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-network-with-the-powerful-linksys-ea9500-router-a-comprehensive-review/"><u>Maximizing Your Network with the Powerful Linksys EA9500 Router: A Comprehensive Review</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/pro-tip-unveiling-the-best-10-free-image-vaults-for-2024/"><u>Pro Tip Unveiling the Best 10 Free Image Vaults for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/refurbished-apple-iphone-15-pro-max-everything-you-need-to-know-drfone-by-drfone-transfer-from-ios/"><u>Refurbished Apple iPhone 15 Pro Max Everything You Need to Know | Dr.fone</u></a></li>
-<li><a href="https://win-online.techidaily.com/schritt-fur-schritt-anleitung-wie-man-fruhere-versionen-wiederherstellt/"><u>Schritt-Für-Schritt Anleitung: Wie Man Frühere Versionen Wiederherstellt</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-rated-vr-joysticks-unveiled/"><u>[New] Best-Rated VR Joysticks Unveiled</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-digital-expansion-social-story-downloader/"><u>[New] Digital Expansion Social Story Downloader</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unleash-your-ads-potential-mastering-fb-ad-roi-with-motion-graphics-for-2024/"><u>[New] Unleash Your Ad's Potential Mastering FB Ad ROI with Motion Graphics for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-rise-of-facebooks-quick-vids/"><u>[Updated] In 2024, The Rise of Facebook's Quick Vids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unlocking-your-facebook-video-potential-mp3-edition/"><u>[Updated] In 2024, Unlocking Your Facebook Video Potential - MP3 Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-music-video-shoot-estimated-financial-outlay/"><u>[Updated] Music Video Shoot - Estimated Financial Outlay</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-prime-gear-for-youtube-novices/"><u>[Updated] Prime Gear for YouTube Novices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-social-media-success-iphone-360-video-filming-guide/"><u>[Updated] Social Media Success IPhone 360 Video Filming Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unearthing-old-facebook-tales-an-easy-to-follow-device-method-for-2024/"><u>[Updated] Unearthing Old Facebook Tales An Easy-to-Follow Device Method for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-mastering-in-stream-ad-configurations-on-facebook-for-peak-performance/"><u>2024 Approved Mastering In-Stream Ad Configurations on Facebook for Peak Performance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-the-sleek-innovation-of-lgs-latest-ultraportable-laptop-with-record-thin-profile-expert-analysis-by-zdnet/"><u>Exploring the Sleek Innovation of LG's Latest Ultraportable Laptop with Record-Thin Profile | Expert Analysis by ZDNET</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/fb-watch-icon-recovery-tips-and-tricks/"><u>FB Watch Icon Recovery - Tips and Tricks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-70-lite-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor 70 Lite 5G</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/resolve-bluetooth-and-screen-gadget-pairing-challenges-in-windows-computers-expert-tips-inside/"><u>Resolve Bluetooth and Screen Gadget Pairing Challenges in Windows Computers – Expert Tips Inside</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/streamline-your-social-footprint-share-videos-on-facebook-easily/"><u>Streamline Your Social Footprint Share Videos on Facebook Easily</u></a></li>
+<li><a href="https://fox-that.techidaily.com/tackling-the-most-typical-iphone-displays-faults-a-step-by-step-guide/"><u>Tackling the Most Typical iPhone Displays Faults: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-maxoak-185wh-battery-pack-built-for-every-need/"><u>The Ultimate Guide to the MaxOak 185Wh Battery Pack – Built for Every Need</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/uniting-messaging-and-ai-chatgpt-in-whatsapp-support/"><u>Uniting Messaging and AI: ChatGPT in WhatsApp Support</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-savings-on-black-friday-2022-find-the-hottest-deals-at-ideal-venues-expert-tips-by-zdnet/"><u>Unlocking Savings on Black Friday 2022! Find the Hottest Deals at Ideal Venues | Expert Tips by ZDNet</u></a></li>
 </ul></div>
 

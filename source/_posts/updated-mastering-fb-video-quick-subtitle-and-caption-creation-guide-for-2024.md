@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering FB Video  Quick Subtitle & Caption Creation Guide for 2024\""
-date: 2024-09-30T19:00:19.573Z
-updated: 2024-10-04T18:15:33.108Z
+date: 2024-11-23T17:03:10.186Z
+updated: 2024-11-28T20:05:14.925Z
 tags:
   - ai video
   - ai facebook
@@ -49,6 +49,10 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -57,6 +61,10 @@ SRT caption files are usually supported by almost all popular media players and 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
@@ -70,43 +78,21 @@ It is convenient to create captions in Facebook with the automatic generate tool
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here are few simple to follow steps
 
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
 #### Step 2: Apply Template
 
 ![filmora text interface 201704](https://images.wondershare.com/filmora/article-images/filmora-text-interface-201704.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Wondershare Filmora will provide you a wide range of templates for selection of text formats. You can pick any of these as per need.
 
@@ -119,28 +105,16 @@ Once you have finished the text based editing task then hit the Export option av
 
 ![output format](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,18 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-revolutionize-traffic-flows-with-innovative-facebook-video-tactics/"><u>[New] 2024 Approved Revolutionize Traffic Flows with Innovative Facebook Video Tactics</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-sharex-overview-top-picks-and-substitutes/"><u>[New] 2024 Approved ShareX Overview Top Picks & Substitutes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-facebook-bio-writing-essential-tactics-for-success/"><u>[New] In 2024, Mastering Facebook Bio Writing Essential Tactics for Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-streaming-social-feeds-on-your-smart-tv-whats-next/"><u>[New] In 2024, Streaming Social Feeds on Your Smart TV What's Next?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-twitter-image-resolution-standards/"><u>[New] Twitter Image Resolution Standards</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-how-to-stand-out-yt-thumbnail-size-and-engagement-strategies/"><u>[Updated] In 2024, How to Stand Out YT Thumbnail Size and Engagement Strategies</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-the-most-reliable-free-screen-capture-apps-for-mac/"><u>[Updated] The Most Reliable Free Screen Capture Apps for Mac</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-shorts-demystified-in-30-minutes/"><u>[Updated] YouTube Shorts Demystified in 30 Minutes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-capturing-facebook-hd-videos-for-later-use/"><u>In 2024, Capturing Facebook HD Videos for Later Use</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-thors-fury-legends-of-the-ragnarok/"><u>In 2024, Thor's Fury Legends of the Ragnarök</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-windows-11-essential-steps-for-using-dev-drive/"><u>Navigating Windows 11: Essential Steps for Using Dev Drive</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/replay-the-art-of-twitch-livestream-control-for-2024/"><u>Replay The Art of Twitch Livestream Control for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-digital-storytelling-with-facebook-slideshow-creation/"><u>[New] 2024 Approved Digital Storytelling with Facebook SlideShow Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhancing-user-engagement-through-fb-slideshows/"><u>[New] 2024 Approved Enhancing User Engagement Through FB Slideshows</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-setup-to-screening-wirecasts-role-in-facebook-streaming/"><u>[New] 2024 Approved From Setup to Screening Wirecast’s Role in Facebook Streaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-intermittent-video-playback-fix-and-resolve-issues/"><u>[New] 2024 Approved Intermittent Video Playback - Fix & Resolve Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-uncover-the-secret-correcting-mobile-video-sharing-on-fb-messenger/"><u>[New] 2024 Approved Uncover the Secret Correcting Mobile Video Sharing on FB Messenger</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-unwrapping-the-4k-delight-sony-xperia-xz-premium-examined/"><u>[New] 2024 Approved Unwrapping the 4K Delight Sony Xperia XZ Premium Examined</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[Updated] 2024 Approved Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-guiding-viewers-eyes-leading-lines-for-iphone-photography/"><u>[Updated] Guiding Viewers' Eyes Leading Lines for iPhone Photography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-2023-insights-how-to-hunt-down-cool-vids-on-fb/"><u>[Updated] In 2024, 2023 Insights How to Hunt Down Cool Vids on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-precision-content-marketing-for-soaring-social-media-ranks-for-2024/"><u>[Updated] Precision Content Marketing for Soaring Social Media Ranks for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-quick-guide-to-free-online-facebook-video-to-mp4-converter-hd-tutorial/"><u>[Updated] Quick Guide to Free Online Facebook Video to MP4 Converter (HD) Tutorial</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/2024s-most-effective-key-locators-the-definitive-selection/"><u>2024'S Most Effective Key Locators: The Definitive Selection</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-comprehensive-guide-evolution-from-ios-10-through-to-the-latest-180-update/"><u>A Comprehensive Guide: Evolution From iOS 1.0 Through to the Latest 18.0 Update</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/bridging-the-past-and-present-the-ongoing-appeal-of-agp-slot-modifications-to-support-new-graphics-cards-and-networking-enhancements-spotlight-on-two-adapto90/"><u>Bridging the Past and Present: The Ongoing Appeal of AGP Slot Modifications to Support New Graphics Cards & Networking Enhancements - Spotlight on Two Adaptors</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-secure-your-ipad-pro-ipad-air-and-apple-pencil-pro-beforehand-with-amazing-deals/"><u>How to Secure Your iPad Pro, iPad Air & Apple Pencil Pro Beforehand with Amazing Deals</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/personalized-branding-craft-your-logo-from-free-designs/"><u>Personalized Branding Craft Your Logo From Free Designs</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-airtag-accessory-bags-the-ultimate-guide-zdnet-review/"><u>Top-Rated AirTag Accessory Bags - The Ultimate Guide (ZDNet Review)</u></a></li>
 </ul></div>
 
