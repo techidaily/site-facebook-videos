@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Personalize Your Online Story  Mastery in FB Memories\""
-date: 2024-11-23T17:58:40.445Z
-updated: 2024-11-28T18:17:17.098Z
+date: 2024-12-01T17:49:34.141Z
+updated: 2024-12-08T00:46:35.752Z
 tags:
   - ai video
   - ai facebook
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 * Burn Look Back video to a DVD as a special gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Easily Edit Facebook Look Back Video with Filmora
@@ -60,11 +60,19 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/video-editor-interface.jpg "edit look back video")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2. Add texts to the Look Back video
 
  To share the unforgettable moments in Look Back video, adding texts is a good idea. To do this, switch to Text tab and you'll see various texts templates on the left panel. Choose your favorite one and place it on the Timeline. Then the text thumbnail with a leading letter "T" will appear on the timeline. Double click it to type your texts in the box and select the font, color, animation, etc. Hit "Return" to confirm the settings and go back to the primary window.
 
 ![edit look back video](https://images.wondershare.com/topic/video-editing/add-titles.jpg "edit look back video")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3. Edit the audio of Look Back video
 
@@ -74,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 
 ![edit look back video](https://images.wondershare.com/images/multimedia/video-editor/audio-detach.jpg "edit look back video")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4. Add more effects to your Look Back video
 
  Wondershare Filmora (originally Wondershare Video Editor) can help you make your video wonderful and special by applying various elements. To apply some advanced effects, right click the video and select the "Power Tool" option from the pops up menu, or hit the "Power Tool" button above the timeline to enter the Power Tool window. Here you are provided tilt shift, mosaic, face off and jump cut at beats.
@@ -85,13 +89,13 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 ![add ](https://images.wondershare.com/images/multimedia/video-editor/tilt-shift-1.jpg "add ")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5. Save or share the edited Look Back video
@@ -106,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/0f7cc598462e00e671398d3de2bdb7c71a59af5f2
 ![edit facebook look back video](https://images.wondershare.com/filmora/article-images/export-output.jpg "edit facebook look back video")
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -126,19 +126,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-omnipresent-iptv-networking-model-for-2024/"><u>[New] Omnipresent IPTV Networking Model for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-pinnacle-of-mac-livestream-software-1-5-guide-for-2024/"><u>[New] The Pinnacle of Mac Livestream Software - #1-5 Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-free-fb-tracks-at-your-command-for-2024/"><u>[Updated] Free FB Tracks at Your Command for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-youtube-buffering-busted-stream-uninterrupted-new-techniques/"><u>[Updated] In 2024, YouTube Buffering Busted - Stream Uninterrupted (New Techniques)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-digital-frontier-navigating-fbs-autoplay-options-for-2024/"><u>[Updated] The Digital Frontier Navigating FB's Autoplay Options for 2024</u></a></li>
-<li><a href="https://solve-help.techidaily.com/pcmac10/"><u>【PC・Mac】動画変換ソリューションの選定と私達のおすすめ10品、全面比較でご自分に最適なツールを選ぶ方法</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-analyzing-youtube-adrevenue-average-payments-by-thousands-of-views/"><u>2024 Approved Analyzing Youtube AdRevenue Average Payments by Thousands of Views</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/effective-ways-to-stop-unexpected-automatic-windows-powershell-window-pop-ups/"><u>Effective Ways to Stop Unexpected Automatic Windows PowerShell Window Pop-Ups</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/elevate-your-video-presence-with-swiftly-created-captions-and-text-on-fb/"><u>Elevate Your Video Presence with Swiftly Created Captions and Text on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/prevent-freezing-of-streamed-videos-in-chrome/"><u>Prevent Freezing of Streamed Videos in Chrome</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/tecnicas-efectivas-para-recuperar-datos-borrados-o-extraviados-en-tarjetas-de-memoria-playstation-portable-psp/"><u>Técnicas Efectivas Para Recuperar Datos Borrados O Extraviados en Tarjetas De Memoria PlayStation Portable (PSP)</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/1723262427118-unleash-gaming-power-snag-the-alienware-aurora-r16-with-nvidias-rtx-4080-super-and-intel-i9-cpu-at-a-500-discounted-price/"><u>Unleash Gaming Power: Snag the Alienware Aurora R16 With NVIDIA's RTX 4080 Super and Intel I9 CPU at a $500 Discounted Price!</u></a></li>
-<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-motorola-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my Motorola ?</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/1728508243864-windows-11-ssd/"><u>Windows 11 升級成功：SSD上駕輕就熟的二種安裝指南</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-guide-to-producing-quality-social-media-film/"><u>[New] The Ultimate Guide to Producing Quality Social Media Film</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-utilizing-in-device-recording-on-huawei-mate-series-phones-mate-10-mate-20-and-p-series-p20-p10/"><u>[Updated] 2024 Approved Utilizing In-Device Recording on Huawei Mate Series Phones (Mate 10, Mate 20) & P Series (P20, P10)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-no-need-for-apps-download-youtube-files/"><u>[Updated] No Need for Apps Download YouTube Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-strategies-for-soaring-on-facebooks-feeds-for-2024/"><u>[Updated] Strategies for Soaring on Facebook's Feeds for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-understanding-the-technicalities-of-fb-360-streaming/"><u>[Updated] Understanding the Technicalities of FB 360 Streaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-potential-the-15-best-tools-for-transforming-fb-revenue-for-2024/"><u>[Updated] Unlock Potential The 15 Best Tools for Transforming FB Revenue for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unseen-reader-fb-moments-watcher-for-2024/"><u>[Updated] Unseen Reader FB Moments Watcher for 2024</u></a></li>
+<li><a href="https://win-web.techidaily.com/6kej5rg65pa55qgi5lml5lqm77ya5lplusu5q2j5qqu5qgi566h55cg5zmo5zyo5bem6ykk5lin5yplusv6kaw5zwp6agm55qe5bplusr6ycf5oml5q61/"><u>解決方案之二：修正檔案管理器在左邊不可視問題的快速手段</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209565012-9781634508612-bioenergy-healing/"><u>Bioenergy Healing | Free Book</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-best-deal-on-an-immersive-viewing-experience-the-lg-34-ultragear-monitor-at-only-499/"><u>Get the Best Deal on an Immersive Viewing Experience: The LG 34 UltraGear Monitor at Only $499!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-navigating-digital-memory-lane-with-backward-image-scans-facebook/"><u>In 2024, Navigating Digital Memory Lane with Backward Image Scans (Facebook)</u></a></li>
+<li><a href="https://win-updates.techidaily.com/replicacion-de-particion-de-sistema-windows-10-hacia-un-disco-ssd-con-tecnicas-optimas/"><u>Replicación De Partición De Sistema Windows 10 Hacia Un Disco SSD Con Técnicas Óptimas</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-poco-c65-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Poco C65? | Dr.fone</u></a></li>
 </ul></div>
 

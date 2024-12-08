@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Targeted Thought Leadership with Profound FB Video Strategies"
-date: 2024-11-24T16:04:44.649Z
-updated: 2024-11-28T17:12:43.428Z
+date: 2024-12-05T01:09:19.249Z
+updated: 2024-12-08T00:26:04.676Z
 tags:
   - ai video
   - ai facebook
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 [Learn more details about how to use Facebook advertising for small business](http://fitsmallbusiness.com/facebook-advertising/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Recommendation: Best video editor for Facebook ads video making
@@ -48,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before Making Facebook Video Ads
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 [Learn more about How to Easily Create Captions and Subtitles for Facebook Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making Better Facebook Video Ads
@@ -76,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 ![facebook video audience retention ]( https://images.wondershare.com/filmora/article-images/facebook-video-audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Facebook platform stay loaded with numbers if videos so people cannot interact equally with all of them. Thus, it is important to create a video that can force viewers to make quick decision about whether this particular video must be watched or not. In order to leave the best impression on viewer’s mind, every video ad must have two major characteristics: It should not have length more than 20 seconds, content must be capable enough to catch attention within first 2, 3 seconds. Here are few common mistakes for low rating of certain videos ads:
@@ -90,10 +90,6 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 #### 2. Choose Attractive Video Thumbnail
 
 ![Facebook Video ads thumbnail](https://images.wondershare.com/filmora/article-images/facebook-video-custom-thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Note that most of the facebook users prefer to deactivate video autoplay options on their profile so they must be encouraged to play your video. The best trigger can be added with an eye catching thumbnail. Facebook platform allow users to create eye catching thumbnail from wide selection of images captured from video frames itself. You can also pick your own image to be uploaded as a thumbnail and to do this you have to follow the custom thumbnail area button. In order to create best impact, it is good to select thumbnail image with aspect ratio same as that of the video.
 
@@ -110,6 +106,10 @@ thumbnail: https://thmb.techidaily.com/af63d40e10f4812d796851153ffe13a5133162342
 #### 4. Add Lower-Third Highlights
 
 ![Facebook Video Third Lower Text](https://images.wondershare.com/filmora/article-images/facebook-video-third-lower-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Adding text on video ads is really a good idea because it helps to highlight the salient points with ease. When lower thirds are added to the videos then viewers can easily go ahead with your content and pick the major details. Although, this information is named as Lower Thirds but these messages can be placed at any portion of your video ad screen. The key is to work with your favourite video editing program that can add text impressively.
 
@@ -134,24 +134,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easily-create-compelling-fb-video-ads-with-no-cost-kit/"><u>[New] 2024 Approved Easily Create Compelling FB Video Ads with No-Cost Kit</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-power-play-top-10-apps-to-increase-followers-and-posts/"><u>[New] 2024 Approved Instagram Power Play Top 10 Apps to Increase Followers & Posts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-facesave-videorecorder-pro/"><u>[New] FaceSave Videorecorder Pro</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-free-and-easy-top-8-fb-link-exporters-for-23-online-for-2024/"><u>[New] Free and Easy Top 8 FB Link Exporters for '23 Online for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-masterclass-in-sharing-youtube-videos-to-facebook-links/"><u>[New] Masterclass in Sharing YouTube Videos to Facebook Links</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-pick-your-favorites-top-6-fb-lite-videos-downloaders/"><u>[Updated] 2024 Approved Pick Your Favorites Top 6 FB Lite Videos Downloaders</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tips-for-easily-accessing-videos-on-facebook/"><u>[Updated] 2024 Approved Tips for Easily Accessing Videos on Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-nail-your-tweets-with-correct-videos/"><u>[Updated] How to Nail Your Tweets with Correct Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-optimizing-facebook-videos-for-hd-broadcasts-and-beyond-for-2024/"><u>[Updated] Optimizing Facebook Videos for HD Broadcasts and Beyond for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-cascade-of-curiosity-concurrent-video-watching-made-easy/"><u>2024 Approved A Cascade of Curiosity Concurrent Video Watching Made Easy</u></a></li>
-<li><a href="https://driver-install.techidaily.com/adjusting-print-driver-settings-for-hp-deskjet/"><u>Adjusting Print Driver Settings for HP Deskjet</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-swiftly-resolving-delayed-videos-in-facebooks-chatting-application-for-mobile-devices/"><u>In 2024, Swiftly Resolving Delayed Videos in Facebook's Chatting Application for Mobile Devices</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/overcoming-tech-hurdles-why-your-computer-might-need-to-restart-suddenly/"><u>Overcoming Tech Hurdles: Why Your Computer Might Need to Restart Suddenly</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/precision-in-pro-videos-essential-lighting-insights/"><u>Precision in Pro Videos Essential Lighting Insights</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/squared-success-creating-compelling-video-posts-on-facebook-for-2024/"><u>Squared Success Creating Compelling Video Posts on Facebook for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-tips-for-stabilizing-manor-lords-gameplay-on-windows-and-mac/"><u>Troubleshooting Tips for Stabilizing 'Manor Lords' Gameplay on Windows and Mac</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-fix-non-supported-input-delays-in-monitor-displays/"><u>Troubleshooting: Fix Non-Supported Input Delays in Monitor Displays</u></a></li>
-<li><a href="https://common-error.techidaily.com/unlock-the-power-of-windows-11-maintenance-with-system-file-checker-and-dism-solutions/"><u>Unlock the Power of Windows 11 Maintenance with System File Checker and DISM Solutions</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-samsung-galaxy-ring-pricing-insights-launch-timeline-and-technical-specifications/"><u>Unveiling the Samsung Galaxy Ring: Pricing Insights, Launch Timeline & Technical Specifications</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/5-youtube-video-ideas-for-musicians/"><u>[New] 15 YouTube Video Ideas for Musicians</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-proven-ways-to-create-engaging-intros-on-iphones-and-android/"><u>[New] In 2024, Proven Ways to Create Engaging Intros on iPhones & Android</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-creating-immersive-iphone-360-reels-for-social-media/"><u>[Updated] In 2024, Creating Immersive iPhone 360 Reels for Social Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-fotoscape-studio-comparing-paired-clients-tools/"><u>[Updated] In 2024, FotoScape Studio Comparing Paired Clients' Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-real-time-sharing-with-roku-and-fb-live-for-2024/"><u>[Updated] Navigating Real-Time Sharing with Roku & FB Live for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-adjusting-to-new-facebook-ranking-criteria-for-2024/"><u>[Updated] The Ultimate Guide to Adjusting to New Facebook Ranking Criteria for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-transform-your-content-3-effective-techniques-for-youtube-reaction-magic/"><u>[Updated] Transform Your Content 3 Effective Techniques for YouTube Reaction Magic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-itel-a70-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Itel A70</u></a></li>
+<li><a href="https://windows11.techidaily.com/achieve-personalized-settings-alomwares-pathway-to-customization/"><u>Achieve Personalized Settings - AlomWare's Pathway to Customization</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-versus-magazines-which-provides-the-most-reliable-future-predictions/"><u>ChatGPT Versus Magazines: Which Provides the Most Reliable Future Predictions?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-strategies-to-correct-missing-mfc71dll-errors/"><u>Comprehensive Strategies to Correct Missing mfc71.dll Errors</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Moto G73 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-short-videos-and-everything-about-them/"><u>In 2024, Facebook Short Videos and Everything About Them</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-fixes-the-hands-on-guide-to-generating-timely-captions-on-fb-media/"><u>In 2024, Quick Fixes The Hands-On Guide to Generating Timely Captions on FB Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/insightful-approaches-to-recognizing-genuine-facebook-advocates-for-2024/"><u>Insightful Approaches to Recognizing Genuine Facebook Advocates for 2024</u></a></li>
 </ul></div>
 

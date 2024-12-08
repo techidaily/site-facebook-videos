@@ -1,7 +1,7 @@
 ---
 title: "[New] Quick and Easy Caption Crafting for Engaging FB Video Posts"
-date: 2024-11-23T18:15:53.693Z
-updated: 2024-11-28T16:44:44.132Z
+date: 2024-12-01T19:44:41.375Z
+updated: 2024-12-07T17:50:50.300Z
 tags:
   - ai video
   - ai facebook
@@ -27,10 +27,6 @@ thumbnail: https://thmb.techidaily.com/298329c51bf36530c944afd2311460eb93803d5bd
 
 You might have seen so many videos that contain captions and assist users to understand content with ease even if audio is turned off. Such types of videos are common on Facebook as well as on Facebook Live Streaming app. You will be glad to know that Facebook has recently launched an advanced automatic captioning tool for Facebook Pages in US and it works for free. But this feature is not yet added to Facebook Profiles, reason being the Facebook pages and profiles use follow large number of feature based differences. If you love to stream videos so often on Facebook Pages then probably you must be searching hard for the caption and subtitle creation option as it allows easy customization. Don’t worry! The article below can provide you complete information to add captions on your Facebook videos:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Create Subtitles and Captions for Facebook Video
 
 Here are a few simple steps to get things done:
@@ -40,7 +36,7 @@ Step 1: First of all, you need to move to your video library. In case if you fin
 ![add caption facebook](https://images.wondershare.com/filmora/article-images/add-caption-video-library.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Now use edit video button it will help you to reach at Captions Tab. It offers two selections: Generate or Upload SRT file.
@@ -57,10 +53,6 @@ SRT caption files are usually supported by almost all popular media players and 
 
 ![facebook subtitle create](https://images.wondershare.com/filmora/article-images/facebook-subtitle-create.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now save this text file into SRT format by using Save and then All Files option. Add your desired file name and select file format as .srt. Hit Save option.
 * Note: Facebook can't recognize your caption file unless it is named in the format: \[two-letter language code\]\_\[two-letter contury code\].srt.
 
@@ -69,10 +61,6 @@ SRT caption files are usually supported by almost all popular media players and 
 For this case, all you need to do is select the Generate option from tool and captions will be automatically added in US English language format.
 
 ![auto generate caption](https://images.wondershare.com/filmora/article-images/auto-generate-caption.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now move to the Generate tab where you will find those recently generated captions for your video file. You can edit them as per your preferences. It is possible to pause the video when you are updating your captions.
 
@@ -87,7 +75,7 @@ It is convenient to create captions in Facebook with the automatic generate tool
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here are few simple to follow steps
@@ -95,6 +83,10 @@ Here are few simple to follow steps
 #### Step 1: Import your desired Video File
 
 ![drag n drop timeline](https://images.wondershare.com/filmora/article-images/drag-n-drop-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 First if all, you need to add your video file to Wondershare Filmora timeline. Note that it is good to import videos to Media Library first and then access them for editing via library only so that your original video files can stay safe. Use drag and drop feature or Add files option to get your files from Media Library to Timeline.
 
@@ -115,7 +107,15 @@ Once you have finished the text based editing task then hit the Export option av
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -132,21 +132,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-broadcasting-facebook-videos-whats-the-future-like-for-2024/"><u>[New] Broadcasting Facebook Videos What's the Future Like for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-extract-and-convert-fb-videos-to-mp3-files-efficiently-for-2024/"><u>[New] Extract and Convert FB Videos to MP3 Files Efficiently for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-fb-algorithm-maximizing-page-visibility-for-2024/"><u>[New] Navigating the FB Algorithm Maximizing Page Visibility for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-streamline-your-video-search-on-facebook-tips-and-tricks/"><u>[Updated] 2024 Approved Streamline Your Video Search on Facebook (Tips & Tricks)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unmask-invisible-fb-posts-with-these-proven-effective-12-fixes-for-23/"><u>[Updated] 2024 Approved Unmask Invisible FB Posts with These Proven, Effective 12 Fixes for '23</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-maximizing-gopro-content-integration-with-social-networks-for-2024/"><u>[Updated] Maximizing GoPro Content Integration with Social Networks for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-pickup-or-overkill-navigating-the-ultimate-android-photo-editor/"><u>[Updated] PickUp or Overkill? Navigating the Ultimate Android Photo Editor</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques/"><u>[Updated] The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersion-redefined-vrs-cinematic-promise/"><u>2024 Approved Immersion Redefined VR's Cinematic Promise</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-instagram-a-comprehensive-guide-to-video-posting/"><u>2024 Approved Instagram A Comprehensive Guide to Video Posting</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/essential-iphone-app-recommendations-for-watermarking-pics/"><u>Essential iPhone App Recommendations for Watermarking Pics</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Nokia C02? | Dr.fone</u></a></li>
-<li><a href="https://win-hot.techidaily.com/resolved-issue-unfreezing-the-windows-backup-process-stuck-at-97/"><u>Resolved Issue: Unfreezing the Windows Backup Process Stuck at 97%</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/unlocking-ebook-content-effective-techniques-for-drm-stripping-from-book-pages-including-page-19/"><u>Unlocking eBook Content: Effective Techniques for DRM Stripping From Book Pages, Including Page 19</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-secrets-to-success-in-offworld-trading-company-a-review-of-strategic-market-manipulation-techniques/"><u>Unlocking the Secrets to Success in Offworld Trading Company: A Review of Strategic Market Manipulation Techniques</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Smart 8? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-essential-guide-to-cooler-mini-house-creations/"><u>[New] 2024 Approved The Essential Guide to Cooler Mini-House Creations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-gps-drones-the-ultimate-follower-guide-compilation/"><u>[New] In 2024, GPS Drones The Ultimate Follower Guide Compilation</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-hidden-gems-on-youtube-understanding-unlisted-videos-for-2024/"><u>[Updated] Hidden Gems on YouTube Understanding 'Unlisted' Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-livestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces/"><u>[Updated] In 2024, Livestream Titans Clash Facebook LIVE & YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-and-keep-best-five-extensions-for-fb-videos/"><u>2024 Approved Capture and Keep Best Five Extensions for Fb Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-connectivity-at-its-peak-strategies-for-broadcasting-videos-to-friends/"><u>2024 Approved Connectivity at Its Peak Strategies for Broadcasting Videos to Friends</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-harness-the-power-of-video-for-enhanced-facebook-traffic/"><u>2024 Approved Harness the Power of Video for Enhanced Facebook Traffic</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-can-i-stream-in-hd-1080p-on-facebook/"><u>2024 Approved How Can I Stream in HD 1080P on Facebook?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-keeping-the-flow-alive-2023-guide-to-live-video-repairs-on-fb/"><u>2024 Approved Keeping the Flow Alive 2023 Guide to Live Video Repairs on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-syncing-songs-with-your-facebook-chronicles/"><u>2024 Approved Syncing Songs with Your Facebook Chronicles</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-vital-top-6-business-focused-social-networking-places/"><u>2024 Approved Vital Top 6 Business-Focused Social Networking Places</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/a-step-by-step-guide-to-creating-unique-facebook-video-content/"><u>A Step-by-Step Guide to Creating Unique Facebook Video Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-novice-to-influencer-a-step-by-step-fb-live-blueprint-for-2024/"><u>From Novice to Influencer A Step-by-Step FB Live Blueprint for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-essentials-for-dominating-instagram-stories/"><u>In 2024, The Essentials for Dominating Instagram Stories</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ready-to-launch-gigabytes-beta-bios-prepares-amd-ryzen-9000-series-and-zen-5-chipsets-for-500-series-mobos/"><u>Ready to Launch: Gigabyte's Beta BIOS Prepares AMD Ryzen 9000 Series & Zen 5 Chipsets for 500-Series Mobos</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-my-ubisoft-connect-not-working-solutions-to-common-glitches-in-202cu/"><u>Why Is My Ubisoft Connect Not Working? Solutions to Common Glitches in 202Cu</u></a></li>
 </ul></div>
 

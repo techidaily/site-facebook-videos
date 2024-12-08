@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
-date: 2024-11-21T18:23:49.907Z
-updated: 2024-11-28T18:57:08.100Z
+date: 2024-12-02T18:18:33.821Z
+updated: 2024-12-08T01:23:29.714Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
 
 3.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ChargeTech 27000mAh Portable AC Battery Pack
 
 ![Charge Tech](https://www.lifewire.com/thmb/Ci1U-JKWwFWVHZBkISGIiuX_9dM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -45,10 +45,6 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
 [View On Amazon](https://www.amazon.com/CHARGETECH-27K-Portable-Power-Bank/dp/B07QCC3T54/?tag=lifewire-onsite-prod-20&ascsubtag=4589409%7Cn71d8181ff2304cb385f47d507bf914f522%7CB07QCC3T54) [View On Chargetech.com](https://chargetech.com/product/portable-power-outlet/)
@@ -71,15 +67,15 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
 
 ![Charge Tech](https://www.lifewire.com/thmb/BCvqF82o5dvxOJ6Sb59FZYjknuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_7Web-5c900332c9e77c0001eb1ca0.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -97,15 +93,15 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/pMX2VbLRSNxwb3iQ2XKJW_wDvKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_8Web-5c9003a546e0fb000187a367.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
  When it arrived, the battery pack was roughly 50% charged according to the onboard battery life indicator. So, as we do with all battery packs we test, we drained it completely and charged it.
 
  While on the topic of charging, it's worth noting the power input is a dedicated plugin that uses the included charger. It would've been nice to see ChargeTech use a[USB Type-C](https://www.lifewire.com/usb-c-4149490) input, but that isn't the case. Instead, the battery pack relies on an entirely separate charger that will take up even more space than a spare smartphone or two.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Plenty of power at decent speeds**
 
@@ -114,10 +110,6 @@ Lifewire / Gannon Burgett
  For testing the ChargeTech 27000mAh, we used an iPhone XS and Samsung Galaxy S8 Active for[mobile devices](https://www.lifewire.com/what-is-a-mobile-device-2373355) and a 2016 MacBook Pro 15-inch as the laptop of choice. With each device, we fully charged the battery pack and subsequently charged each device as many times as possible with a fully charged ChargeTech, making sure to drain the mobile device to zero before plugging it back in.
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -132,6 +124,10 @@ Lifewire / Gannon Burgett
 ## **Price: A little bit up there**
 
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Just that little bit extra**
 
@@ -148,6 +144,10 @@ Lifewire / Gannon Burgett
 **Blending into the background for better or worse.**
 
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -185,18 +185,16 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-boost-engagement-sharing-streams-from-twitch-on-fb-for-2024/"><u>[New] Boost Engagement Sharing Streams From Twitch on FB for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-reverse-image-scanning-on-instagram-photos/"><u>[New] Mastering Reverse Image Scanning on Instagram Photos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mastering-xbox-livestreaming-on-facebook-platform-for-2024/"><u>[New] Mastering Xbox Livestreaming on Facebook Platform for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finalcut-pro-101-crafting-professional-youtube-edits/"><u>[Updated] 2024 Approved FinalCut Pro 101 Crafting Professional YouTube Edits</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-best-of-the-best-10-leading-video-call-apps-for-iphones-and-android-for-2024/"><u>[Updated] Best of the Best 10 Leading Video Call Apps for iPhones & Android for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-best-practices-for-exporting-youtube-videos-to-facebook/"><u>[Updated] In 2024, Best Practices for Exporting YouTube Videos to Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-uncovering-the-most-recent-facebook-changes/"><u>[Updated] In 2024, Uncovering the Most Recent Facebook Changes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-dealing-with-self-viewer-phenomenon-on-facebook-chats/"><u>2024 Approved Dealing with Self-Viewer Phenomenon on Facebook Chats</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-unveiling-5-strategies-for-fb-story-access-on-pctablet-and-phone/"><u>2024 Approved Unveiling 5 Strategies for FB Story Access on PC/Tablet and Phone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-14-pro-max-lock-screen-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 14 Pro Max Lock Screen</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Vivo Y36i | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-without-drive-letters-analyzing-problems-and-proposed-solutions/"><u>Windows Without Drive Letters: Analyzing Problems and Proposed Solutions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-comprehensive-reference-for-efficient-screenshotting-with-zd-softwares-tools/"><u>[New] In 2024, Comprehensive Reference for Efficient Screenshotting with ZD Software's Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-lit-tales-in-just-a-minute/"><u>[New] Lit Tales in Just a Minute</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-live-the-experience-top-4-ways-to-preserve-your-gaming-adventures/"><u>[New] Live the Experience Top 4 Ways to Preserve Your Gaming Adventures</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-virtual-anonymity-to-facebook-fame-how-to-expand-your-audience-for-2024/"><u>[Updated] From Virtual Anonymity to Facebook Fame How to Expand Your Audience for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-optimize-facebook-seo-with-10-surefire-ways/"><u>[Updated] How to Optimize Facebook SEO with 10 Surefire Ways</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-display-quality-with-latest-acer-cards-win11/"><u>Elevate Display Quality with Latest Acer Cards, Win11</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-8-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 8 to other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>In 2024, Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1723808250322-instant-access-your-guide-to-direct3d-downloads/"><u>Instant Access: Your Guide to Direct3D Downloads!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/stealthy-watcher-fb-story-viewer/"><u>Stealthy Watcher FB Story Viewer</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-oppo-reno-11f-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Oppo Reno 11F 5G without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 
