@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Artisan's Approach to Profiling Brilliance for 2024"
-date: 2024-12-01T17:38:48.024Z
-updated: 2024-12-07T19:03:06.453Z
+date: 2024-12-06T21:21:57.010Z
+updated: 2024-12-13T21:59:50.180Z
 tags:
   - ai video
   - ai facebook
@@ -48,32 +48,36 @@ thumbnail: https://www.lifewire.com/thmb/WmEO2R_lpuDAQHe_dC_yjMNO5iM=/400x300/fi
 ![filmora elements](https://images.wondershare.com/filmora/article-images/elements-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * First you need to hit the Elements tab in the tool bar and then choose the elements you want to use and drag them to the PIP track. For instance here I am selecting Element Emoji 8.
 
 ![filmora elements emoji](https://images.wondershare.com/filmora/article-images/elements-emoji.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now you need to double click the above mentioned element on the timeline and then choose an animated effect for the Emoji effect. Now hit the OK button. One can also choose to hit the Advanced button for editing the Mask and Green Screen effect from the PIP edit.
 
 ![emoji animated effects](https://images.wondershare.com/filmora/article-images/emoji-animated-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * The size and the position of the Emoji element needs to be adjusted accordingly.
 
 ![emoji size adjustment](https://images.wondershare.com/filmora/article-images/emoji-size-adjustment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * The result can be checked by hitting the Play button from the Preview window. If you are satisfied with the result you can move on to the next step.
 
 ![emoji element preview](https://images.wondershare.com/filmora/article-images/emoji-preview.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Note: It needs to be noted here that you will be able to zoom in and zoom out the timeline so as to view all the clips in the timeline with clarity. In case the duration of the video is lengthy then you can alter the duration of the still photos or cut some of the clips from the video footage. In order to use other effects like overlays and filters you just need to depend on Filmora.
 
@@ -82,10 +86,6 @@ thumbnail: https://www.lifewire.com/thmb/WmEO2R_lpuDAQHe_dC_yjMNO5iM=/400x300/fi
  Once you are done with the editing of your footage you need to hit the Export button for output. Since the Facebook profile video can only be uploaded through an iOS or Android smartphone, you will be required to select the Device in the left panel of the Export Window and then choose your device.
 
 ![export output](https://images.wondershare.com/filmora/article-images/export-output.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Note: Remember that the export isn’t going to transfer the videos to your mobile device directly. The video is going to be stored in the local hard disk.
 
@@ -110,7 +110,7 @@ thumbnail: https://www.lifewire.com/thmb/WmEO2R_lpuDAQHe_dC_yjMNO5iM=/400x300/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -128,18 +128,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-15-best-facebook-analyzers-to-increase-sales-for-2024/"><u>[Updated] 15 Best Facebook Analyzers to Increase Sales for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-connect-your-content-from-twitch-to-facebook/"><u>2024 Approved Connect Your Content From Twitch to Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-crafting-spectaculous-fb-ad-videos-with-creativity/"><u>2024 Approved Crafting Spectaculous Fb Ad Videos with Creativity</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-see-old-stories-on-facebook-find-story-archive-easily/"><u>2024 Approved How to See Old Stories on Facebook Find Story Archive Easily</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-most-shared-moments-socials-star-vids/"><u>2024 Approved Most Shared Moments Social's Star Vids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-sharing-twitch-links-on-your-fb-page/"><u>2024 Approved Seamless Sharing Twitch Links on Your FB Page</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-solving-mysterious-oneself-appearing-in-video-conversations/"><u>2024 Approved Solving Mysterious Oneself Appearing in Video Conversations</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/comment-transformer-votre-fichier-swf-en-multiprecedes-guide-complet-avec-movavi/"><u>Comment Transformer Votre Fichier SWF en Multiprécédés : Guide Complet Avec Movavi</u></a></li>
-<li><a href="https://video-capture.techidaily.com/essential-techniques-for-quiet-filming-for-2024/"><u>Essential Techniques for Quiet Filming for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Vivo X100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-gopros-rivalry-with-drift-ghost-the-racing-camera-faceoff/"><u>In 2024, GoPro's Rivalry with Drift Ghost - The Racing Camera Faceoff</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-avoid-facebook-video-ad-interruptions/"><u>[New] 2024 Approved Avoid Facebook Video Ad Interruptions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-essential-game-editor-tools-for-novices/"><u>[New] 2024 Approved Essential Game Editor Tools for Novices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-premier-selection-of-toppest-free-video-calls-and-screenshare-for-2024/"><u>[New] Premier Selection of Toppest FREE Video Calls & Screenshare for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-blurry-video-woes-solved-fix-on-mobile-devices/"><u>[Updated] 2024 Approved Blurry Video Woes Solved Fix on Mobile Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-blending-beats-posting-tunes-on-digital-diaries/"><u>[Updated] Blending Beats Posting Tunes on Digital Diaries</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-screen-recording-face-off-bandicam-vs-camtasias-features/"><u>2024 Approved Screen Recording Face-Off Bandicam vs Camtasia's Features</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-find-download-and-setup-epson-es-400-driver-for-seamless-scanning-on-windows-operating-system/"><u>How To Find, Download & Setup Epson ES-400 Driver For Seamless Scanning On Windows Operating System</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y200e-5g-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo Y200e 5G Phone without Google Account?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-xiaomi-redmi-note-12r-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Xiaomi Redmi Note 12R PC | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-tecno-camon-30-pro-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Tecno Camon 30 Pro 5G Is Unlocked</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/nifty-steps-to-generate-timely-captions-and-text-for-fb-video-uploads-for-2024/"><u>Nifty Steps to Generate Timely Captions and Text for FB Video Uploads for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlock-the-full-potential-of-your-fb-timeline/"><u>Unlock the Full Potential of Your FB Timeline</u></a></li>
 </ul></div>
 

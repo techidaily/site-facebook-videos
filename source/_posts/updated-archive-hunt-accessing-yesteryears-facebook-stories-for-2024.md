@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Archive Hunt  Accessing Yesteryear's Facebook Stories for 2024\""
-date: 2024-12-02T19:52:51.697Z
-updated: 2024-12-07T17:34:11.846Z
+date: 2024-12-12T16:00:02.118Z
+updated: 2024-12-13T21:55:06.425Z
 tags:
   - ai video
   - ai facebook
@@ -43,10 +43,6 @@ Facebook stories are a short generated collection of photos and videos that the 
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
 Are you looking at how to see old stories on Facebook desktop? Let’s look at each step in detail:
@@ -57,13 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -81,17 +77,21 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -105,10 +105,6 @@ An old highlighted story shared by your friend would appear on your friend’s p
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: How to Create Facebook Videos with Ease?
 
 If you think that to create amazing videos for Facebook, you need to be a professional then let me tell you that it is not at all necessary. But yes you need to be aware of the right video editing software to help you with and solve your need to create a stunning video.
@@ -118,7 +114,7 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Features:**
@@ -163,6 +159,10 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,15 +178,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-catalog-films-for-streamlined-playback/"><u>[New] Catalog Films for Streamlined Playback</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-crafting-a-viral-narrative-on-social-media-for-2024/"><u>[New] Crafting a Viral Narrative on Social Media for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-clearing-your-browsers-watched-videos/"><u>[New] In 2024, Clearing Your Browser's Watched Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-maximizing-social-interaction-with-innovative-fb-slideshow-techniques-for-2024/"><u>[New] Maximizing Social Interaction with Innovative FB Slideshow Techniques for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boosting-your-gaming-experience-solutions-for-higher-frame-rates-in-assassins-creed-valhalla/"><u>Boosting Your Gaming Experience: Solutions for Higher Frame Rates in Assassin's Creed Valhalla</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-epson-xp-440-drivers-for-smooth-printing-operations/"><u>Get the Newest Epson XP-440 Drivers for Smooth Printing Operations</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-quick-guide-how-to-revamp-facebook-profile-imagery/"><u>In 2024, Quick Guide How to Revamp Facebook Profile Imagery</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/mastering-social-media-finding-youtube-content-on-fb-for-2024/"><u>Mastering Social Media Finding YouTube Content on FB for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-accessible-vocal-isolation-equipment-for-all-voice-levels-for-2024/"><u>New Accessible Vocal Isolation Equipment for All Voice Levels for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/strategies-efficaces-de-reduction-du-taille-pour-votre-contenu-video-mov-guide-doptimisation-seo/"><u>Stratégies Efficaces De Réduction Du Taille Pour Votre Contenu Vidéo MOV - Guide D'Optimisation SEO</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-premier-fb-viewing-sites-ranked-1-10/"><u>[New] 2024 Approved Premier FB Viewing Sites Ranked #1-10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-through-challenges-with-non-functional-fb-video-share/"><u>[New] Navigating Through Challenges with Non-Functional FB Video Share</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-guide-choosing-powerful-notebooks-for-filmmakers/"><u>[New] Ultimate Guide Choosing Powerful Notebooks for Filmmakers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-how-to-edit-videos-for-youtube-on-pc/"><u>[Updated] 2024 Approved How to Edit Videos for YouTube on PC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-android-and-iphones-leading-social-apps-to-skyrocket-likes-on-fb-for-2024/"><u>[Updated] Android & iPhone's Leading Social Apps to Skyrocket Likes on FB for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-your-facebook-experience-mastering-story-uploads/"><u>[Updated] Enhancing Your Facebook Experience Mastering Story Uploads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-memories-to-reels-building-stellar-slideshows-for-facebook-for-2024/"><u>[Updated] From Memories to Reels Building Stellar SlideShows for Facebook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-innovating-advertising-on-facebook-the-most-effective-videography/"><u>[Updated] Innovating Advertising on Facebook The Most Effective Videography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-maximizing-tv-viewership-for-facebook-live-events-for-2024/"><u>[Updated] Maximizing TV Viewership for Facebook Live Events for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-optimal-methods-for-game-recordings-for-2024/"><u>[Updated] Optimal Methods for Game Recordings for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-avoiding-objections-to-autoplay-videos-on-fb/"><u>2024 Approved Avoiding Objections to Autoplay Videos on FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-playwrights-tactics-creating-compelling-dialogues/"><u>2024 Approved Playwrights' Tactics Creating Compelling Dialogues</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-prism-of-design-from-theory-to-practice-for-2024/"><u>A Prism of Design From Theory to Practice for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correcting-absence-in-task-managers-startups/"><u>Correcting Absence in Task Manager's Startups</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-ancs-marshall-aesthetics-and-rhythms-enhanced/"><u>Elevating ANC's Marshall - Aesthetics & Rhythms Enhanced</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-essential-tips-for-basic-color-correction/"><u>In 2024, Essential Tips for Basic Color Correction</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-definitive-guide-to-diagnosing-and-resolving-squad-mic-malfunctions/"><u>The Definitive Guide to Diagnosing and Resolving Squad Mic Malfunctions</u></a></li>
 </ul></div>
 

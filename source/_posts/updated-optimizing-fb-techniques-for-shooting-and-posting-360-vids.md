@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimizing FB  Techniques for Shooting & Posting 360 Vids\""
-date: 2024-11-30T22:26:29.229Z
-updated: 2024-12-07T16:04:09.658Z
+date: 2024-12-09T22:40:14.965Z
+updated: 2024-12-13T17:29:18.944Z
 tags:
   - ai video
   - ai facebook
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 * [Part 3: How to Upload 360 Video to Facebook](#part3)
 * [Part 4: Facebook 360 Video & Gear VR](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is 360 Degree Video?
 
  Most of the cameras these days are capable enough to capture shoots with 170 degree wide coverage and in case if you want to show the scene behind the camera then it becomes essential to use two 170 degree FOV cameras back to back. Hence, for capturing all six directions in a single footage you may require connecting 6 cameras together while adjusting their focus in different directions. The resultant content is known as 360 degree video. Many smart algorithms have been developed by professionals to get these videos stitched together to develop complete 360 degree content in a single footage. This is something like standing in the centre of a sphere and viewing everything in all directions.
@@ -41,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  These 360 degree videos have inspired the concept of virtual reality but these equipments are quite expensive. But as soon as the technology is gaining popularity, chances are to get VR gear at lower price in near future.
 
  So, now you may be thinking hard that how this feature is useful for Facebook users. Actually, Facebook has recently enabled its users to upload 360 videos directly to their pages, groups or profiles so that audience can stay engaged. This is really interesting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to make a 360 Degree video on Facebook?
 
@@ -61,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  In case if you are using any other device to capture your 360 degree videos then you may need to make manual adjustments for your 360 video formats.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to upload 360 degree videos on Facebook
@@ -74,16 +82,12 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 
 ![Facebook 360 video upload](https://images.wondershare.com/filmora/article-images/facebook-360-video-upload.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Step 3: Now select the option “This video was recorded in 360° format”. It will help your app to generate automated control for 360 degree content.
 
 ![Facebook 360 Controls](https://images.wondershare.com/filmora/article-images/facebook-360-controls.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Step 4: Go to **360 Controls** tab and make settings for field or view as well as more initial camera orientations.
@@ -91,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
  Step 5: Finally click the **Publish** option.
 
  Note that Facebook 360 live platform allows maximum 30 minutes for a 360 degree video and the maxim supported file size goes up to 5GB only. So you can prepare your media file accordingly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook 360 Video & Gear VR
 
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/06c74021872dcc3b0ce900f997f142db31fade534
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,22 +137,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://sound-issues.techidaily.com/fixed-sony-wh-1000xm34-mic-not-working-on-pc/"><u>[Fixed] Sony WH-1000XM3/4 Mic Not Working on PC</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-harness-online-tools-for-free-fb-video-conversion-to-1080p720p-mp4/"><u>[New] 2024 Approved Harness Online Tools for Free FB Video Conversion to 1080P/720p MP4</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-simplified-guide-enhancing-skype-experience-via-zoom/"><u>[New] 2024 Approved Simplified Guide Enhancing Skype Experience via Zoom</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-from-small-screens-to-big-screen-success-fb-video-guide-2023/"><u>[New] From Small Screens to Big Screen Success FB Video Guide 2023</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-from-setup-to-screening-wirecasts-role-in-facebook-streaming/"><u>[New] In 2024, From Setup to Screening Wirecast’s Role in Facebook Streaming</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/trategies-for-stumbling-upon-covert-youtube-videos/"><u>[New] Strategies for Stumbling Upon Covert YouTube Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-1000-club-achievement-monthly-tips-for-insta-success-and-growth-for-2024/"><u>[New] The 1,000 Club Achievement Monthly Tips for Insta Success and Growth for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-5-must-see-facebook-vids-that-delight-us-all/"><u>[Updated] 2024 Approved 5 Must-See Facebook Vids That Delight Us All</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unlock-professional-vimeo-edits-without-paid-software/"><u>[Updated] 2024 Approved Unlock Professional Vimeo Edits Without Paid Software</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-idea-to-execution-an-essential-guide-to-youtube-shorts-template-design/"><u>[Updated] From Idea to Execution An Essential Guide to YouTube Shorts Template Design</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-right-to-appeal-removed-videos-from-facebooks-domain/"><u>[Updated] In 2024, The Right to Appeal Removed Videos From Facebook's Domain</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-minimizing-vr-nausea-effective-strategies/"><u>[Updated] Minimizing VR Nausea Effective Strategies</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-eye-on-the-social-scene-top-tweets-of-2023/"><u>2024 Approved Eye on the Social Scene Top Tweets of 2023</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-stop-ipadiphone-from-freezing-during-fb-playback/"><u>2024 Approved Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unlock-social-potential-xbox-games-via-facebook-livestream/"><u>In 2024, Unlock Social Potential Xbox Games via Facebook Livestream</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unlocking-full-potential-watching-facebook-videos-on-your-apple-devices/"><u>Unlocking Full Potential Watching Facebook Videos on Your Apple Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/youtube-free-convert-your-fb-videos-into-720p1080p-mp4-online-guide/"><u>YouTube-Free Convert Your FB Videos Into 720P/1080p MP4 Online Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fixing-half-silenced-facebook-video-volume-for-2024/"><u>[New] Fixing Half-Silenced Facebook Video Volume for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-core-strategies-for-android-video-capture/"><u>[New] In 2024, Core Strategies for Android Video Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-steps-to-ensure-whole-sound-in-fb-video-playbacks/"><u>[New] Steps to Ensure Whole Sound in FB Video Playbacks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-auditory-purity-in-ffmpeg-a-format-friendly-perspective/"><u>[Updated] 2024 Approved Auditory Purity in FFmpeg A Format-Friendly Perspective</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-snapdivide-assessment/"><u>[Updated] In 2024, SnapDivide Assessment</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-masterclass-in-creating-the-ideal-home-4k-editing-pc/"><u>[Updated] Masterclass in Creating the Ideal Home 4K Editing PC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-archivists-edge-cutting-edge-strategies-for-social-downloads/"><u>[Updated] The Archivist's Edge Cutting-Edge Strategies for Social Downloads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-enhancing-facebook-nostalgia-video-tweaks/"><u>2024 Approved Enhancing Facebook Nostalgia Video Tweaks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-immersive-chronicles-virtual-realitys-history/"><u>2024 Approved Immersive Chronicles Virtual Reality's History</u></a></li>
+<li><a href="https://win11.techidaily.com/gateway-to-disks-windows-10-and-11-mastery-guide/"><u>Gateway to Disks: Windows 10 & 11 Mastery Guide</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-7-location-by-number-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 7 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-what-does-jailbreaking-iphone-15-pro-max-i-do-get-answers-here-by-drfone-ios/"><u>In 2024, What Does Jailbreaking iPhone 15 Pro Max i Do? Get Answers here</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-depth-analysis-calculating-your-podcasts-cost/"><u>In-Depth Analysis Calculating Your Podcast's Cost</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/musics-big-screen-facebooks-top-ten-vids/"><u>Music's Big Screen Facebook's Top Ten Vids</u></a></li>
 </ul></div>
 

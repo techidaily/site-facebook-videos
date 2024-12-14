@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevate Your Gopro Footage  Live Streaming on Facebook and Periscope\""
-date: 2024-12-03T00:41:39.657Z
-updated: 2024-12-08T01:29:09.401Z
+date: 2024-12-08T18:07:10.192Z
+updated: 2024-12-14T01:24:24.866Z
 tags:
   - ai video
   - ai facebook
@@ -25,10 +25,6 @@ thumbnail: https://www.lifewire.com/thmb/d1qyqc5M-UHwoefmYHVs46ZYRuY=/400x300/fi
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Preparation for live streaming
 
 Before you start live streaming from your action camera you will be required to install three apps- the GoPro App, the Live4 App and the Periscope App.
@@ -43,20 +39,20 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 ![click connect your camera ](https://images.wondershare.com/filmora/article-images/click-connect-your-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2\. Just follow the given instructions.
 
 ![ Select your device](https://images.wondershare.com/filmora/article-images/select-your-device.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3\. Pair your action camera with the GoPro app
 
 ![ pair your GoPro](https://images.wondershare.com/filmora/article-images/pair-your-gopro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4\. Once the pairing is done you need to connect your smartphone to the wifi of your action cam.
@@ -73,13 +69,13 @@ Once you have downloaded these 3 apps you will be required to go to your GoPro a
 
 ![edit your title ](https://images.wondershare.com/filmora/article-images/edit-your-title.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3\. In the 3rd step you will be required to tap the ‘f’ icon at the bottom of the right hand side of the screen. This would start to live stream your video on Facebook. You can decide if you want to share your location or not. You can also set your live stream as private or leave it open to the public.
 
 ![click the f ](https://images.wondershare.com/filmora/article-images/click-the-f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to live stream GoPro to Periscope
 
@@ -92,6 +88,10 @@ Once you are done with your GoPro settings you can start live streaming via the 
 1\. Never exit the Periscope app while you are broadcasting or it will end the broadcast
 2\. Swiping right during the broadcast will let you choose the camera from which you want to broadcast. When you double tap the broadcast screen you will be allowed to toggle between your action camera and the iPhone camera.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Live streaming your GoPro footage would allow you to share your action moments with your friends and followers at any given time. GoPro cameras are known to capture videos like no other cameras can. Live streaming your action camera footage will let your share those extreme moments no matter where you are.
@@ -99,7 +99,7 @@ Live streaming your GoPro footage would allow you to share your action moments w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -117,24 +117,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-mastering-view-access-for-groups-shared-stuff/"><u>[New] 2024 Approved Mastering View Access for Group's Shared Stuff</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-social-media-mastery-surpassing-the-competition-in-popularity-rankings/"><u>[New] 2024 Approved Social Media Mastery Surpassing the Competition in Popularity Rankings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-connecting-players-and-friends-stream-xbox-to-fb/"><u>[New] Connecting Players & Friends Stream Xbox to FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-how-to-edit-facebook-look-back-video/"><u>[New] How to Edit Facebook Look Back Video</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-a-comparative-journey-through-the-top-10-tv-streamers/"><u>[New] In 2024, A Comparative Journey Through the Top 10 TV Streamers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-from-zero-to-hero-establishing-a-new-social-media-presence-facebook/"><u>[New] In 2024, From Zero to Hero Establishing a New Social Media Presence (Facebook)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-ban-barrier-strategies-for-unblocked-fb-life/"><u>[New] Navigating the Ban Barrier Strategies for Unblocked FB Life</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-future-is-here-free-innovative-fb-story-enhancers/"><u>[Updated] In 2024, The Future Is Here Free, Innovative FB Story Enhancers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-creative-constructions-mcs-finest-houses/"><u>2024 Approved Creative Constructions MC's Finest Houses</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-perfecting-audio-on-iphone-select-the-best-6-free-software-choices/"><u>2024 Approved Perfecting Audio on iPhone Select the Best 6 Free Software Choices</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-mastery-pioneering-techniques-for-any-marketing-stage/"><u>In 2024, Facebook Mastery Pioneering Techniques for Any Marketing Stage</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-y100i-power-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo Y100i Power 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-lead-the-likes-the-best-social-app-list-on-androidiphone/"><u>In 2024, Lead the Likes The Best Social App List on Android/iPhone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-producing-teaser-videos-with-a-twist/"><u>In 2024, Producing Teaser Videos with a Twist</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-logitech-g35-microphone-drivers-for-optimal-performance-on-windows-7810-systems/"><u>Install Logitech G35 Microphone Drivers for Optimal Performance on Windows 7/8/10 Systems</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209870738-9780648391326-snow-gums-gift/"><u>Snow Gum's Gift | Free Book</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/by-step-tutorial-download-youtube-videos-in-pieces/"><u>Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/tinyflicker-log-review-and-options-to-consider-for-2024/"><u>TinyFlicker Log Review & Options to Consider for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhancing-engagement-with-dynamic-360-videos-on-facebook/"><u>[New] 2024 Approved Enhancing Engagement with Dynamic 360 Videos on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-precision-problem-solving-for-social-media-stories-issues/"><u>[New] 2024 Approved Precision Problem-Solving for Social Media Stories Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-integrating-facebook-livestream-into-your-roku-setup/"><u>[New] In 2024, Integrating Facebook Livestream Into Your Roku Setup</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhance-fb-story-visibility-with-these-tips/"><u>[Updated] In 2024, Enhance FB Story Visibility with These Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-mastering-the-social-media-lands-point-10-secrets-for-fb-optimization/"><u>[Updated] Mastering the Social Media Lands Point 10 Secrets for FB Optimization</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-excellence-in-efficiency-top-5-chromes-for-vids-from-fb/"><u>2024 Approved Excellence in Efficiency Top 5 Chromes for Vids From FB</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-navigating-the-nuances-zooming-in-on-roblox/"><u>2024 Approved Navigating the Nuances Zooming In on Roblox</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-modern-professionals-must-have-collect-these-8-innovations-now/"><u>2024 Approved The Modern Professional's Must-Have Collect These 8 Innovations Now</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/3-pillars-of-powerful-ad-content-creation-enhancing-conversion-rates-via-facebook/"><u>3 Pillars of Powerful Ad Content Creation Enhancing Conversion Rates via Facebook</u></a></li>
+<li><a href="https://common-error.techidaily.com/achieving-continuous-windows-11-operation/"><u>Achieving Continuous Windows 11 Operation</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/future-of-work-identifying-positions-vulnerable-to-replacement-by-chatgpt-style-technology/"><u>Future of Work: Identifying Positions Vulnerable to Replacement by ChatGPT-Style Technology</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-everspace-npc-version-from-crashing-solution-found/"><u>How To Stop Everspace nPC Version From Crashing (Solution Found)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-6-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 6? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/masterful-insights-the-top-6-video-snaggers-on-mac/"><u>Masterful Insights The Top 6 Video Snaggers on Mac</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722210782294-no-membership-necessary-gpt-4-available-to-all-with-platinum-benefits-still-worth-it/"><u>No Membership Necessary: GPT-4 Available to All, with Platinum Benefits Still Worth It.</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimizing-your-workflow-efficiently-editing-360-degree-videos-in-premiere-pro-for-2024/"><u>Optimizing Your Workflow Efficiently Editing 360 Degree Videos in Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/personalize-your-online-story-mastery-in-fb-memories/"><u>Personalize Your Online Story Mastery in FB Memories</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/swf-3gp-online/"><u>SWF 및 3GP 파일 무료 원격 전환 - Online 쉘</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-virtuoso-access-to-premium-dj-video-samples-for-2024/"><u>Vinyl Virtuoso Access to Premium DJ Video Samples for 2024</u></a></li>
 </ul></div>
 
