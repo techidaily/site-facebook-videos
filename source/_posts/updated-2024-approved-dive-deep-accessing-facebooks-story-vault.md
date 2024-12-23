@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-12-08T20:01:19.365Z
-updated: 2024-12-14T01:18:13.167Z
+date: 2024-12-16T21:45:51.941Z
+updated: 2024-12-22T19:21:42.691Z
 tags:
   - ai video
   - ai facebook
@@ -37,11 +37,19 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to See Old Facebook Stories on Desktop?
 
@@ -53,10 +61,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -64,6 +68,10 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -77,10 +85,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
@@ -88,10 +92,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -101,17 +101,9 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
 
@@ -147,6 +139,10 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -163,6 +159,10 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,20 +178,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-building-brand-persona-writing-killer-bios-for-facebook-profiles/"><u>[New] 2024 Approved Building Brand Persona Writing Killer Bios for Facebook Profiles</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-fbs-top-songs-on-screen-a-step-by-step-vlog-series-for-2024/"><u>[New] FB's Top Songs on Screen A Step-by-Step Vlog Series for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-maximizing-your-time-free-countdown-essentials/"><u>[New] In 2024, Maximizing Your Time Free Countdown Essentials</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-secure-method-storing-tweet-imagesvideos-on-your-mobile-for-2024/"><u>[New] Secure Method Storing Tweet Images/Videos on Your Mobile for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlocking-the-secret-of-fbs-lately-viewed-videos/"><u>[New] Unlocking the Secret of Fb’s Lately Viewed Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-white-walkers-whistle-where-to-find-your-favorite-got-ringtone-for-2024/"><u>[New] White Walkers Whistle Where to Find Your Favorite GoT Ringtone for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-elite-file-sender-mp4-to-social/"><u>[Updated] 2024 Approved Elite File Sender MP4 to Social</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-two-effective-ways-how-can-i-share-youtube-videos-on-facebook/"><u>[Updated] 2024 Approved Two Effective Ways! How Can I Share YouTube Videos on Facebook?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-cost-free-translation-made-easy-with-these-subtitle-downloader-apps/"><u>[Updated] In 2024, Cost-Free Translation Made Easy with These Subtitle Downloader Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-ultimate-selection-of-8-stealth-downloads/"><u>[Updated] In 2024, Ultimate Selection of 8 Stealth Downloads</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-proven-strategies-for-building-an-insightful-and-interactive-instagram-puzzle-feed/"><u>2024 Approved Proven Strategies for Building an Insightful and Interactive Instagram Puzzle Feed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-tape-looper-mastery-app/"><u>2024 Approved Tape Looper Mastery App</u></a></li>
-<li><a href="https://games-able.techidaily.com/3-reasons-why-30fps-console-gaming-isnt-as-bad-as-you-think/"><u>3 Reasons Why 30FPS Console Gaming Isn’t as Bad as You Think</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unveil-hidden-watch-visual-artwork/"><u>In 2024, Unveil Hidden Watch Visual Artwork</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-art-of-image-detection-opposite-on-facebook-networks/"><u>The Art of Image Detection Opposite on Facebook Networks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easy-extraction-of-social-media-videos-with-chrome-plugs/"><u>[New] 2024 Approved Easy Extraction of Social Media Videos with Chrome Plugs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ignite-curiosity-with-a-personal-touch-anime-subscribe-buttons-for-filmmakers-filmora/"><u>[New] 2024 Approved Ignite Curiosity with a Personal Touch - Anime Subscribe Buttons for Filmmakers (Filmora)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-joining-friends-and-family-online-facebook-setup-guide/"><u>[New] 2024 Approved Joining Friends and Family Online (Facebook Setup Guide)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-boost-engagement-sharing-streams-from-twitch-on-fb/"><u>[New] Boost Engagement Sharing Streams From Twitch on FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-syncing-your-phone-with-facebook-videos-on-appletv/"><u>[New] In 2024, Syncing Your Phone with Facebook Videos on AppleTV</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-the-secrets-of-facebook-video-content-success/"><u>[New] In 2024, Unveiling the Secrets of Facebook Video Content Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-no-more-ghosting-on-social-reinstate-disappearing-facebook-videos-with-12-tips/"><u>[Updated] 2024 Approved No More Ghosting on Social Reinstate Disappearing Facebook Videos With 12 Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-benefits-of-apples-m1-in-post-production-editing/"><u>[Updated] Benefits of Apple's M1 in Post-Production Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-establishing-a-mac-based-sports-media-outlet/"><u>[Updated] In 2024, Establishing a Mac-Based Sports Media Outlet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gpt-and-bing-battle-for-top-generative-bot-acclaim/"><u>GPT and Bing Battle for Top Generative Bot Acclaim</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-cross-platform-tweeting-twitterfacebook/"><u>In 2024, Mastering Cross-Platform Tweeting (Twitter/Facebook)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-influence-unleashed-the-ultimate-guide-to-power-players-strategies/"><u>Insta Influence Unleashed The Ultimate Guide to Power Players' Strategies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-pinnacle-of-voice-recording-a-comprehensive-tome-for-2024/"><u>The Pinnacle of Voice Recording A Comprehensive Tome for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-race-of-processors-amds-ryzen-9-9950x-takes-the-5th-place-worldwide-as-revealed-by-time-spy-extreme-watercooling-test/"><u>The Race of Processors: AMD's Ryzen 9 9950X Takes the 5Th Place Worldwide as Revealed by Time Spy Extreme Watercooling Test</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-fix-how-to-retract-a-repost-on-tiktok-easily/"><u>The Ultimate Fix: How To Retract A Repost On TikTok Easily</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultra-clarity-the-new-era-of-hd-monitors-envy-27/"><u>Ultra Clarity The New Era of HD Monitors - Envy 27</u></a></li>
 </ul></div>
 

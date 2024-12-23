@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Replace Missing Watch Playback Icons"
-date: 2024-09-17T04:33:27.232Z
-updated: 2024-09-18T02:31:04.717Z
+date: 2024-12-17T23:47:54.329Z
+updated: 2024-12-22T18:28:00.954Z
 tags:
   - ai video
   - ai facebook
@@ -283,6 +283,10 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 
 ![facebook settings and privacy](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: On the next screen, scroll down until you see the “Shortcuts” section.
 
 ![shortcut bar](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-5.png)
@@ -300,10 +304,7 @@ It might be because you’ve to delete existing Facebook data stored on your dev
 ![mobile settings apps](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 8**: Once it’s loaded, scroll down until you find the Facebook app.
@@ -326,13 +327,6 @@ It might be because you’ve to delete existing Facebook data stored on your dev
 
 ![facebook tv icon for video](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-11.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 14**: Again, go to “Settings & Privacy > Settings > Shortcut Bar.
 
 Now, you should see the VideoHome shortcut option in the list. If it’s disable, you’ve to enable it by tapping on the toggle button.
@@ -352,6 +346,10 @@ Here are some other solutions you can try to solve the issue:
 If none of the methods explained above work, then try uninstalling/deleting the app from your device. To do this, simply tap and hold the app and uninstall it.
 
 Now, open the Play Store or App Store, and install a new copy of the Facebook app. Finally, login by using your username and password, and see if the Facebook video icon is there or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Get to the Facebook Help Center**
 
@@ -376,6 +374,10 @@ To do this:
 The first and foremost reason is that it gives you quick access to useful video content online. Many businesses, small and bid, connect with others on Facebook. It’s great for both personal and professional objectives. In addition, Facebook video formats are designed to capture the attention of the audience immediately. It’s flexible and creativity, helping you reach your goals.
 
 ![wondershare filmora video making](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can use different tools to create impressive Facebook videos, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one such good tool. This is one of the best video-making and editing tools delivering professional results.
 
@@ -489,6 +491,10 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 
 ![shortcut bar](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Now, tap on “Shortcut Bar,” and if you don’t see VideoHome option,” move on to the next step.
 
 ![shortcut bar settings](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-6.png)
@@ -509,9 +515,17 @@ It might be because you’ve to delete existing Facebook data stored on your dev
 
 ![facebook settings on mobile](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10**: On the next screen, you’ll see two options – Clear Cache and Clear Data. First, click on Clear Cache to remove cached Facebook data.
 
 ![clearing facebook data on mobile](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11**: Now, click on Clear Data to delete all Facebook data stored on your device.
 
@@ -607,6 +621,10 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Facebook gives its users a lot of interesting video content to enjoy and benefit from. The best part is, the social media platform makes it pretty easy to access video and all other types of content. To make video content more easily accessible, the social media giant added a video icon in the shortcuts bar for users’ convenience.
@@ -669,23 +687,9 @@ But in some cases, for example, when you don’t know Facebook settings, you’v
 
 ![facebook hamburger menu icon](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3**: Scroll down and go to Settings & Privacy. On the following screen, go to Settings.
 
 ![facebook settings and privacy](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4**: On the next screen, scroll down until you see the “Shortcuts” section.
 
@@ -704,10 +708,7 @@ It might be because you’ve to delete existing Facebook data stored on your dev
 ![mobile settings apps](https://images.wondershare.com/filmora/article-images/2021/facebook-video-icon-missing-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 8**: Once it’s loaded, scroll down until you find the Facebook app.
@@ -797,6 +798,10 @@ Wondershare’s Filmora brings you 100+ transitions arranged in 10+ categories, 
 In addition, the tool offers many video formats, including FLV, MKV, AVI, , MP4, MOV, and WMV. You can even choose an animated GIF format and 4K formats as per your needs.
 
 All in all, Filmora is a super flexible and versatile video editing tool packed with countless features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -831,5 +836,21 @@ Once you’ve created eye-soothing and pleasing content using Filmora, you can p
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-connecting-in-real-time-advanced-tips-for-streaming-screens-via-fb/"><u>[New] 2024 Approved Connecting in Real Time Advanced Tips for Streaming Screens via Fb</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-basic-to-creative-zooming-into-video-filters-step-by-step/"><u>[New] From Basic to Creative Zooming Into Video Filters Step-by-Step</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-ultimate-pathway-autoplay-youtube-videos-within-fb-networks/"><u>[New] In 2024, The Ultimate Pathway Autoplay YouTube Videos Within FB Networks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimal-steadicams-for-professional-grade-dslr-shoots/"><u>[New] Optimal Steadicams for Professional-Grade DSLR Shoots</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-perfecting-your-video-content-for-instagram-feed-for-2024/"><u>[New] Perfecting Your Video Content for Instagram Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-a-guide-to-navigating-posting-on-altered-instagram-landscape-for-2024/"><u>[Updated] A Guide to Navigating Posting on Altered Instagram Landscape for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-maximizing-drones-indispensable-accessories-list/"><u>[Updated] In 2024, Maximizing Drones Indispensable Accessories List</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-preventing-sudden-deletion-of-personal-videos-from-fb-for-2024/"><u>[Updated] Preventing Sudden Deletion of Personal Videos From FB for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/convert-your-fb-video-into-singable-songs-mp3/"><u>Convert Your FB Video Into Singable Songs (MP3)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-redmi-13c-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi Redmi 13C 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-itel-a60s-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Itel A60s to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamline-your-youtube-video-process-with-faster-techniques/"><u>In 2024, Streamline Your YouTube Video Process with Faster Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/y-workshop-converting-your-visuals-into-stellar-youtube-pics-for-2024/"><u>Speedy Workshop Converting Your Visuals Into Stellar YouTube Pics for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-the-power-of-videos-to-drive-fb-traffic/"><u>Unlocking the Power of Videos to Drive FB Traffic</u></a></li>
+</ul></div>
 
