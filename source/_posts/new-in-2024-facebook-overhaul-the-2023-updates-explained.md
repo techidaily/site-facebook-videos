@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Facebook Overhaul  The 2023 Updates Explained\""
-date: 2024-12-09T21:34:08.428Z
-updated: 2024-12-13T17:56:43.666Z
+date: 2024-12-23T18:02:45.883Z
+updated: 2024-12-28T16:14:44.242Z
 tags:
   - ai video
   - ai facebook
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What is Facebook
 
@@ -58,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Exploring Facebook
@@ -77,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -86,11 +86,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -108,7 +104,7 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
 * Play games and enhance your circle
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Sharing Work?
@@ -118,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/a01c874bf96001212de2ae31da3cf8c01bb85a8c0
  The privacy tools can be applied on few posts and information, the remaining information (such as your cover picture) is visible to everybody. Facebook is designed to be more open and social than traditional communication tools. You will learn more in this Facebook tutorial.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,16 +134,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-az-vision-recorder-complete-application-audits-and-substitutes/"><u>[New] 2024 Approved AZ Vision Recorder Complete Application Audits & Substitutes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-enhanced-video-clarity-on-iphone-and-android-platforms/"><u>[New] In 2024, Enhanced Video Clarity on iPhone & Android Platforms</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-top-five-game-changing-updates-from-facebook-for-2024/"><u>[New] Top Five Game-Changing Updates From Facebook for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-cutting-edge-simulators-for-sonys-playstation-3-games-pc/"><u>[Updated] 2024 Approved Cutting-Edge Simulators for Sony's PlayStation 3 Games (PC)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-make-money-with-facebook-a-practical-roadmap-for-2024/"><u>[Updated] Make Money with Facebook A Practical Roadmap for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-sleeper-strikers-top-10-undetected-fb-memes/"><u>[Updated] Sleeper Strikers Top 10 Undetected FB Memes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-youtube-shorts-profits-and-content-creator-payments/"><u>2024 Approved YouTube Shorts Profits & Content Creator Payments</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-guide-on-repairing-startup-problems-in-mozilla-thunderbird/"><u>Comprehensive Guide on Repairing Startup Problems in Mozilla Thunderbird</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/coping-with-unexpected-account-suspension-on-copyright-claims/"><u>Coping with Unexpected Account Suspension on Copyright Claims</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discovering-apple-vision-pros-potential-a-weekend-review-with-key-findings-for-tech-enthusiasts/"><u>Discovering Apple Vision Pro's Potential: A Weekend Review with Key Findings for Tech Enthusiasts</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-the-giants-of-social-media-facebook-twitter-instagram-and-youtube/"><u>Exploring the Giants of Social Media: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-10-facebook-jail-secrets-to-avoid-being-blocked-get-out-of-it-for-2024/"><u>[New] 10 Facebook Jail Secrets to Avoid Being Blocked / Get Out of It for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-core-framework-principles-for-engaging-online-promotions/"><u>[New] In 2024, Core Framework Principles for Engaging Online Promotions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-jolly-juvenile-auto-antics-for-2024/"><u>[New] Jolly Juvenile Auto Antics for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-rated-simulators-unleash-ps3-games-windows/"><u>[New] Top-Rated Simulators Unleash PS3 Games Windows</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-spy-on-fb-chronicles-discreetly/"><u>[Updated] 2024 Approved Spy on FB Chronicles Discreetly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>[Updated] Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-social-growth-youtube-links-to-fb/"><u>[Updated] Unlock Social Growth YouTube Links to FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-bring-out-canons-best-enjoy-10-free-luts-and-beyond-selection/"><u>2024 Approved Bring Out Canon's Best Enjoy 10 Free LUTs and Beyond Selection</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-samsung-galaxy-a23-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Samsung Galaxy A23 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/nintendo-showdown-a-detailed-look-at-the-switch-lite-and-switch-oled-models/"><u>Nintendo Showdown: A Detailed Look at the Switch Lite and Switch OLED Models</u></a></li>
+<li><a href="https://fox-that.techidaily.com/optimize-your-iphone-for-better-performance-with-roblox-avoiding-memory-problems/"><u>Optimize Your iPhone for Better Performance with Roblox: Avoiding Memory Problems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/scopri-il-download-video-free-ultimate-app-ottimo-scaricatore-per-video-in-4k-e-hd/"><u>Scopri Il Download Video Free Ultimate App - Ottimo Scaricatore per Video in 4K E HD</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-complete-guide-to-facebook-dominance-business-edition/"><u>The Complete Guide to Facebook Dominance Business Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-dvd-not-working-errors-on-windows-machines/"><u>Troubleshooting DVD Not Working Errors on Windows Machines</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Time Travel on FB  Accessing Historical Posts\""
-date: 2024-12-08T23:58:58.085Z
-updated: 2024-12-13T16:13:24.342Z
+date: 2024-12-27T17:32:50.419Z
+updated: 2024-12-28T17:20:50.696Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
@@ -57,13 +53,13 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -81,17 +77,21 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![watch old stories facebook](https://images.wondershare.com/filmora/article-images/2021/watch-old-stories-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -102,7 +102,7 @@ The only chance is that if your friend has uploaded those stories on highlights 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
@@ -160,7 +160,7 @@ Happy editing!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -178,15 +178,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/uide-to-incorited-visuals-in-text-without-cost/"><u>[New] Guide to Incorited Visuals in Text Without Cost</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-ultimate-unlimited-fb-photomovie-builder/"><u>[New] In 2024, Ultimate Unlimited FB Photo/Movie Builder</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-hitting-the-high-notes-in-instagram-photography-for-2024/"><u>[Updated] Hitting the High Notes in Instagram Photography for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-technique-to-capture-fb-videos-flawlessly-on-both-systems/"><u>[Updated] In 2024, Technique to Capture FB Videos Flawlessly on Both Systems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-8-recommended-free-srt-translation-websites-expert-selections/"><u>[Updated] In 2024, Top 8 Recommended Free SRT Translation Websites Expert Selections</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-constructing-mc-neighborhoods-for-2024/"><u>[Updated] The Ultimate Guide to Constructing MC Neighborhoods for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-uniting-networks-sharing-fb-vids-on-whatsapp-chat/"><u>[Updated] Uniting Networks Sharing FB Vids on WhatsApp Chat</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-surging-interest-through-effective-strategies-for-fb-giveaway-promotions/"><u>In 2024, Surging Interest Through Effective Strategies for FB Giveaway Promotions</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/optimize-your-appletv-use-with-simple-steps-to-watch-facebook-content/"><u>Optimize Your AppleTV Use with Simple Steps to Watch Facebook Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/the-best-classic-radio-frequency-transmitter-for-cars-nulaxy-km18-reviewed-here/"><u>The Best Classic Radio Frequency Transmitter for Cars - Nulaxy KM18 Reviewed Here!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-accelerated-mp4-conversion-for-fb-media/"><u>[New] 2024 Approved Accelerated MP4 Conversion for FB Media</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-mastering-live-stream-capture-tv-show-recording-techniques/"><u>[New] 2024 Approved Mastering Live Stream Capture TV Show Recording Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-navigating-social-traction-afb-insiders-guide/"><u>[New] 2024 Approved Navigating Social Traction AFB Insider's Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-5-traps-for-newbies-in-online-advertising-how-to-evade-them/"><u>[New] 5 Traps for Newbies in Online Advertising – How to Evade Them</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-instagram-copyright/"><u>[Updated] 2024 Approved Navigating Instagram Copyright</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-best-mp4-to-facebook-converter-for-2024/"><u>[Updated] Best MP4 to Facebook Converter for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-converting-in-meeting-google-meet-to-youtube-broadcasts-your-guide/"><u>[Updated] Converting In-Meeting Google Meet to YouTube Broadcasts Your Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-path-profile-picture-dimensions/"><u>[Updated] In 2024, Path Profile Picture Dimensions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tutorial-transferring-youtube-videos-to-social-media-facebook-edition/"><u>[Updated] Tutorial Transferring YouTube Videos to Social Media - Facebook Edition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/bring-your-creative-windows-video-projects-online-via-vimeo/"><u>Bring Your Creative Windows Video Projects Online via Vimeo</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhancing-game-performance-tips-to-fix-frame-drops-and-lagging-in-outriders-on-your-computer/"><u>Enhancing Game Performance: Tips to Fix Frame Drops & Lagging in Outriders on Your Computer</u></a></li>
+<li><a href="https://win-dash.techidaily.com/newly-released-thunderbolt-3-docking-station-software-update-for-lenovo-thinkpads/"><u>Newly Released Thunderbolt 3 Docking Station Software Update for Lenovo ThinkPads</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/removing-vibration-effects-from-drones-recordings/"><u>Removing Vibration Effects From Drones' Recordings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-free-youtube-to-text-converter-tools/"><u>Top 10 FREE YouTube to Text Converter Tools</u></a></li>
 </ul></div>
 

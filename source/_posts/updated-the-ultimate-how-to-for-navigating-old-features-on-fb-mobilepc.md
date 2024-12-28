@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate How-To for Navigating Old Features on FB, Mobile/PC\""
-date: 2024-12-16T19:00:57.920Z
-updated: 2024-12-22T23:09:36.017Z
+date: 2024-12-21T18:12:12.653Z
+updated: 2024-12-28T18:25:52.974Z
 tags:
   - ai video
   - ai facebook
@@ -56,7 +56,7 @@ By clicking on the **More option**, you will see a few more options appear. Clic
 On the story archive option, you will see three dots on the top right option. It provides you with a choice to save stories or not. You can turn on the save archives option to save every story you post so that you can view it later.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to View Stories on Facebook Desktop?
@@ -74,7 +74,7 @@ Once you click on the story archive, all your **old stories** will appear in seq
 **Note:** You can only view stories through the above process if you have turned on your story archive option. Click on settings to turn it on or off as per your choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to View A Friend’s Old Facebook Story?
@@ -96,7 +96,7 @@ People make a **series of highlights** and name them accordingly. If the story i
 **Note:** A person or a user has to click on the star highlight sign to save stories for the future. If they do not select the highlight option, stories will disappear after 24 hours, and there is no way to view them in the future. Hence, this option is only applicable when a user has saved their stories for public view.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Save Posts from Your Stories Archive to Your Device?
@@ -116,7 +116,7 @@ After visiting the story archive, click on the story you wish to save. Click on 
 After you click three dots, you will see a save and delete photo option. Click on the **save option** to download it to your device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to See Old Stories on a Facebook Business Page?
@@ -142,7 +142,7 @@ Facebook is an excellent platform to interact with your audience, and the story 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -160,14 +160,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-transform-your-vids-for-social-scenes-with-tunes/"><u>[New] In 2024, Transform Your Vids for Social Scenes With Tunes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-scouring-social-media-locating-facebook-videos/"><u>[Updated] 2024 Approved Scouring Social Media Locating Facebook Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-journey-from-monochrome-masterpieces-to-vivid-hdri-imagery/"><u>[Updated] In 2024, Journey From Monochrome Masterpieces to Vivid HDRI Imagery</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-masterclass-in-creating-dynamic-facebook-slideshows/"><u>[Updated] In 2024, Masterclass in Creating Dynamic Facebook Slideshows</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-honor-x50iplus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Honor X50i+ Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-best-in-show-a-compreeved-list-of-top-18-4k-recording-devices/"><u>In 2024, Best in Show A Compreeved List of Top 18 4K Recording Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-seamless-fb-video-to-mp3-audio-conversion-techniques/"><u>In 2024, Seamless FB Video to MP3 Audio Conversion Techniques</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-itel-a05s-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Itel A05s Location | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-selection-of-16-memorable-sites-brimming-with-trending-and-viral-internet-memes/"><u>The Ultimate Selection of 16 Memorable Sites Brimming with Trending & Viral Internet Memes</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-reimagining-your-video-presentation-update-facebook-covers-today/"><u>[New] 2024 Approved Reimagining Your Video Presentation Update Facebook Covers Today</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-digital-archivists-playbook-preserving-real-time-videos/"><u>[New] 2024 Approved The Digital Archivist's Playbook Preserving Real-Time Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-time-is-money-learn-to-slash-youtube-video-durations/"><u>[New] 2024 Approved Time Is Money - Learn to Slash YouTube Video Durations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-masterfb-mp4-hacking-facebook-videos-with-ease-for-2024/"><u>[New] MasterFB-MP4 Hacking Facebook Videos with Ease for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-quantum-hdr/"><u>[New] The Ultimate Guide to Quantum HDR</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-blueprint-to-buzz-generating-posts/"><u>[Updated] In 2024, The Blueprint to Buzz-Generating Posts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/liberating-video-files-free-mp4-and-hd-from-facebook-posts/"><u>Liberating Video Files Free MP4 & HD From Facebook Posts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/stealthy-speakers-sanctuary-discovering-quiet-voice-apps-androidios/"><u>Stealthy Speakers' Sanctuary Discovering Quiet Voice Apps (Android/iOS)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
-date: 2024-12-10T23:33:03.827Z
-updated: 2024-12-13T20:14:08.438Z
+date: 2024-12-23T18:25:26.910Z
+updated: 2024-12-28T18:33:13.311Z
 categories:
   - BestProducts
 description: "This Article Describes Experiencing Brightness at a Distance: The Romer Rechargeable Flashlight Unveiled"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
 3.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## ChargeTech 27000mAh Portable AC Battery Pack
 
 ![Charge Tech](https://www.lifewire.com/thmb/Ci1U-JKWwFWVHZBkISGIiuX_9dM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -41,13 +45,13 @@ Lifewire / Gannon Burgett
 
 3.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## ChargeTech 27000mAh Portable AC Battery Pack
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -99,6 +103,10 @@ Lifewire / Gannon Burgett
 
  While on the topic of charging, it's worth noting the power input is a dedicated plugin that uses the included charger. It would've been nice to see ChargeTech use a[USB Type-C](https://www.lifewire.com/usb-c-4149490) input, but that isn't the case. Instead, the battery pack relies on an entirely separate charger that will take up even more space than a spare smartphone or two.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Plenty of power at decent speeds**
 
  As mentioned above, we started the testing process by draining the ChargeTech 27000mAh entirely and charging it up. Over the course of the first charge and seven subsequent charges throughout testing, the battery pack averaged a charge time of approximately four and a half hours using the included charger.
@@ -106,10 +114,6 @@ Lifewire / Gannon Burgett
  For testing the ChargeTech 27000mAh, we used an iPhone XS and Samsung Galaxy S8 Active for[mobile devices](https://www.lifewire.com/what-is-a-mobile-device-2373355) and a 2016 MacBook Pro 15-inch as the laptop of choice. With each device, we fully charged the battery pack and subsequently charged each device as many times as possible with a fully charged ChargeTech, making sure to drain the mobile device to zero before plugging it back in.
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -120,10 +124,6 @@ Lifewire / Gannon Burgett
  If capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done.
 
  Something to keep in mind is charge times will vary greatly depending on how many devices are plugged in, the temperature, and whether or not you're using devices while they're charging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: A little bit up there**
 
@@ -146,7 +146,7 @@ Lifewire / Gannon Burgett
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -185,22 +185,21 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-expert-techniques-efficiently-crafting-compelling-subtitles-for-fb-video-content/"><u>[New] 2024 Approved Expert Techniques Efficiently Crafting Compelling Subtitles for FB Video Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-revisit-and-refine-your-past-editing-fbs-look-back-videos/"><u>[New] 2024 Approved Revisit and Refine Your Past Editing FB's Look Back Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-captivating-online-ads-for-facebook/"><u>[New] In 2024, Crafting Captivating Online Ads for Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mend-error-non-playing-vids-in-chrome/"><u>[New] In 2024, Mend Error Non-Playing Vids in Chrome</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-story-stream-sequencer-app/"><u>[Updated] In 2024, Story Stream Sequencer App</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-uniting-content-streams-tiktoks-journey-to-facebook/"><u>[Updated] Uniting Content Streams TikTok's Journey to Facebook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-easy-android-image-fixes/"><u>2024 Approved Top 5 Easy Android Image Fixes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-hp-deskjet-ink-advantage-3050-driver-for-windows-pcs/"><u>Download the HP Deskjet Ink Advantage 3050 Driver for Windows PCs</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/effizientes-kopieren-von-sk-hynix-ssd-mit-fuhrenden-replikationsprogrammen-verstehen/"><u>Effizientes Kopieren Von SK Hynix SSD Mit Führenden Replikationsprogrammen Verstehen</u></a></li>
-<li><a href="https://article-posts.techidaily.com/enhancing-image-memory-with-precise-dates/"><u>Enhancing Image Memory with Precise Dates</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/guide-to-sharing-on-instagram-videos-and-more-for-2024/"><u>Guide to Sharing on Instagram Videos & More for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-transmit-facebook-live-via-televisions/"><u>How to Transmit Facebook Live via Televisions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-honor-magic-5-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Honor Magic 5 to New Phone | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-realme-c53-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Realme C53 Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-from-footage-to-film-mastering-the-art-of-cinematic-video-editing/"><u>Updated 2024 Approved From Footage to Film Mastering the Art of Cinematic Video Editing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/what-happens-to-your-facebook-live-if-its-flagged-for-copyright-for-2024/"><u>What Happens to Your Facebook Live if It’s Flagged for Copyright for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>[New] 2024 Approved Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-instructions-on-changing-fb-page-backdrop/"><u>[New] 2024 Approved Instructions on Changing FB Page Backdrop</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-iphone-and-android-unite-for-music-on-your-fb-profile/"><u>[New] 2024 Approved IPhone & Android Unite for Music on Your FB Profile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-essential-tutorial-for-facebook-live-on-roku-tv/"><u>[New] 2024 Approved The Essential Tutorial for Facebook Live on Roku TV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[New] In 2024, Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-recent-views-uncovered-for-you/"><u>[Updated] Facebook’s Recent Views Uncovered for You</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1-transferieren-sie-ihre-iphone-apps-nahtlos-auf-ihr-ipad-5-bewahrte-methoden/"><u>1. Transferieren Sie Ihre iPhone-Apps Nahtlos Auf Ihr iPad – 5 Bewährte Methoden</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/core-skills-in-video-and-film-creation-for-2024/"><u>Core Skills in Video and Film Creation for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-setup-secure-your-microsoft-wireless-mouse-5000-driver-here-now/"><u>Effortless Setup: Secure Your Microsoft Wireless Mouse 5000 Driver Here Now</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/improve-connectivity-free-csr-bluetooth-drivers-downloads-at-hand/"><u>Improve Connectivity: Free CSR Bluetooth Drivers Downloads at Hand!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-from-capture-to-sharing-fb-video-uploads-via-pc-plus-android/"><u>In 2024, From Capture to Sharing FB Video Uploads via PC + Android</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-f34-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy F34 5G?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-tecno-spark-20-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Tecno Spark 20 and Browser | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/public-sentiment-current-events-or-widespread-public-dissatisfaction-with-the-status-quo-can-increase-the-urgency-for-people-to-vote-thus-raising-turnout-fi53/"><u>Public Sentiment: Current Events or Widespread Public Dissatisfaction with the Status Quo Can Increase the Urgency for People to Vote, Thus Raising Turnout Figures.</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-3-step-approach-to-effective-copywriting-on-facebook-for-2024/"><u>The 3-Step Approach to Effective Copywriting on Facebook for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/youtube-comment-discovery-a-step-by-step-walkthrough-for-2024/"><u>YouTube Comment Discovery A Step-by-Step Walkthrough for 2024</u></a></li>
 </ul></div>
 

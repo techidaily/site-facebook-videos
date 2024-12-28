@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking Phony Fans in Social Media"
-date: 2024-12-16T17:00:10.496Z
-updated: 2024-12-22T17:30:59.240Z
+date: 2024-12-24T17:47:20.574Z
+updated: 2024-12-28T18:00:47.617Z
 tags:
   - ai video
   - ai facebook
@@ -32,6 +32,10 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -44,15 +48,15 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
 
@@ -60,21 +64,17 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
@@ -83,7 +83,7 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -94,11 +94,11 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -115,22 +115,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-creating-captivating-360-footage-for-social-media-sharing/"><u>[New] 2024 Approved Creating Captivating 360 Footage for Social Media Sharing</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-recording-winning-calls-a-complete-guide-free-vs-paid-for-windows-and-mac-users/"><u>[New] 2024 Approved Recording Winning Calls A Complete Guide (Free vs Paid) for Windows & Mac Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-quick-guide-sharing-videos-on-instagram-for-2024/"><u>[New] Quick Guide Sharing Videos on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-complete-manual-for-modifying-cover-images/"><u>[New] The Complete Manual for Modifying Cover Images</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-youtube-video-distribution-on-fb/"><u>[Updated] The Ultimate Guide to YouTube Video Distribution on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unlock-your-profile-the-quick-fix-hacks/"><u>[Updated] Unlock Your Profile The Quick Fix Hacks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-direct-engagement-tweeting-successfully-to-fb/"><u>2024 Approved Direct Engagement Tweeting Successfully to FB</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-huawei-nova-y71-unlock-without-password-by-drfone-android/"><u>5 Solutions For Huawei Nova Y71 Unlock Without Password</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/onedrive-4/"><u>恢復 OneDrive 消失檔案的方法，一項最新教學：分享4種可行解決辦法</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1723808281806-effortless-installation-guide-get-the-latest-windows-10-version-now/"><u>Effortless Installation Guide: Get the Latest Windows 10 Version Now!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/elevate-your-video-projects-storyremix-meets-windows-11-photos-for-2024/"><u>Elevate Your Video Projects StoryRemix Meets Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-silent-gameplay-solutions-for-cyberpunk-2077-audio-issues-on-windows-10/"><u>Fixing Silent Gameplay: Solutions for Cyberpunk 2077 Audio Issues on Windows 10</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-8-trendsetting-tools-that-every-startup-should-prioritize-today/"><u>In 2024, 8 Trendsetting Tools That Every Startup Should Prioritize Today</u></a></li>
-<li><a href="https://media-tips.techidaily.com/introducing-youtube-music-playback-compatible-with-apples-homepod/"><u>Introducing YouTube Music Playback: Compatible with Apple's HomePod</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/leveraging-srt-for-improved-video-subtitles-online-presence/"><u>Leveraging SRT for Improved Video Subtitles Online Presence</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-era-facebooks-quintessential-features-showcased-for-2024/"><u>New Era Facebook's Quintessential Features Showcased for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-photo-tweaking-apps-on-iphones-and-androids-2024s-choice/"><u>Top Photo Tweaking Apps on iPhones & Androids - 2024'S Choice</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-maximizing-video-quality-in-steam-game-recording/"><u>[New] 2024 Approved Maximizing Video Quality in Steam Game Recording</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-augment-visuals-incorporating-black-box-and-letterboxing-in-social-media-for-2024/"><u>[New] Augment Visuals Incorporating Black Box & Letterboxing in Social Media for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-e-identity-enhancement-drawing-your-playful-iconography-for-2024/"><u>[New] E-Identity Enhancement Drawing Your Playful Iconography for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-efficiently-start-and-schedule-a-zoom-call-on-any-android-device-for-2024/"><u>[New] Efficiently Start & Schedule a Zoom Call on Any Android Device for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-draft-to-delightful-storyboarding-animations-in-movie-maker/"><u>[New] From Draft to Delightful Storyboarding Animations in Movie Maker</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-learn-to-harvest-the-richness-of-facebook-live-experiences/"><u>[Updated] 2024 Approved , Learn to Harvest the Richness of Facebook Live Experiences</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fb-url-harnesser-secure-and-free-downloader-bundle-for-23/"><u>[Updated] FB URL Harnesser Secure & Free Downloader Bundle for '23</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harnessing-2024-innovative-approaches-to-facebook-advertising/"><u>[Updated] Harnessing 2024 Innovative Approaches to Facebook Advertising</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-exclusive-downloads-top-8-stealthy-tools/"><u>[Updated] In 2024, Exclusive Downloads Top 8 Stealthy Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pennywise-pilots-best-value-drones-for-(500/"><u>[Updated] In 2024, Pennywise Pilots Best Value Drones for <$500</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-troubleshooting-iphone-and-android-fb-messenger-stuck-on-videos-for-2024/"><u>[Updated] Troubleshooting iPhone & Android FB Messenger Stuck on Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-getting-acclimated-quick-tips-for-snapseed-users/"><u>2024 Approved Getting Acclimated Quick Tips for Snapseed Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-setting-up-facebook-live-your-roku-route/"><u>2024 Approved Setting Up Facebook LIVE Your Roku Route</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-s17-pro-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo S17 Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-a-step-by-step-guide-to-crafting-immersive-fb-video-experienenas/"><u>In 2024, A Step-by-Step Guide to Crafting Immersive FB Video Experienenas</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-red-zones-best-unraveling-zombie-gaming-delights/"><u>In 2024, The Red Zone's Best Unraveling Zombie Gaming Delights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/personalizing-your-windows-10-taskbar-a-comprehensive-guide/"><u>Personalizing Your Windows 10 Taskbar: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/seamless-srt-to-sub-a-comprehensive-guide-for-2024/"><u>Seamless SRT to SUB A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/stream-and-watch-in-stunning-detail-hitachis-4k-uhd-tvs-equipped-with-roku-buy-now/"><u>Stream and Watch in Stunning Detail: Hitachi's 4K UHD TVs Equipped with Roku - Buy Now</u></a></li>
 </ul></div>
 

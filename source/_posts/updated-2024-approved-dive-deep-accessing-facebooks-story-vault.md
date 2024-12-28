@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2024-12-16T21:45:51.941Z
-updated: 2024-12-22T19:21:42.691Z
+date: 2024-12-27T16:56:33.853Z
+updated: 2024-12-28T16:29:20.634Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
@@ -48,7 +44,7 @@ Facebook stories are a short generated collection of photos and videos that the 
 You can share the content on Facebook stories, which will appear at the top of the Facebook news feed. Also, if you are confused about how to view old stories on Facebook, users need to Tap on friends’ circle at the top area of the application, and while watching the story, one could also reply with a direct message feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to See Old Facebook Stories on Desktop?
@@ -70,7 +66,7 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
@@ -88,6 +84,10 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 4:** Scroll towards the right and select on Story Archives tab.
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
@@ -112,6 +112,10 @@ If you think that to create amazing videos for Facebook, you need to be a profes
 To attract more audience and gain more likes, comments all you need is a smart [video editor](https://tools.techidaily.com/wondershare/filmora/download/) like a Wondershare Filmora. It is one of the most effective video editing tools that help you edit your elements quickly and easily upload over Facebook.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -140,7 +144,7 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Export and Share
@@ -159,10 +163,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,21 +178,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-easy-extraction-of-social-media-videos-with-chrome-plugs/"><u>[New] 2024 Approved Easy Extraction of Social Media Videos with Chrome Plugs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-ignite-curiosity-with-a-personal-touch-anime-subscribe-buttons-for-filmmakers-filmora/"><u>[New] 2024 Approved Ignite Curiosity with a Personal Touch - Anime Subscribe Buttons for Filmmakers (Filmora)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-joining-friends-and-family-online-facebook-setup-guide/"><u>[New] 2024 Approved Joining Friends and Family Online (Facebook Setup Guide)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-boost-engagement-sharing-streams-from-twitch-on-fb/"><u>[New] Boost Engagement Sharing Streams From Twitch on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-syncing-your-phone-with-facebook-videos-on-appletv/"><u>[New] In 2024, Syncing Your Phone with Facebook Videos on AppleTV</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-the-secrets-of-facebook-video-content-success/"><u>[New] In 2024, Unveiling the Secrets of Facebook Video Content Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-no-more-ghosting-on-social-reinstate-disappearing-facebook-videos-with-12-tips/"><u>[Updated] 2024 Approved No More Ghosting on Social Reinstate Disappearing Facebook Videos With 12 Tips</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-benefits-of-apples-m1-in-post-production-editing/"><u>[Updated] Benefits of Apple's M1 in Post-Production Editing</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-establishing-a-mac-based-sports-media-outlet/"><u>[Updated] In 2024, Establishing a Mac-Based Sports Media Outlet</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/gpt-and-bing-battle-for-top-generative-bot-acclaim/"><u>GPT and Bing Battle for Top Generative Bot Acclaim</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-cross-platform-tweeting-twitterfacebook/"><u>In 2024, Mastering Cross-Platform Tweeting (Twitter/Facebook)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/insta-influence-unleashed-the-ultimate-guide-to-power-players-strategies/"><u>Insta Influence Unleashed The Ultimate Guide to Power Players' Strategies</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-pinnacle-of-voice-recording-a-comprehensive-tome-for-2024/"><u>The Pinnacle of Voice Recording A Comprehensive Tome for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-race-of-processors-amds-ryzen-9-9950x-takes-the-5th-place-worldwide-as-revealed-by-time-spy-extreme-watercooling-test/"><u>The Race of Processors: AMD's Ryzen 9 9950X Takes the 5Th Place Worldwide as Revealed by Time Spy Extreme Watercooling Test</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-fix-how-to-retract-a-repost-on-tiktok-easily/"><u>The Ultimate Fix: How To Retract A Repost On TikTok Easily</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultra-clarity-the-new-era-of-hd-monitors-envy-27/"><u>Ultra Clarity The New Era of HD Monitors - Envy 27</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-cataloging-fb-video-ratios-for-2024/"><u>[New] Cataloging FB Video Ratios for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-digital-chronicles-cutting-edge-methods-for-saving-your-vr-gaming-journey-for-2024/"><u>[Updated] Digital Chronicles Cutting-Edge Methods for Saving Your VR Gaming Journey for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-effortless-extraction-of-facebook-hd-vids-for-2024/"><u>[Updated] Effortless Extraction of Facebook HD Vids for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-hidden-narrators-of-fb-nuggets/"><u>[Updated] In 2024, Hidden Narrators of FB Nuggets</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-solve-video-issues-in-facebook-chat-on-iosandroid-devices/"><u>[Updated] In 2024, Solve Video Issues in Facebook Chat on iOS/Android Devices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-speeding-up-tiktok-videos-made-simple/"><u>[Updated] In 2024, Speeding Up TikTok Videos Made Simple</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-next-gen-patient-rehabilitation-tools/"><u>[Updated] Next-Gen Patient Rehabilitation Tools</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unleash-the-potential-of-video-marketing-on-facebook/"><u>[Updated] Unleash the Potential of Video Marketing on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-what-does-instantaneous-video-removal-mean-for-user-privacy/"><u>2024 Approved What Does Instantaneous Video Removal Mean for User Privacy?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/bridging-the-gap-between-zoom-and-social-media-streams/"><u>Bridging the Gap Between ZOOM and Social Media Streams</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-razer-book-13-ultraportable-laptop-that-packs-a-punch/"><u>Exploring the Razer Book 13: Ultraportable Laptop That Packs a Punch</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-tecno-pova-5-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Tecno Pova 5 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-achieving-peak-audience-interaction-with-wirecast-on-facebook/"><u>In 2024, Achieving Peak Audience Interaction with Wirecast on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-k11-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo K11 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210755491-9791028521417-la-richesse-est-sacree/"><u>La richesse est sacrée | Free Book</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/structured-writing-tactics-for-boosting-facebook-ad-performance-for-2024/"><u>Structured Writing Tactics for Boosting Facebook Ad Performance for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unleash-the-power-of-messaging-mastering-pinning-on-discord/"><u>Unleash the Power of Messaging Mastering Pinning on Discord</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlock-and-save-your-favorite-fb-videos/"><u>Unlock and Save Your Favorite FB Videos</u></a></li>
 </ul></div>
 
