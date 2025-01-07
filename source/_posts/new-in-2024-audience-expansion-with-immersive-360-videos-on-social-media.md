@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Audience Expansion with Immersive 360 Videos on Social Media"
-date: 2024-12-25T17:39:24.019Z
-updated: 2024-12-28T16:58:49.856Z
+date: 2024-12-31T07:53:02.693Z
+updated: 2025-01-06T23:44:20.176Z
 tags:
   - ai video
   - ai facebook
@@ -25,21 +25,17 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is Live 360?
 
  With some recent updates to Facebook platform so many new features have been added to it and one of the best out of this big list is ability to live stream 360 degree videos. If you have right equipment to capture 360 degree videos then you can definitely create wonders around. The ability to Live Stream on Facebook assists people to share their special moments of life immediately with friends. So are you ready to have the real fun? Let us start with the tricks to create live 360 videos but before that let us discuss about best compatible cameras to enjoy live 360.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Compatible Cameras for Live 360
 
  If you want to live broadcast a 360 degree video on facebook then your first most requirements will be a camera that can capture such videos. There are so many options available in market that you can add into your preference list like ALLie, Insta360 Air (Android) and Nano (iPhone), Giroptic IO, Samsung Gear 360 and many more. The Nokia Ozo and Z CAM S1 are also supported in the higher end professional grade category. Pick any one of these devices and soon you will be able to impress your audience with impressive updates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specification for Live 360
 
@@ -53,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 * It is important to maintain a distance of at least 20 to 30 feet between camera and objects to be recorded.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Go Live 360?
@@ -65,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
 2\. Go to “facebook.com/live/create” link and here you will get RTMP server URL along with a valid stream key. This information can be utilized to start live 360 with cameras that do not have auto integration feature. It will also help you to start streaming using simple streaming software.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Go Live 360 with Instagram 360?
@@ -93,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
  Step 10: Delete your video from timeline whenever you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to go Live 360 from Facebook Website Flow?
@@ -111,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b5
  Step 6: Finally hit stream button and have a preview of your video.
 
  Step 7: Go live 360 on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How does Live 360 looks like?
 
@@ -142,22 +142,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebooks-shift-to-short-videos-a-look-into-2023-trends/"><u>[New] 2024 Approved Facebook's Shift to Short Videos A Look Into 2023 Trends</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-list-of-social-media-analytics-for-instagram-excellence/"><u>[New] 2024 Approved The Ultimate List of Social Media Analytics for Instagram Excellence</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-dslr-broadcast-101-using-facebook-live-from-home-pcs-for-2024/"><u>[New] DSLR Broadcast 101 Using Facebook LIVE From Home PCs for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-facebook-cover-video-widthheight-recommendation-for-2024/"><u>[New] Facebook Cover Video Width/Height Recommendation for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-journey-to-digital-mastery-explore-best-10-android-drawing-apps/"><u>[New] Journey to Digital Mastery Explore Best 10 Android Drawing Apps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-differentiating-real-vs-fake-facebook-likes-for-2024/"><u>[New] The Art of Differentiating Real vs Fake Facebook Likes for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-a-convenient-approach-to-changing-the-main-image-of-your-fb-page-for-2024/"><u>[Updated] A Convenient Approach to Changing the Main Image of Your FB Page for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-double-your-reach-youtube-and-facebook-cross-promotion-for-2024/"><u>[Updated] Double Your Reach YouTube & Facebook Cross-Promotion for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-efficiency-upgrade-uncover-the-8-premier-facebook-timetables-for-2024/"><u>[Updated] Efficiency Upgrade Uncover the 8 Premier Facebook Timetables for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-merits-of-sns-hdr-vs-its-industry-contenders/"><u>[Updated] The Merits of SNS HDR Vs. Its Industry Contenders</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/best-techniques-for-ethically-identifying-an-individuals-email-address/"><u>Best Techniques for Ethically Identifying an Individual's Email Address</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/guiding-iphone-and-android-owners-to-fix-video-sending-problems-in-fb-chat/"><u>Guiding iPhone & Android Owners to Fix Video Sending Problems in FB Chat</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-profile-video-wow-factor-techniques/"><u>In 2024, Profile Video Wow Factor Techniques</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-strategies-to-navigate-and-thrive-with-product-sponsors-on-youtube/"><u>In 2024, Strategies to Navigate and Thrive with Product Sponsors on YouTube</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-the-latest-camera-drivers-on-your-pc-running-win-111087/"><u>Install the Latest Camera Drivers on Your PC Running Win 11/10/8/7</u></a></li>
-<li><a href="https://extra-support.techidaily.com/legal-pathways-for-flawless-free-imagery-purchases-for-2024/"><u>Legal Pathways for Flawless Free Imagery Purchases for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/star-wars-movie-marathon-order-a-step-by-step-guide-for-disney-plus-subscribers/"><u>Star Wars Movie Marathon Order: A Step-by-Step Guide for Disney Plus Subscribers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-5-ways-to-download-facebook-story-on-desktop-and-mobile/"><u>[New] 2024 Approved 5 Ways to Download Facebook Story on Desktop and Mobile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-exploring-the-past-of-social-storytelling-step-by-step-laptopmobile-process/"><u>[New] In 2024, Exploring the Past of Social Storytelling Step-by-Step Laptop/Mobile Process</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-watching-social-network-vids-through-the-television-glass/"><u>[New] In 2024, Watching Social Network Vids Through the Television Glass?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-macs-preview-a-comprehensive-tutorial/"><u>[New] Mastering Mac's Preview A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-how-to-utilize-legal-free-clip-art-resources/"><u>[Updated] 2024 Approved How to Utilize Legal, Free Clip-Art Resources</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-techniques-for-flawless-distance-audio-capture-for-2024/"><u>[Updated] Top Techniques for Flawless Distance Audio Capture for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-fb-the-ultimate-guide-to-downloading-messages-for-2024/"><u>[Updated] Unlocking FB The Ultimate Guide to Downloading Messages for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023s-premier-8-hidden-video-downloaders-for-2024/"><u>2023'S Premier 8 Hidden-Video Downloaders for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-auto-captioned-mastery-enhancing-visual-narratives/"><u>2024 Approved Auto-Captioned Mastery Enhancing Visual Narratives</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-ultimate-guide-to-digitizing-and-saving-faded-frames/"><u>2024 Approved The Ultimate Guide to Digitizing and Saving Faded Frames</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unparalleled-templates-for-meme-artists/"><u>2024 Approved Unparalleled Templates for Meme Artists</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/decoding-the-social-code-top-30-tips-for-marketing-mastery-for-2024/"><u>Decoding the Social Code Top 30 Tips for Marketing Mastery for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-fixing-svchostexes-heavy-data-transfer-in-windows-systems/"><u>Diagnosing and Fixing svchost.exe's Heavy Data Transfer in Windows Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-transform-your-facebook-presence-with-dynamic-slideshows/"><u>In 2024, Transform Your Facebook Presence with Dynamic Slideshows</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pioneering-stories-on-youtube-2023-edition/"><u>Pioneering Stories on YouTube, 2023 Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/sync-up-with-successful-facebook-feeds-for-2024/"><u>Sync Up with Successful Facebook Feeds for 2024</u></a></li>
 </ul></div>
 
