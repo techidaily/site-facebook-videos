@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2025-01-01T16:52:09.362Z
-updated: 2025-01-07T05:14:25.218Z
+date: 2025-01-06T19:02:11.289Z
+updated: 2025-01-13T20:25:29.254Z
 tags:
   - ai video
   - ai facebook
@@ -37,10 +37,6 @@ Here is the step by step guide to see old stories on Facebook:
 * [Part 4: Can you See Friends' Old Stories on Facebook?](#part4)
 * [Part 5: Bonus Tip - How to Create Facebook Videos with Ease?](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is Facebook Story and how is it Work？
 
 Facebook stories are a short generated collection of photos and videos that the audience can view up to two times and stay for 24 hours on your feed. Facebook stories feature allows users to click fun shots with various filters and fun lenses.
@@ -57,9 +53,17 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
@@ -82,7 +86,7 @@ You can find and see the old stories on Facebook with the help of the archived s
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
@@ -102,7 +106,7 @@ An old highlighted story shared by your friend would appear on your friend’s p
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -114,7 +118,7 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Features:**
@@ -159,10 +163,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,22 +178,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-creative-stifling-abrupt-vid-disappearance/"><u>[New] 2024 Approved Creative Stifling Abrupt Vid Disappearance</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-archived-stories-from-facebook-a-digital-handbook/"><u>[New] 2024 Approved Unlocking Archived Stories From Facebook A Digital Handbook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-cutting-edge-broadcasting-dslr-use-for-facebook-live-on-pcmac-for-2024/"><u>[New] Cutting-Edge Broadcasting DSLR Use for Facebook Live on PC/Mac for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-optimized-visual-quality-black-bar-and-box-frame-for-social-media-posts/"><u>[New] In 2024, Optimized Visual Quality Black Bar & Box Frame for Social Media Posts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-effective-strategies-for-fb-in-stream-ad-setup/"><u>[New] In 2024, Unveiling Effective Strategies for FB In-Stream Ad Setup</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-setting-up-your-footprint-a-complete-guide-to-fb-instream-ad-configuration/"><u>[New] Setting Up Your Footprint A Complete Guide to FB Instream Ad Configuration</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-best-gopro-accessories-for-beginners/"><u>[Updated] Best GoPro Accessories for Beginners</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-grab-and-reel-the-essential-5-apps-for-social-media-video-capture-for-2024/"><u>[Updated] Grab & Reel The Essential 5 Apps for Social Media Video Capture for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-analysis-of-best-no-fee-livestream-options-on-all-devices/"><u>[Updated] In-Depth Analysis of Best No-Fee LiveStream Options on All Devices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-mastering-facebook-vids-the-top-20-marketing-hacks-for-2024/"><u>[Updated] Mastering Facebook Vids The Top 20 Marketing Hacks for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-social-forecast-in-graphs-2023-edition-unveiled/"><u>[Updated] Social Forecast in Graphs 2023 Edition Unveiled</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-beginners-bliss-how-to-set-up-and-manage-a-podcast-live-stream-easily/"><u>2024 Approved Beginner's Bliss How to Set Up and Manage a Podcast Live Stream Easily</u></a></li>
-<li><a href="https://driver-install.techidaily.com/essential-driver-installation-tips/"><u>Essential Driver Installation Tips</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-5-premium-ps1-game-simulators-for-pc-gamers/"><u>In 2024, 5 Premium PS1 Game Simulators for PC Gamers</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimize-viewing-the-finest-html5-video-solutions/"><u>Optimize Viewing The Finest HTML5 Video Solutions</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-unlock-the-power-of-the-ken-burns-effect-a-comprehensive-guide-for-2024/"><u>Updated Unlock the Power of the Ken Burns Effect A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-discover-unlimited-stories-free-extensions-and-mobile-marvels/"><u>[New] Discover Unlimited Stories – FREE Extensions & Mobile Marvels</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-firefoxs-video-downloader-boost-optimal-extensions-and-plugins-for-facebook-content/"><u>[Updated] 2024 Approved Firefox's Video Downloader Boost Optimal Extensions & Plugins for Facebook Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-uncovering-all-shared-visuals-in-a-message-thread/"><u>[Updated] In 2024, Uncovering All Shared Visuals in a Message Thread</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-social-media-synergy-connecting-twitch-streams-with-fb-for-2024/"><u>[Updated] Social Media Synergy Connecting Twitch Streams with FB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tailoring-content-the-importance-of-aspect-ratios/"><u>[Updated] Tailoring Content The Importance of Aspect Ratios</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-top-cover-photo-creators-facebook-edition-top-11-list-for-2024/"><u>[Updated] Top Cover Photo Creators Facebook Edition - Top 11 List for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-social-media-savvy-crafting-your-best-self-with-top-tips-for-bios/"><u>2024 Approved Social Media Savvy Crafting Your Best Self with Top Tips for Bios</u></a></li>
+<li><a href="https://discover-able.techidaily.com/1728467177792-windows-11dvd/"><u>解決策：問題解消 - Windows 11におけるDVDドライブの不認識対策</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-closer-look-at-the-internets-giants-your-definitive-guide-to-the-most-popular-sites-online/"><u>A Closer Look at the Internet’s Giants: Your Definitive Guide to the Most Popular Sites Online</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-tecno-pova-6-pro-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Tecno Pova 6 Pro 5G</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-the-process-of-making-youtube-trail-videos/"><u>In 2024, Navigating the Process of Making YouTube Trail Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/peer-to-peer-fb-video-grabber/"><u>Peer-to-Peer FB Video Grabber</u></a></li>
+<li><a href="https://windows11.techidaily.com/regain-missing-dxgidll-with-easy-windows-11-fixes/"><u>Regain Missing Dxgi.dll with Easy Windows 11 Fixes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tless-joy-in-9-full-length-holiday-spectacles-free-online/"><u>Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online</u></a></li>
+<li><a href="https://win-best.techidaily.com/ultimate-guide-to-selecting-the-best-3-backup-software-options-for-windows-11-users/"><u>Ultimate Guide to Selecting the Best 3 Backup Software Options for Windows 11 Users</u></a></li>
 </ul></div>
 
