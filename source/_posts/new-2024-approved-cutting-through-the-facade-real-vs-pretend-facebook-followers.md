@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cutting Through the Facade  Real vs Pretend Facebook Followers\""
-date: 2025-01-10T18:38:26.650Z
-updated: 2025-01-13T18:16:20.713Z
+date: 2025-01-16T16:49:52.669Z
+updated: 2025-01-19T21:56:18.075Z
 tags:
   - ai video
   - ai facebook
@@ -32,10 +32,6 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -45,12 +41,16 @@ No doubt, the Facebook page gains more likes through them, but not effective in 
 Businesses dealing with fake followers have staff to maintain these accounts to pass as regular accounts which is a big issue. Influencers often involve through engagement pods on each others’ content and get high ranks for the feeds by fooling the social algorithms. If you access these influencers as a brand in terms of quality, they have nothing substantial to offer you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to spot fake followers on Facebook for Influencer quickly
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Inspect comment
 
@@ -65,26 +65,30 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
 You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for influencers. The most credible features of this tool are ‘influencer contract generator’, ‘product trials’, and ‘collaborations’. This tool helps you work with brands, contact influencers, measure engagement, and create contracts. Using the right tool will enhance your followers on Facebook for influencer and bring a new dimension for your business.
 
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -95,10 +99,6 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -115,18 +115,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-copyright-quest-for-content-creators-tiktok-edition/"><u>[New] Copyright Quest for Content Creators (TikTok Edition)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-facebooks-video-upload-avoid-frustration-ensure-success/"><u>[New] In 2024, Mastering Facebook's Video Upload Avoid Frustration, Ensure Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>[New] In 2024, Pro Gopro Filming and Live Sharing Best Practices for Facebook/Periscope</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-maximize-views-sharing-your-twitch-stream-on-fb/"><u>[Updated] Maximize Views Sharing Your Twitch Stream on FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-tailoring-your-online-persona-with-a-new-background-photo-for-2024/"><u>[Updated] Tailoring Your Online Persona with a New Background Photo for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-take-your-fb-visibility-to-new-heights-proven-seo-strategies-reviewed/"><u>[Updated] Take Your FB Visibility to New Heights Proven SEO Strategies Reviewed</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/early-bird-special-apples-latest-799-m2-macbook-air-out-now-beating-octobers-prime-day-deals-zdnet-insights/"><u>Early Bird Special: Apple's Latest $799 M2 MacBook Air Out Now, Beating October's Prime Day Deals - ZDNET Insights</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fb-profile-snap-intro-dimensions-file-type-duration-for-2024/"><u>FB Profile Snap Intro Dimensions, File Type, Duration for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-flash-dead-vivo-x90s-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo X90S Safely | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-15-pro-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone 15 Pro?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-oppo-a56s-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Oppo A56s 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagrams-most-trusted-grid-creation-applications-ranked-anew/"><u>Instagram's Most Trusted Grid Creation Applications Ranked Anew</u></a></li>
-<li><a href="https://techtrends.techidaily.com/overcoming-glitches-with-samsung-tv-applications-a-users-guide/"><u>Overcoming Glitches with Samsung TV Applications: A User's Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-the-field-to-social-sharing-gopro-streams-on-facebookperiscope/"><u>[New] 2024 Approved From the Field to Social Sharing GoPro Streams on Facebook/Periscope</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-understanding-the-rules-behind-sharing-online-content-on-social-media/"><u>[New] 2024 Approved Understanding the Rules Behind Sharing Online Content on Social Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-journey-fb-videos-and-whatsapp-conversion/"><u>[New] Navigating the Journey FB Videos & WhatsApp Conversion</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-optimizing-posts-secrets-to-higher-page-rank/"><u>[Updated] 2024 Approved Optimizing Posts Secrets to Higher Page Rank</u></a></li>
+<li><a href="https://windows11.techidaily.com/easing-through-policy-restrictions-in-admin-blocked-installations/"><u>Easing Through Policy Restrictions in Admin-Blocked Installations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-masterful-moment-capturing-tips-for-effective-snap-ads/"><u>In 2024, Masterful Moment Capturing Tips for Effective Snap Ads</u></a></li>
+<li><a href="https://driver-error.techidaily.com/quick-reaction-time-in-updated-win11/"><u>Quick Reaction Time in Updated Win11</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-buzz-around-the-future-apple-car-estimated-price-range-expected-debut-vehicle-specs-and-fresh-rumor-mill-chatter/"><u>The Buzz Around the Future Apple Car - Estimated Price Range, Expected Debut, Vehicle Specs, and Fresh Rumor Mill Chatter</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-ultimate-stream-software-showdown-obs-vs-shadowplay-for-2024/"><u>The Ultimate Stream Software Showdown OBS vs ShadowPlay for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleash-the-content-free-movie-player-windowsmac/"><u>Unleash the Content FREE MOVIE PLAYER (Windows/Mac)</u></a></li>
 </ul></div>
 

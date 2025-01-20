@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Music to Facebook Story?"
-date: 2025-01-07T17:55:56.306Z
-updated: 2025-01-13T16:43:27.887Z
+date: 2025-01-15T21:33:56.658Z
+updated: 2025-01-19T21:15:50.616Z
 tags:
   - ai video
   - ai facebook
@@ -35,7 +35,7 @@ Everyone wants to make their social media accounts fun and interactive to attrac
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Create a Music-only Facebook Story?
@@ -52,6 +52,10 @@ When creating a story, you will see a music option on the top along with text an
 
 ![Add music to FB Story on Mobile](https://images.wondershare.com/filmora/article-images/add-music-to-facebook-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **Step 3 : Edit music sticker and post**
 
 After tapping on the song of your choice, you can edit it. You can change the music sticker color, click on Aa to enable lyrics, select the 30-second song part you want to play, and select different background colors.
@@ -61,10 +65,6 @@ Click done on the right corner to post the music story. Your story will be avail
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
@@ -79,10 +79,6 @@ Tap on create a story option and click on the camera icon given below, through w
 After clicking a picture or making a video, tap on the sticker icon. Select the music sticker to pick a song of your choice.
 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **Step 3: Add music**   **and**   **post**
 
@@ -112,10 +108,6 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -128,6 +120,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -138,10 +134,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -149,6 +141,14 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -167,7 +167,7 @@ Facebook story feature is one of the best options that one can use to gain visib
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -185,24 +185,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-captivating-visuals-for-digital-stagecraft/"><u>[New] In 2024, Captivating Visuals for Digital Stagecraft</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-leveraging-social-integration-auto-play-youtube-videos-on-fb-pages-for-2024/"><u>[New] Leveraging Social Integration Auto-Play Youtube Videos on FB Pages for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uickly-locating-your-curated-music-compilation-on-youtube-for-2024/"><u>[New] Quickly Locating Your Curated Music Compilation on Youtube for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-master-the-art-of-live-content-utilizing-wirecast-for-fb/"><u>[Updated] 2024 Approved Master the Art of Live Content Utilizing Wirecast for FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-sdk-innovations-for-android-the-updated-rankings-of-facebook-video-downloading-tools/"><u>[Updated] 2024 Approved SDK Innovations for Android The Updated Rankings of Facebook Video Downloading Tools</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-captivate-crowds-secrets-to-screen-collaboration-via-social-media-for-2024/"><u>[Updated] Captivate Crowds Secrets to Screen Collaboration via Social Media for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-composition-techniques-for-eye-catching-fb-ad-content/"><u>[Updated] In 2024, Composition Techniques for Eye-Catching FB Ad Content</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-the-art-of-meme-craftsmanship/"><u>[Updated] Mastering the Art of Meme Craftsmanship</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-essential-steps-to-auto-starting-facebook-vids-for-2024/"><u>[Updated] The Essential Steps to Auto-Starting Facebook Vids for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2023s-leading-covert-video-download-apps-1-8/"><u>2023'S Leading Covert Video Download Apps #1-8</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-balancing-act-lowering-audio-levels/"><u>2024 Approved Balancing Act Lowering Audio Levels</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-onscreen-excellence-video-talent-licensing/"><u>2024 Approved Onscreen Excellence Video Talent Licensing</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/discovering-jonna-author-of-award-winning-literary-works-and-more/"><u>Discovering Jonna: Author of Award-Winning Literary Works and More!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/journey-to-prominence-in-the-social-sphere/"><u>Journey to Prominence in the Social Sphere</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/marketers-methods-detecting-illusory-engagement-signals/"><u>Marketers’ Methods Detecting Illusory Engagement Signals</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-top-8-live-selling-platforms-beginners-tool-tip-for-2024/"><u>New Top 8 Live Selling Platforms Beginners Tool Tip for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016076054-top-strategies-to-fix-your-webex-microphone-issues-now/"><u>Top Strategies to Fix Your Webex Microphone Issues Now!</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unveiling-the-best-of-facebooks-vid-scene/"><u>Unveiling the Best of Facebook's Vid Scene</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-accessing-vintage-facebook-content-tips-for-all-devices-for-2024/"><u>[Updated] Accessing Vintage Facebook Content Tips for All Devices for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unraveling-the-meaning-and-usage-of-blue-emoji-in-fb-messages/"><u>[Updated] In 2024, Unraveling the Meaning and Usage of Blue Emoji in FB Messages</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-masterful-marketing-tactics-11-ways-to-amplify-your-facebook-videography-for-2024/"><u>[Updated] Masterful Marketing Tactics 11 Ways to Amplify Your Facebook Videography for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-proven-strategies-to-skyrocket-your-fb-search-results-rankings-for-2024/"><u>[Updated] Proven Strategies to Skyrocket Your FB Search Results Rankings for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-prime-8-the-elite-select-for-facebook-movies-in-23/"><u>2024 Approved Prime 8 The Elite Select for Facebook Movies in '23</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-quick-guide-to-starting-an-instagram-live-show/"><u>2024 Approved Quick Guide to Starting an Instagram Live Show</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-squeezing-light-from-iphone-nocturnes/"><u>2024 Approved Squeezing Light From iPhone Nocturnes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-xiaomi-redmi-k70-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Xiaomi Redmi K70 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/discover-the-art-of-following-facebook-live-events/"><u>Discover the Art of Following Facebook Live Events</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-digital-dissection-the-vll-review-process/"><u>In 2024, Digital Dissection The VLL Review Process</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-chromebook-snapshot-tool/"><u>In 2024, Ultimate Chromebook Snapshot Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/treasury-stock-500000-shares-purchased-at-an-average-cost-of-20-per-share-10/"><u>Treasury Stock (500,000 Shares Purchased at an Average Cost of $20 per Share): $(10)</u></a></li>
+<li><a href="https://win-top.techidaily.com/1728488529900-windows-10pc/"><u>スムーズなデータ移行! Windows 10上のPC間ファイル伝送ツール</u></a></li>
 </ul></div>
 

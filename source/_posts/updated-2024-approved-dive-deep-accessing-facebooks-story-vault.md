@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Deep  Accessing Facebook's Story Vault\""
-date: 2025-01-06T19:02:11.289Z
-updated: 2025-01-13T20:25:29.254Z
+date: 2025-01-14T16:58:01.998Z
+updated: 2025-01-19T20:09:31.201Z
 tags:
   - ai video
   - ai facebook
@@ -53,21 +53,17 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -85,10 +81,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 
 ![story archive facebook mobile](https://images.wondershare.com/filmora/article-images/2021/story-archive-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
@@ -101,12 +93,16 @@ The only chance is that if your friend has uploaded those stories on highlights 
 
 ![see friends old fb story](https://images.wondershare.com/filmora/article-images/2021/see-friends-old-fb-story.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 An old highlighted story shared by your friend would appear on your friend’s profile below the Friends section and above create post option as Story Highlights.
 
 So for the above discussed all ways the only must thing is to setting archive on which would allow you to re-watch stories again and solve your doubt of how to view old stories on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Create Facebook Videos with Ease?
@@ -118,7 +114,7 @@ To attract more audience and gain more likes, comments all you need is a smart [
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Features:**
@@ -163,6 +159,10 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,20 +178,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-discover-unlimited-stories-free-extensions-and-mobile-marvels/"><u>[New] Discover Unlimited Stories – FREE Extensions & Mobile Marvels</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-firefoxs-video-downloader-boost-optimal-extensions-and-plugins-for-facebook-content/"><u>[Updated] 2024 Approved Firefox's Video Downloader Boost Optimal Extensions & Plugins for Facebook Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-uncovering-all-shared-visuals-in-a-message-thread/"><u>[Updated] In 2024, Uncovering All Shared Visuals in a Message Thread</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-social-media-synergy-connecting-twitch-streams-with-fb-for-2024/"><u>[Updated] Social Media Synergy Connecting Twitch Streams with FB for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tailoring-content-the-importance-of-aspect-ratios/"><u>[Updated] Tailoring Content The Importance of Aspect Ratios</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-top-cover-photo-creators-facebook-edition-top-11-list-for-2024/"><u>[Updated] Top Cover Photo Creators Facebook Edition - Top 11 List for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-social-media-savvy-crafting-your-best-self-with-top-tips-for-bios/"><u>2024 Approved Social Media Savvy Crafting Your Best Self with Top Tips for Bios</u></a></li>
-<li><a href="https://discover-able.techidaily.com/1728467177792-windows-11dvd/"><u>解決策：問題解消 - Windows 11におけるDVDドライブの不認識対策</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-closer-look-at-the-internets-giants-your-definitive-guide-to-the-most-popular-sites-online/"><u>A Closer Look at the Internet’s Giants: Your Definitive Guide to the Most Popular Sites Online</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-tecno-pova-6-pro-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Tecno Pova 6 Pro 5G</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-the-process-of-making-youtube-trail-videos/"><u>In 2024, Navigating the Process of Making YouTube Trail Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/peer-to-peer-fb-video-grabber/"><u>Peer-to-Peer FB Video Grabber</u></a></li>
-<li><a href="https://windows11.techidaily.com/regain-missing-dxgidll-with-easy-windows-11-fixes/"><u>Regain Missing Dxgi.dll with Easy Windows 11 Fixes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tless-joy-in-9-full-length-holiday-spectacles-free-online/"><u>Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online</u></a></li>
-<li><a href="https://win-best.techidaily.com/ultimate-guide-to-selecting-the-best-3-backup-software-options-for-windows-11-users/"><u>Ultimate Guide to Selecting the Best 3 Backup Software Options for Windows 11 Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-facebook-live-mastery-making-the-most-of-real-time-sharing/"><u>[New] Facebook Live Mastery Making the Most of Real-Time Sharing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-20-strategies-for-effective-facebook-video-campaigns-for-2024/"><u>[New] Top 20 Strategies for Effective Facebook Video Campaigns for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-capturing-and-saving-your-favorite-facebook-stories-pcmobile-for-2024/"><u>[Updated] Capturing & Saving Your Favorite Facebook Stories (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-marketers-should-use-hashtags-on-facebook-properly/"><u>[Updated] How Marketers Should Use Hashtags on Facebook Properly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-cutting-edge-techniques-for-live-videos-from-your-smartphone/"><u>[Updated] In 2024, Cutting-Edge Techniques for Live Videos From Your Smartphone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-omni-directional-vision-and-its-distinctive-features/"><u>[Updated] Omni-Directional Vision and Its Distinctive Features</u></a></li>
+<li><a href="https://common-error.techidaily.com/beat-windows-update-glitches-once-and-for-all-a-closer-look-at-the-solution-for-error-code-0x8007001f/"><u>Beat Windows Update Glitches Once and For All: A Closer Look at the Solution for Error Code 0X8007001F</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harnessing-the-full-spectrum-of-visions-with-chatgpts-ai-capabilities/"><u>Harnessing the Full Spectrum of Visions with ChatGPT's AI Capabilities</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-xs-max-without-passcode-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone XS Max without passcode</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-7-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 7 Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-combine-videos-without-branding-7-top-choices/"><u>Updated 2024 Approved Combine Videos Without Branding 7 Top Choices</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-picks-apple-m2-macbook-air-as-top-tech-gadget-in-annual-awards/"><u>ZDNet Picks Apple M2 MacBook Air as Top Tech Gadget in Annual Awards</u></a></li>
 </ul></div>
 
