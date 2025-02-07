@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cutting Through the Facade  Real vs Pretend Facebook Followers\""
-date: 2025-01-18T17:39:46.189Z
-updated: 2025-01-25T21:14:07.755Z
+date: 2025-02-02T17:18:38.278Z
+updated: 2025-02-07T18:04:53.504Z
 tags:
   - ai video
   - ai facebook
@@ -32,6 +32,10 @@ If you want to edit FB video, [Filmora Business](https://tools.techidaily.com/wo
 * [**Part1: What are Fake Facebook followers**](#part1)
 * [**Part2: How to spot fake followers on Facebook for Influencer quickly**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What are Fake Facebook followers?
 
 Countries such as Indonesia, Nigeria and Bangladesh are[flooded with fake followers on Facebook](https://economictimes.indiatimes.com/tech/internet/shadow-of-bot-followers-and-fake-likes-mars-social-media-influencers/articleshow/64674668.cms). There are businesses that sell fans and allow other business owners to buy cheap and fake fans through advertising to get likes in those countries.
@@ -44,15 +48,15 @@ Businesses dealing with fake followers have staff to maintain these accounts to 
 
 Let us now explore the tips and tricks to spot the fake followers on Facebook. We hope you get all the essential nitty-gritties for the purpose after reading this section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Inspect comment
 
 You can gauge the quality of engagement from the comments on influencers’ content. The manual process shows fake engagement and bots influenced comments as genuine statements. The fake statement and emojis like ‘love it’, ‘beautiful’, and ‘cool pic’ are part of this. The fake followers on Facebook, indulge in these stuff, whereas loyal followers invest time in long genuine comments. The way people fake influence these days, but also detects it due to technology.
 
 ![inspect facebook comment](https://images.wondershare.com/filmora/article-images/facebook-comment.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 2: Calculate Engagement rate
 
@@ -60,21 +64,17 @@ You can gauge the quality of engagement from the comments on influencers’ cont
 
 ![facebook engagement rate](https://images.wondershare.com/filmora/article-images/engagement-rate-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 3: Check tendency chart
 
 Fake followers on Facebook can be detected if all of a sudden follower count increases. At times organic posts also garner high followers if it goes viral, but if the hike is not for a viral post, then it screams fake! When an unknown influencer has a sudden spike in followers and then a gradual decline, you need to understand that the influencer had a strong engagement rate. Nameless influencers can be through followers, comments and likes. Using third party tools you can gauge the tendency chart.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Locate Follower country
 
 For tracking fake followers on Facebook, you need to know their location. Knowing location also helps you in finding the origin of followers of an influencer who show interest in your product or brand. In case the influencer is from one country and their followers majorly are from another country or continent then they are fake or purchased. When the influencer’s location and post topic seem unusual, you should know that there are chances of fake followers. You can contact the influencer and request for screenshots of audience analytics to figure out if the followers are fake or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 5: Use third party tools
 
@@ -83,7 +83,7 @@ You can try [Phlanx](https://phlanx.com/) for analyzing Facebook followers for i
 ![Phlanx](https://images.wondershare.com/filmora/article-images/Phlanx.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -95,7 +95,7 @@ Knowing these aspects, you will be able to protect your brand page and garner ge
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -115,19 +115,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-content-in-depth-guide-to-youtube-video-edits/"><u>[New] 2024 Approved Elevate Your Content In-Depth Guide to YouTube Video Edits</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-next-gen-hd-video-recording-the-pinnacle-choices/"><u>[New] 2024 Approved Next-Gen HD Video Recording The Pinnacle Choices</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-strategies-to-locate-your-clandestine-snaps-for-2024/"><u>[New] Strategies to Locate Your Clandestine Snaps for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2023s-leading-youtube-and-facebook-collaboration-8-essential-views-for-2024/"><u>2023'S Leading YouTube & Facebook Collaboration - 8 Essential Views for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-covers-made-easy-top-10-online-design-services-reviewed/"><u>2024 Approved Facebook Covers Made Easy Top 10 Online Design Services Reviewed</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-how-to-thrive-after-facebooks-content-algorithm-overhaul/"><u>2024 Approved How to Thrive After Facebook's Content Algorithm Overhaul</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-essential-manual-for-roku-and-fb-live/"><u>2024 Approved The Essential Manual for Roku and FB Live</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlocking-the-secrets-to-collecting-fb-gifs-a-comprehensive-manual/"><u>2024 Approved Unlocking the Secrets to Collecting FB GIFs A Comprehensive Manual</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/archive-hunt-accessing-yesteryears-facebook-stories-for-2024/"><u>Archive Hunt Accessing Yesteryear's Facebook Stories for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/beam-me-up-optimal-webcam-choices-for-podcasts-for-2024/"><u>Beam Me Up Optimal Webcam Choices for Podcasts for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-2010-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel 2010 - How to get it back</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-conversation-limits-the-ins-and-outs-of-chatgpts-input-capacity/"><u>Navigating Conversation Limits: The Ins and Outs of ChatGPT's Input Capacity</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/online-vrijetagsactiviteit-gebruik-de-gratistaping-movavi-om-je-m4a-afbeeldingen-in-swf-te-converteren/"><u>Online Vrijetagsactiviteit: Gebruik De Gratistaping Movavi Om Je M4A-Afbeeldingen in SWF Te Converteren!</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-broadcasting-with-gopro-tips-for-facebookperiscope-integration-for-2024/"><u>[New] Broadcasting with GoPro Tips for Facebook/Periscope Integration for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-6-screen-recorders-for-mac-users/"><u>[New] In 2024, Ideal 6 Screen Recorders for Mac Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-spotlight-10-anonymous-story-gazers/"><u>[New] In 2024, Spotlight 10 Anonymous Story Gazers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-utilizing-edges-split-screen-feature-pip/"><u>[New] In 2024, Utilizing Edge's Split Screen Feature PIP</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-androids-low-cost-video-communication-guide/"><u>[Updated] Android's Low-Cost Video Communication Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-crafting-captivating-stories-on-fb-a-comprehensive-guide-to-bio-crafting-for-2024/"><u>[Updated] Crafting Captivating Stories on FB A Comprehensive Guide to Bio Crafting for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebooks-countdown-the-best-10-music-videos-of-now/"><u>[Updated] Facebook's Countdown The Best 10 Music Videos of Now</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-ultimate-checklist-for-top-notch-fb-cover-videos/"><u>[Updated] In 2024, The Ultimate Checklist for Top-Notch FB Cover Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-prime-fb-downloader-pack-for-ff-browsing-enthusiasts/"><u>[Updated] Prime FB Downloader Pack for FF Browsing Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-response-sharing-plays-with-pizzazz/"><u>[Updated] Rapid Response Sharing Plays with Pizzazz</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/decoding-the-art-of-fb-video-downloads-in-hd-for-2024/"><u>Decoding the Art of FB Video Downloads in HD for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-simple-strategies-for-smooth-underwater-moviemaking/"><u>In 2024, Simple Strategies for Smooth Underwater Moviemaking</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-after-unlinking-from-social-networks/"><u>Life After Unlinking From Social Networks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/types-of-facebook-video-aspect-ratios/"><u>Types of Facebook Video Aspect Ratios</u></a></li>
 </ul></div>
 
