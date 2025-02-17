@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting the Perfect Sonic Storytelling on Social Media for 2024"
-date: 2025-02-05T18:07:14.771Z
-updated: 2025-02-07T16:42:37.068Z
+date: 2025-02-14T18:20:20.572Z
+updated: 2025-02-16T21:08:42.618Z
 tags:
   - ai video
   - ai facebook
@@ -57,7 +57,7 @@ Click done on the right corner to post the music story. Your story will be avail
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
@@ -77,7 +77,7 @@ After clicking a picture or making a video, tap on the sticker icon. Select the 
 ![add music sticker on FB](https://images.wondershare.com/filmora/article-images/add-music-sticker-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Step 3: Add music**   **and**   **post**
@@ -87,7 +87,11 @@ After tapping on the music sticker, click on the song you want to play with your
 ![add music sticker  ](https://images.wondershare.com/filmora/article-images/add-music-with-facebook-music-sticker.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Add My Own Music to Facebook Story?
@@ -112,10 +116,6 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -128,6 +128,10 @@ _For more details about editing videos on Filmora, you can check [How to Edit Vi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Customize the Appearance of Your Facebook Story Song?
 
 If you don't know already, you can also edit the music sticker on your story to make it look more attractive. There are various features such as editing the music sticker image, changing color, selecting the 30-second part of the song, and enabling lyrics.
@@ -139,7 +143,7 @@ You can click on the play button after selecting the song, and it will appear in
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **Step**  2: Change the color **and**   **add elements**
@@ -149,10 +153,6 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -185,18 +185,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-driving-audience-growth-with-smart-fb-video-tactics-for-2024/"><u>[New] Driving Audience Growth with Smart FB Video Tactics for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-a-step-by-step-approach-to-incorporating-luts-in-obs-studio-projects/"><u>[New] In 2024, A Step-by-Step Approach to Incorporating LUTs in OBS Studio Projects</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-social-media-wiz-how-to-create-captivating-slideshow-stories-for-facebook/"><u>[New] Social Media Wiz How to Create Captivating Slideshow Stories for Facebook</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-techniques-to-rectify-non-sending-videos-on-iphones-and-android-messengers/"><u>[New] Techniques to Rectify Non-Sending Videos on iPhones & Android Messengers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fbs-viral-anthems-list-crafting-your-number-one-song/"><u>[Updated] 2024 Approved FB's Viral Anthems List Crafting Your Number One Song</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-leading-green-filmmaking-software/"><u>[Updated] In 2024, Leading Green Filmmaking Software</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unveil-hidden-watch-visual-artwork/"><u>[Updated] In 2024, Unveil Hidden Watch Visual Artwork</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/44cm44oh44k444k44or55kw5akd44kk44oh44o844k455sf5oiq44o744oq44od44kv44ki44od44ox44ks44kk44oj44cn/"><u>「デジタル環境イメージ生成・バックアップガイド」</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-subtle-sound-shifts-in-garageband-productions/"><u>2024 Approved Subtle Sound Shifts in Garageband Productions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhancing-visual-narratives-through-vsco-editing/"><u>Enhancing Visual Narratives Through VSCO Editing</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solving-the-puzzle-insights-into-assassins-creed-valhallas-delayed-debut/"><u>Solving the Puzzle - Insights Into Assassin's Creed Valhalla's Delayed Debut</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-create-epic-music-videos-with-these-10-top-rated-tools/"><u>Updated Create Epic Music Videos with These 10 Top-Rated Tools</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/why-wont-my-computer-stop-diagnosing-and-repairing-persistent-boot-cycles-in-windows-11/"><u>Why Won't My Computer Stop? Diagnosing and Repairing Persistent Boot Cycles in Windows 11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-revisit-and-refine-your-past-editing-fbs-look-back-videos/"><u>[New] 2024 Approved Revisit and Refine Your Past Editing FB's Look Back Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-uncovering-budget-friendly-video-conferencing-tools-for-multiple-systems/"><u>[Updated] 2024 Approved Uncovering Budget-Friendly Video Conferencing Tools for Multiple Systems</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oppo-find-n3-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Oppo Find N3 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/guide-to-sharing-on-instagram-videos-and-more-for-2024/"><u>Guide to Sharing on Instagram Videos & More for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-transmit-facebook-live-via-televisions/"><u>How to Transmit Facebook Live via Televisions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/prodigious-palette-top-10-free-sketch-apps-for-mac-users/"><u>Prodigious Palette Top 10 Free Sketch Apps for Mac Users</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-nokia-105-classic-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Nokia 105 Classic to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-kid-friendly-smartphones-the-safest-options-for-parents-insights/"><u>Top-Rated Kid-Friendly Smartphones: The Safest Options for Parents - Insights</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/what-happens-to-your-facebook-live-if-its-flagged-for-copyright-for-2024/"><u>What Happens to Your Facebook Live if It’s Flagged for Copyright for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 12? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Facebook's Premier Evolution  The Five Must-Know Features\""
-date: 2025-02-06T17:27:45.412Z
-updated: 2025-02-07T17:21:40.394Z
+date: 2025-02-13T02:45:43.953Z
+updated: 2025-02-16T16:03:18.842Z
 tags:
   - ai video
   - ai facebook
@@ -29,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 
  The article below will provide you detailed information about five new Facebook features that were added recently in 2018\. Stay here on this page.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. [Facebook 360](https://tools.techidaily.com/wondershare/filmora/download/)
 
  Facebook 360 was launched on 8th March 2017\. This app is powered by Oculus and supported in Samsung Gear VR. With this latest technology, users can share breathtaking 360 degree videos as well as stills on Facebook. Right after its launch date, this feature has been accessed by millions of users and till now one million 360 videos and 25 million 360 photos have been posted on Facebook.
@@ -44,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
  You may also like: [How to Create and Post 360 Photo to Facebook](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Messenger Day – The Snapchat Way
@@ -55,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 
  One more interesting thing to know about this recent update to Facebook is that it now contains so many interactive filters that users can easily apply to their photos to impress the audience. If you are a biased Snapchat user then this feature can help you to move to Facebook app soon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Facebook Live
 
  Earlier, Facebook users were utilizing Facebook Live API to live stream on Facebook from their smartphone or tablet. But now it is possible to start broadcasting directly from your Laptop or Personal desktop computer using Facebook Live Feature. Further, Admins can also tag others as Live Contributors during streaming process on pages. You can also add comments to live broadcasts which were not possible earlier. So it is right time to explore the new Facebook Live feature on your device, you will easily find it on top of the news feeds.
@@ -62,7 +62,7 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
  Related: [How to invite people to create a split screen live streaming](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Advertising Capabilities
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 [How to make better Facebook video ads](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Group Videos
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/c62b5284641027dfddd7dff7e86c9bcc06523e51b
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -103,20 +103,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-discover-11-leading-streamers-audio-recorders/"><u>[New] 2024 Approved Discover 11 Leading Streamers' Audio Recorders</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-essential-tips-for-configuring-and-measuring-facebooks-in-stream-ads/"><u>[New] Essential Tips for Configuring and Measuring Facebook's In-Stream Ads</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-from-observer-to-participant-enrich-your-online-experience-with-fb/"><u>[New] From Observer to Participant Enrich Your Online Experience with FB</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mastery-over-buffering-in-vimeo-streams-revised-tips/"><u>[New] Mastery Over Buffering in Vimeo Streams (Revised Tips)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>[Updated] 2024 Approved Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-classic-collection-finding-yesteryears-social-media-gems-for-2024/"><u>[Updated] Classic Collection Finding Yesteryear's Social Media Gems for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-how-to-curate-a-facebook-playlist-via-phonetablet/"><u>[Updated] How to Curate a Facebook Playlist via Phone/Tablet</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-squaring-the-circle-of-facebook-engagement-with-visuals-for-2024/"><u>[Updated] Squaring the Circle of Facebook Engagement with Visuals for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-propel-your-presence-on-facebook-mastering-the-art-of-going-live/"><u>2024 Approved Propel Your Presence on Facebook Mastering the Art of Going Live</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-spectrum-of-hand-tracking-technologies/"><u>2024 Approved Unveiling the Spectrum of Hand Tracking Technologies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-13-ultra-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Xiaomi 13 Ultra PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-character-development-through-authentic-dialogue/"><u>In 2024, Character Development Through Authentic Dialogue</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-quicknetflix-screenshots-a-mac-users-guide/"><u>In 2024, QuickNetflix Screenshots A Mac User's Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/plate-the-pan-fried-ribeye-steak-on-a-warm-serving-dish-or-plate-to-keep-it-hot/"><u>Plate the Pan-Fried Ribeye Steak on a Warm Serving Dish or Plate to Keep It Hot.</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/the-best-of-the-best-unrivaled-business-strategy-games-guide/"><u>The Best of the Best Unrivaled Business Strategy Games' Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-getting-the-most-out-of-your-youtube-videos-thumbnails-extraction-for-2024/"><u>[New] Getting the Most Out of Your Youtube Videos Thumbnails Extraction for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-harnessing-instagrams-power-for-financial-gain-for-2024/"><u>[New] Harnessing Instagram's Power for Financial Gain for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-downgrading-macos-sierra-to-os-x-el-capitan/"><u>[New] In 2024, Downgrading MacOS Sierra to OS X El Capitan</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-live-without-youtube-shorts/"><u>[New] In 2024, How to Live Without YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>[Updated] 2024 Approved 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-streaming-fb-video-content-on-television-devices/"><u>[Updated] In 2024, Streaming FB Video Content On Television Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-effortlessly-traverse-facebooks-past-posts/"><u>2024 Approved Effortlessly Traverse Facebook’s Past Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/get-ready-to-download-best-ios-apps-transforming-fb-videos/"><u>Get Ready to Download Best iOS Apps Transforming FB Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebooks-top-visual-discoveries-a-guide/"><u>In 2024, Facebook's Top Visual Discoveries A Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/latest-insights-on-facebook-whats-new-in-2024/"><u>Latest Insights on Facebook - What's New, In 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-pruveeos-cost-effective-full-hd-dashcam-model-f5-features-and-value/"><u>Review of Pruveeo's Cost-Effective Full HD Dashcam Model F5: Features & Value</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/shockingly-fast-crafting-a-google-image-collaboration-for-2024/"><u>Shockingly Fast Crafting a Google Image Collaboration for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Everything About Facebook for 2024"
-date: 2025-02-03T17:09:25.079Z
-updated: 2025-02-07T18:22:47.615Z
+date: 2025-02-15T19:01:22.326Z
+updated: 2025-02-16T23:39:23.087Z
 tags:
   - ai video
   - ai facebook
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is Facebook
 
  Facebook has redefined the meaning of social networking. It had brought turbulence in the social media world back in 2004 which were embraced by everybody and it is carrying that charm until now! It is a social networking company registered under the name of ‘Facebook, Inc’ which allows its users to communicate with other people. These other people are also defined by users and can be their family, friends, coworkers or potential friends! Mark Zuckerberg, founder of Facebook created this boon of social media in 2004 while he was enrolled at Harvard University with a vision of designing a media platform for college students. But nobody would have imagined its progress graph! By 2006 anyone over the age of 13 with a valid email address could join Facebook. So this social networking website which was supposed to allow users to create profile, share moments through uploading photos and videos and assisted in staying in touch with family and friends for a long time, transformed into one of the much sought after platforms with more than 1 billion users worldwide.
@@ -36,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 **Groups:** It allows members to coordinate with near and far friends having common interests. The definition of common interests is open ended, it can be a bachelor party, concert bucket list or project updates, Facebook group lets you communicate in searchable place.
 
 **Events:** These encourage boosting engagement, get people talking, and provide helpful information and links for an upcoming event and ultimately planning and tracking who plans to attend. 650+ million users make use of Facebook Events and 100 million on an average every day to publicize the event!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Common Facebook Terms which you should know
 
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 **Notification:** It is like an update from Facebook of the events and occasions where someone has interacted with you. It might be through reacting on what you shared or by posting something on your wall etc.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Exploring Facebook
@@ -77,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 
 ![ facebook homepage ](https://images.wondershare.com/filmora/article-images/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### The Timeline
 
  The Timeline which represents your profile and is visible to your friends and public (subject to your privacy settings) contains inventory of everything which you have shared and which people has tagged you. You can set your profile picture by simply browsing through your picture library. Profile picture is the one which your friends will see when you will comment anything on Facebook. Coverphoto is a picture which can be seen by anybody when they visit your timeline. You can set your personal picture or wallpaper also to express your personality and interests. You can make your profile more informative by adding your school, college, workplace, relationship status and your location etc.
@@ -86,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 ![ facebook timeline](https://images.wondershare.com/filmora/article-images/facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook usage is diversified?
@@ -103,10 +107,6 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 * Share your feelings for your friends and tag them to pictures which suit their personality
 * Play games and enhance your circle
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Facebook Sharing Work?
 
  Facebook is unique and so are the sharing norms! While your conversations at email or IM’s are private, the content that you share on Facebook including photos and links are public. This is because Facebook has emerged as an open network for communication without any sort of limitations and is thus inclined towards being public although you can define privacy and sharing settings for some shared posts.
@@ -116,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -134,24 +134,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-cultivating-a-commercial-community-earnings-through-fb-engagement/"><u>[New] 2024 Approved Cultivating a Commercial Community Earnings Through FB Engagement</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-cyber-profile-pixelation-crafting-a-playful-look/"><u>[New] 2024 Approved Cyber-Profile Pixelation Crafting a Playful Look</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhancing-facebooks-instream-ad-reach-a-detailed-approach/"><u>[New] 2024 Approved Enhancing Facebook's Instream Ad Reach A Detailed Approach</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-step-into-the-archive-old-stories-on-facebook/"><u>[New] In 2024, Step Into the Archive Old Stories on Facebook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-stretching-out-youtube-video-quality/"><u>[New] In 2024, Stretching Out YouTube Video Quality</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-ultimate-guide-enabling-autoplay-on-youtube-in-facebook/"><u>[New] In 2024, The Ultimate Guide Enabling Autoplay on Youtube in Facebook</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-whatsapp-wisdom-top-30-astrology-inspired-biographies-for-2024/"><u>[New] WhatsApp Wisdom – Top 30 Astrology-Inspired Biographies for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-leveraging-likeability-strategies-for-going-viral-on-facebook/"><u>[Updated] Leveraging Likeability Strategies for Going Viral on Facebook</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-insider-guide-to-efficient-windows-10-usage/"><u>[Updated] The Insider Guide to Efficient Windows 10 Usage</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-optimal-mp4-to-fb-video-solution/"><u>2024 Approved Optimal MP4-to-FB Video Solution</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-textual-transformations-the-photographers-guide-to-image-edits/"><u>2024 Approved Textual Transformations The Photographer's Guide to Image Edits</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-unraveling-the-mystery-of-where-to-find-top-ranked-instagram-ringtones-and-craft-perfect-alarms/"><u>2024 Approved Unraveling the Mystery of Where to Find Top-Ranked Instagram Ringtones & Craft Perfect Alarms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-flexibility-with-the-lenovo-chromebook-duet-a-comprehensive-review/"><u>Budget-Friendly Flexibility with the Lenovo Chromebook Duet - A Comprehensive Review</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-lava-blaze-pro-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Lava Blaze Pro 5G</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-usb-webcam-installation-download-top-quality-drivers-today/"><u>Effortless USB Webcam Installation: Download Top-Quality Drivers Today</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-easy-path-sending-fb-videos-to-whatsapp-contacts/"><u>In 2024, Easy Path Sending FB Videos to WhatsApp Contacts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-fabricate-a-one-of-a-kind-internet-joke/"><u>In 2024, Fabricate a One-of-a-Kind Internet Joke</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-stream-like-a-pro-setting-up-your-dslr-on-personal-computers/"><u>In 2024, Stream Like a Pro Setting Up Your DSLR on Personal Computers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/zdnets-ultimate-tutorial-for-upgrading-or-downgrading-chromeos-versions-on-your-laptop/"><u>ZDNet's Ultimate Tutorial for Upgrading or Downgrading ChromeOS Versions on Your Laptop</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>[New] 2024 Approved Chuckling Chords & Clever Cuts 10 Parody Classics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-guide-to-writing-successful-vlogging-scripts/"><u>[New] A Guide to Writing Successful Vlogging Scripts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-taking-your-fb-presence-step-by-step-on-360-video-creation/"><u>[New] In 2024, Taking Your FB Presence Step-by-Step on 360 Video Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-complete-blueprint-for-implementing-and-analyzing-fb-in-stream-ads-for-2024/"><u>[New] The Complete Blueprint for Implementing & Analyzing FB In-Stream Ads for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-full-potential-with-facebook-interaction-for-2024/"><u>[New] Unlocking Full Potential with Facebook Interaction for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-tricks-to-upgrade-streaming-quality-on-mobile-apps-like-facebook/"><u>[Updated] Tricks to Upgrade Streaming Quality on Mobile Apps Like Facebook</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-turbocharging-your-instagram-footage-for-2024/"><u>[Updated] Turbocharging Your Instagram Footage for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-photo-realism-in-artwork-illustrator-motion-magic/"><u>2024 Approved Photo Realism in Artwork Illustrator Motion Magic</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/exploring-facebooks-2023-video-revolution-the-rise-of-compact-clips-for-2024/"><u>Exploring Facebook's 2023 Video Revolution The Rise of Compact Clips for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-lava-blaze-2-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Lava Blaze 2 Pro to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-zooms-background-blurring-magic-for-2024/"><u>Mastering Zoom's Background-Blurring Magic for 2024</u></a></li>
 </ul></div>
 
