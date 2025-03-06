@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tumblr ID Visualization Guide  Size, Format, Duration\""
-date: 2025-02-11T03:51:06.455Z
-updated: 2025-02-17T03:53:33.184Z
+date: 2025-02-28T22:35:00.412Z
+updated: 2025-03-05T19:31:36.208Z
 tags:
   - ai video
   - ai facebook
@@ -87,10 +87,6 @@ Before starting any work, it will always be wise to do some planning. As you are
 
 ![facebook cover video specs](https://images.wondershare.com/filmora/article-images/2021/facebook-cover-video-specs.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Video Format
 
 Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video requirements. Other formats are also usable.
@@ -103,17 +99,9 @@ Video cover Facebook size should be within 1.75 GB. Keep it medium-sized to be a
 
 The Facebook Video duration optimally should lie between 20 to 90 seconds duration. That will get continually played in the loop.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Video Cropping
 
 Make sure, while uploading the video, must take care of the center area of the video. So that critical content does not get phased out while dragging or cropping it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Video Resolution
 
@@ -122,10 +110,6 @@ The minimum Video resolution for Facebook Cover Video is 820X312 px, or it can b
 Facebook Cover Video Aspect RatioThe required Facebook Cover Video Aspect Ratio is 16:9.
 
 To adjust or make changes in the aspect ratio of your video, you can take the help of Wondershare Filmora Video Editor. That will assist you in modifying the Video Cover Facebook size aspect ratio and help you do various video editing-related tasks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4 Make a Video Fit My Facebook Cover
 
@@ -215,10 +199,6 @@ Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video
 
 Video cover Facebook size should be within 1.75 GB. Keep it medium-sized to be accessible by all users with average browsing speed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Video Duration
 
 The Facebook Video duration optimally should lie between 20 to 90 seconds duration. That will get continually played in the loop.
@@ -226,10 +206,6 @@ The Facebook Video duration optimally should lie between 20 to 90 seconds durati
 ### 4\. Video Cropping
 
 Make sure, while uploading the video, must take care of the center area of the video. So that critical content does not get phased out while dragging or cropping it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Video Resolution
 
@@ -274,10 +250,6 @@ However, before going into depth, understand the proper Facebook Page Cover Vide
 03 [Size, Format, and Time for Facebook Cover Video](#Part 3)
 
 04 [Make a Video Fit My Facebook Cover](#Part 4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1 What is Facebook Cover Video?
 
@@ -361,10 +333,6 @@ Now, let understand the steps needed to upload Facebook Cover Size Video for the
 
 That's it. Your Facebook Cover Size Video is ready to attract users, potential customers, art lovers, etc. And be ready to grow your business with this simple trick. It works like magic to gain attention by just visiting the Facebook page in one glance. Don't you think it is a beautiful idea to let the business grow using a virtual platform in an absolute sense? Though currently, the Facebook Cover Size Video option is available to the business account only, other normal account users are eagerly waiting to let Facebook open this service again to their account like before.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 **●** Setting out the example through outstanding visuals will create a big difference. After going through Facebook Cover Size Video requirements and fulfilling all the details very carefully, you would stand in a solid position to attract a large user base through your Facebook profile. So, follow the mentioned guidelines and equip yourself with all the necessary information to ring the bell at the right time. Facebook is creating tremendous buzz among Social Media Platforms exponentially among the users worldwide for networking among friends or developing and growing different forms of business. If you are among them and want to utilize the extensive network of Facebook, then hit the Cover Video Facebook Size target right now to generate the right opportunity for your business. Here both this article and Wondershare Filmora will be going to assist you like a true friend.
@@ -386,10 +354,6 @@ However, before going into depth, understand the proper Facebook Page Cover Vide
 03 [Size, Format, and Time for Facebook Cover Video](#Part 3)
 
 04 [Make a Video Fit My Facebook Cover](#Part 4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1 What is Facebook Cover Video?
 
@@ -438,10 +402,6 @@ Before starting any work, it will always be wise to do some planning. As you are
 ### 1\. Video Format
 
 Most recommended Video formats for Facebook are .mov, .mp4 as per Facebook video requirements. Other formats are also usable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Video Size Specification
 
@@ -502,22 +462,15 @@ That's it. Your Facebook Cover Size Video is ready to attract users, potential c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-exclusive-free-player-list-for-windowsmac-users/"><u>[New] Exclusive Free Player List for Windows/Mac Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-techniques-for-live-broadcasting-recorded-videographies-on-fb/"><u>[New] In 2024, Techniques for Live Broadcasting Recorded Videographies on FB</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-leading-discord-glyphs-innovators-shaping-chat-culture/"><u>[New] Leading Discord Glyphs Innovators Shaping Chat Culture</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-exploring-lgs-new-tech-horizon-in-bp550-for-2024/"><u>[Updated] Exploring LG's New Tech Horizon in BP550 for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-fb-vids-to-mp4-downloader-efficient-and-effective-for-2024/"><u>[Updated] FB Vids to MP4 Downloader – Efficient & Effective for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-get-every-moment-of-fb-lives-top-5-video-capture-apps-for-2024/"><u>[Updated] Get Every Moment of Fb Lives Top 5 Video Capture Apps for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-hot-takes-top-ten-video-hits-from-social-media-giants/"><u>[Updated] Hot Takes Top Ten Video Hits From Social Media Giants</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-ultimate-list-of-free-video-meeting-tools-for-professionals-and-educators/"><u>[Updated] In 2024, The Ultimate List of Free Video Meeting Tools for Professionals & Educators</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unlocking-creativity-producing-original-and-entertaining-reels-on-facebook/"><u>[Updated] Unlocking Creativity Producing Original and Entertaining Reels on Facebook</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-unlocking-the-potential-of-vimeo-video-logging-for-2024/"><u>[Updated] Unlocking the Potential of Vimeo Video Logging for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-chrome-video-errors-a-step-by-step-fix-guide/"><u>2024 Approved Chrome Video Errors A Step-by-Step Fix Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-smooth-snapshot-mastery-eliminate-shakes/"><u>2024 Approved Smooth Snapshot Mastery - Eliminate Shakes</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-12-pro-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 12 Pro Without Previous Owner?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo V30 Pro | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-why-you-should-know-your-apples-m1-max-clip/"><u>In 2024, Why You Should Know Your Apple's M1 Max Clip</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/ingenious-approaches-to-facebook-video-ad-crafting-for-2024/"><u>Ingenious Approaches to Facebook Video Ad Crafting for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/reassert-true-look-corrected-video-error-for-2024/"><u>Reassert True Look Corrected Video Error for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-engagement-personalized-youtube-thumbnail-guide/"><u>[New] 2024 Approved Elevate Engagement Personalized YouTube Thumbnail Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-realizing-your-cinematic-dreams-the-art-of-perfect-sound-in-videos/"><u>[New] In 2024, Realizing Your Cinematic Dreams The Art of Perfect Sound in Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unmasking-phony-fans-in-social-media-for-2024/"><u>[Updated] Unmasking Phony Fans in Social Media for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-step-by-step-incorporating-songs-into-your-facebook-timeline/"><u>2024 Approved Step-by-Step Incorporating Songs Into Your Facebook Timeline</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-tricks-to-make-your-profile-video-stand-out/"><u>2024 Approved Tricks to Make Your Profile Video Stand Out</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminating-unwarranted-not-empty-alerts-strategies-for-error-x80070091/"><u>Eliminating Unwarranted 'Not Empty' Alerts: Strategies for Error X80070091</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exclusive-look-at-iphones-latest-safety-upgrade-in-ios-18-messages-ai-free-tech-insights/"><u>Exclusive Look at iPhone’s Latest Safety Upgrade in iOS 18 Messages (AI-Free) | Tech Insights</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/fixes-for-iphoneandroidchrome-why-are-facebook-videos-blurry-in-2024/"><u>Fixes for iPhone/Android/Chrome | Why Are Facebook Videos Blurry, In 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-google-pixel-7a-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Google Pixel 7a</u></a></li>
+<li><a href="https://win-studio.techidaily.com/troubleshooting-unrecognized-network-card-in-windows-expert-tips-from-yl-computing/"><u>Troubleshooting Unrecognized Network Card in Windows - Expert Tips From YL Computing</u></a></li>
 </ul></div>
 

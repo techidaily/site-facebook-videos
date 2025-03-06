@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Transforming Visual Feeds with Harmonious Hits"
-date: 2025-01-01T21:14:51.970Z
-updated: 2025-01-07T08:14:36.891Z
+date: 2025-03-03T22:37:45.854Z
+updated: 2025-03-05T22:00:29.402Z
 tags:
   - ai video
   - ai facebook
@@ -56,15 +56,7 @@ Click done on the right corner to post the music story. Your story will be avail
 
 ![Edit FB Music](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Note: Currently, you can add music stories on Facebook mobile app only. On a desktop, you can only create a photo story or text story.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Add Music to Facebook Photo/Video Story?
 
@@ -108,10 +100,6 @@ Double click on the audio file within the panel given on the top of the Filmora 
 
 ![edit FB music story  ](https://images.wondershare.com/filmora/article-images/edit-facebook-story-music-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step 4: Export edited file**
 
 You can save the edited file. WMV or .MP4 formats by clicking on the export option on the top. You can rename the file before saving it.
@@ -134,10 +122,6 @@ You can click on the play button after selecting the song, and it will appear in
 
 ![enable FB music story lyric  ](https://images.wondershare.com/filmora/article-images/enable-facebook-music-sticker-lyric-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **Step**  2: Change the color **and**   **add elements**
 
 Tap and hold the sticker; move your finger on the screen to place the sticker anywhere you like. You can also click on the rainbow-colored dot on the screen to change the background and lyrics color.
@@ -145,10 +129,6 @@ Tap and hold the sticker; move your finger on the screen to place the sticker an
 A user can also select elements from the given options. You can add a poll, emojis, and GIFs to interact with viewers. Click on done on the top right corner to post.
 
 ![edit FB music story lyric  ](https://images.wondershare.com/filmora/article-images/edit-facebook-music-sticker-color-elements.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About Adding Music to Facebook Story
 
@@ -159,10 +139,6 @@ Yes, you can add a story on Facebook from your computer. Click on create a story
 1. **Why don't I have music stickers on Facebook? And how to fix it?**
 
 There are a few ways to fix the music sticker issue if it is not popping up in your stories. One of the easiest ways to do it is to go to the Apple Store or Play Store and search for Facebook. If you see an update sign, click on it; updating the app might solve the issue. You can also delete and reinstall the app to tackle the problem.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -185,20 +161,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-restoring-streamlined-views-where-are-your-vids-in-2024/"><u>[New] Restoring Streamlined Views Where Are Your Vids, In 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-one-stop-solution-mastering-gif-downloads-across-all-devices-and-systems/"><u>[Updated] 2024 Approved One-Stop Solution Mastering GIF Downloads Across All Devices & Systems</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-beat-the-curve-top-facebook-ad-strategies/"><u>[Updated] In 2024, Beat the Curve Top Facebook Ad Strategies</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-streaming-powerhouses-face-off-streamlabs-versus-obs-analysis/"><u>[Updated] In 2024, Streaming Powerhouses Face-Off Streamlabs versus OBS Analysis</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-rights-and-recourse-following-sudden-account-suspension-on-fb-for-2024/"><u>[Updated] Rights and Recourse Following Sudden Account Suspension on FB for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-record-games-with-no-hassle-nvidia-way/"><u>2024 Approved Record Games with No Hassle - NVIDIA Way</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-guide-to-benchmarking-graphics-cards-identifying-winners-and-losers/"><u>A Comprehensive Guide to Benchmarking Graphics Cards: Identifying Winners & Losers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/everything-about-facebook-live-split-screen-you-should-know-for-2024/"><u>Everything About Facebook Live Split Screen You Should Know for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exclusive-pre-prime-day-savings-guide-unveiled-retail-experts/"><u>Exclusive Pre-Prime Day Savings Guide | Unveiled Retail Experts</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/expert-hardware-analysis-with-tom-your-trusted-resource/"><u>Expert Hardware Analysis with Tom - Your Trusted Resource</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-google-pixel-8-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Google Pixel 8 Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-magic-5-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Honor Magic 5 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-iphone-13-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The iPhone 13 SIM Lock 4 Easy Methods</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-instant-view-enabling-fb-videos-to-play-by-themselves/"><u>In 2024, Instant View Enabling FB Videos to Play By Themselves</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/seamless-sojourns-the-most-important-93-spanish-phrases-for-travelers/"><u>Seamless Sojourns: The Most Important 93 Spanish Phrases for Travelers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-gopro-hero-series-comparison/"><u>[New] 2024 Approved The GoPro Hero Series Comparison</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-decoding-the-dos-and-donts-in-posting-content-on-facebook/"><u>[New] Decoding the Do’s and Don’ts in Posting Content on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-camera-hunt-essential-choices-for-new-enthusiasts/"><u>[New] In 2024, Camera Hunt Essential Choices for New Enthusiasts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-streamline-access-top-strategies-for-recent-fb-video-tracks/"><u>[New] In 2024, Streamline Access Top Strategies for Recent Fb Video Tracks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-social-media-influencers-secret-creating-captivating-facebook-biographies/"><u>[New] Social Media Influencers' Secret Creating Captivating Facebook Biographies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-premier-sounds-selections-for-video-creation/"><u>[Updated] 2024 Approved Premier Sounds Selections for Video Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-audience-to-advocate-strategies-for-powerful-fb-covers-for-2024/"><u>[Updated] From Audience to Advocate Strategies for Powerful FB Covers for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-from-viewers-to-valuables-mastering-video-monetization-on-vimeo-for-2024/"><u>[Updated] From Viewers to Valuables Mastering Video Monetization on Vimeo for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/blueprints-of-bliss-building-a-virtual-mc-village-home-for-2024/"><u>Blueprints of Bliss Building a Virtual MC Village Home for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fast-and-simple-guide-resolving-controller-freeze-issues/"><u>Fast and Simple Guide: Resolving Controller Freeze Issues</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-accelerate-your-streaming-career-utilizing-obs-capabilities/"><u>In 2024, Accelerate Your Streaming Career Utilizing OBS Capabilities</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-enhancing-fb-video-content-with-streamlined-captioning-tactics/"><u>In 2024, Enhancing FB Video Content with Streamlined Captioning Tactics</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-g13-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto G13 Phone FRP Lock</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restoring-functionality-a-guide-for-defective-m4v-media/"><u>Restoring Functionality: A Guide for Defective M4V Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/utilizing-fb-features-for-broadcasting-historical-video-footage/"><u>Utilizing FB Features for Broadcasting Historical Video Footage</u></a></li>
 </ul></div>
 

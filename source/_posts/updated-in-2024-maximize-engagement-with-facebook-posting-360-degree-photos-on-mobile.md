@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Maximize Engagement with Facebook  Posting 360-Degree Photos on Mobile\""
-date: 2025-02-16T03:02:44.321Z
-updated: 2025-02-16T19:23:53.151Z
+date: 2025-03-01T18:13:31.752Z
+updated: 2025-03-05T22:55:18.336Z
 tags:
   - ai video
   - ai facebook
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Probably you have a tablet or phone that support Facebook live 360 video feature. Actually as per the recent announcement made by Facebook professionals regarding its updated applications, live 360 is compatible with all devices launched after iPad Pro. iPad Air, iPad Mini 2 or iPhone 4S models. Till now Facebook has not revealed any news related to compatibility of new features over Android devices and chances are that Android users need to wait so long to enjoy this feature on their device. However, they made a useful statement that Galaxy devices launched after Galaxy Note 3 and Galaxy S5 will support this feature.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Taking 360 Photos on iPhone and iPad With Built in Camera App
 
  Generally 360 degree camera is most preferable choice for developing high quality 360 degree images but in case if you don’t have one then Panorama feature of built in device cameras can make it possible. However, users cannot get focus from up and down but they can at least pan from right to left by simply swiping on their display. This feature only works for photos that mean you cannot develop 360 videos using Panorama.
@@ -42,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  If you are using iPad or iPhone then simple open your camera app and go to Panorama Shooting mode. Start capturing your photo with panoramic photo option but note that you have to follow Facebook photo dimension specifications to develop a live 360 compatible content. However, it is really hard to measure exact dimensions of a panoramic photo when you are working with default settings.
 
  As soon as you have captured your desired shot, move to your Facebook account and browse photo library. Choose your recently captured panorama photo and then follow instructions provided on screen to update your video. You can also preview your content, now add desired caption and publish your content online. Soon your will start receiving interesting comments and reviews from audience. Users can also delete their 360 degree photos after few hours as per their need. Such types of videos are being commonly used for entertainment and marketing purpose throughout the world.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Taking 360 Photos on Android Smartphone with Google Street View
 
@@ -56,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 * When you are taking last pictures of your 360 shoot, the app will itself remind you about missing points so that you can pick them up. Users can also remove unwanted images from undo icon.
 * These captured 360 videos can be uploaded on Facebook same as the regular posts. Simply go to your account, move to status update and select your image, add caption and update.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Viewing 360 Photos on Facebook
 
  As soon as you are done with the uploading process, next task is to visit your profile and check if your uploaded video is working fine or not. If you are working on a web browser then simply click on this video and drag it here and there to avail 360 degree view whereas those who are watching it on smartphone can simply move it around in all directions to enjoy 360 degree view.
@@ -67,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  You will find a small radar type icon at bottom of screen; it provides information about your current pointing position on view. As it is your own profile so you can still make few changes to your uploads by adjusting preferred audience type or comments etc.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -87,21 +71,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-10-instagram-hashtags-you-need-to-start-using-today/"><u>[New] In 2024, Top 10 Instagram Hashtags You Need to Start Using Today</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-interactive-tips-youtube-to-facebook-shareability/"><u>[New] Interactive Tips YouTube to Facebook Shareability</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-break-free-the-chuckles-the-most-hilarious-facebook-detainment-stories/"><u>[Updated] 2024 Approved Break Free the Chuckles The Most Hilarious Facebook Detainment Stories</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-avatar-makeover-building-your-cartoon-personality-for-2024/"><u>[Updated] Avatar Makeover Building Your Cartoon Personality for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-integrating-past-videos-into-current-live-feeds-on-fb/"><u>[Updated] Integrating Past Videos Into Current Live Feeds on FB</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-premium-tvs-for-ps5-and-xbox-series-x-gamers-dreams-for-2024/"><u>[Updated] Premium TVs for PS5 & Xbox Series X Gamers' Dreams for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-request-for-full-media-sharing-viewability-via-messaging-platforms-for-2024/"><u>[Updated] Request for Full Media Sharing Viewability via Messaging Platforms for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-brushstrokes-breakthrough-top-10-mac-drawers-at-no-cost/"><u>2024 Approved Brushstrokes Breakthrough Top 10 Mac Drawers at No Cost</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-digital-lifeguard-a-quick-guide-for-saving-vids-from-fbs-waves/"><u>2024 Approved Digital Lifeguard A Quick Guide for Saving Vids From FB's Waves</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Methods to Protect Yourself from Location Tracking on Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://fox-where.techidaily.com/kioxia-loutil-de-clonage-numerique-simple-et-sur-le-meilleur-choix-pour-vous/"><u>KIOXIA : L'Outil De Clonage Numérique Simple Et Sûr - Le Meilleur Choix Pour Vous!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/quick-conversion-tips-using-vlc-for-mpeg-4-and-beyond/"><u>Quick Conversion Tips Using VLC for MPEG-4 and Beyond</u></a></li>
-<li><a href="https://extra-support.techidaily.com/selective-cinematic-forecast-collection-for-2024/"><u>Selective Cinematic Forecast Collection for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-fix-for-itunes-not-recognizing-your-iphone-on-a-windows-10-system/"><u>Step-by-Step Fix for iTunes Not Recognizing Your iPhone on a Windows 10 System</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-future-of-video-on-facebook-focusing-on-shorter-formats-for-2024/"><u>The Future of Video on Facebook Focusing on Shorter Formats for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-to-stop-pacificdrive-from-malfunctioning-in-windowsmacos/"><u>Troubleshooting Steps to Stop PacificDrive From Malfunctioning in Windows/MacOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-guiding-you-to-enable-auto-video-feature-on-facebook/"><u>[New] In 2024, Guiding You to Enable Auto-Video Feature on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-revolutionize-your-intellect-with-these-15-yt-channels/"><u>[New] In 2024, Revolutionize Your Intellect with These 15 YT Channels</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-essential-guide-to-scraping-social-footage-facebook-videos/"><u>[Updated] 2024 Approved The Essential Guide to Scraping Social Footage Facebook Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-the-world-of-facebook-analytics-for-2024/"><u>[Updated] Navigating the World of Facebook Analytics for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-professionals-choice-of-best-windows-edits-tools-for-2024/"><u>[Updated] Professionals' Choice of Best Windows Edits Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unraveling-time-reverse-video-on-instagram-secrets-for-2024/"><u>[Updated] Unraveling Time Reverse Video on Instagram Secrets for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-editors-edge-advanced-techniques-for-youtube-creations/"><u>2024 Approved The Editor's Edge Advanced Techniques for YouTube Creations</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-samsung-galaxy-a23-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Samsung Galaxy A23 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/are-you-prepared-for-the-changed-facebook-algorithm/"><u>Are You Prepared for the Changed Facebook Algorithm?</u></a></li>
+<li><a href="https://fox-where.techidaily.com/free-download-aomei-backupper-disk-image-creator-for-linux-start-using-now/"><u>Free Download: AOMEI Backupper Disk Image Creator for Linux - Start Using Now</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-maximize-your-youtube-shorts-earnings-for-2024/"><u>How to Maximize Your YouTube Shorts Earnings for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-2023-streamline-facebook-vids-to-smooth-mp3/"><u>In 2024, 2023 Streamline Facebook Vids to Smooth MP3</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-bring-past-videos-into-the-present-on-social-media-platforms/"><u>In 2024, How to Bring Past Videos Into the Present on Social Media Platforms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/noise-free-listening-a-step-by-step-guide-to-repairing-glitchy-airpods-audio/"><u>Noise-Free Listening: A Step-by-Step Guide to Repairing Glitchy AirPods Audio</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/ranking-the-top-8-apps-to-increase-popularity-on-facebook-for-2024/"><u>Ranking the Top 8 Apps to Increase Popularity on Facebook for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Honor 90 GT | Dr.fone</u></a></li>
 </ul></div>
 

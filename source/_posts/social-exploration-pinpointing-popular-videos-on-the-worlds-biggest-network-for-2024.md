@@ -1,7 +1,7 @@
 ---
 title: "\"Social Exploration  Pinpointing Popular Videos on the World's Biggest Network for 2024\""
-date: 2025-02-15T00:22:14.103Z
-updated: 2025-02-17T01:07:00.250Z
+date: 2025-02-28T21:02:33.432Z
+updated: 2025-03-05T16:26:36.040Z
 tags:
   - ai video
   - ai facebook
@@ -171,10 +171,6 @@ On the top right corner of the screen, click on the three bars that you see. Thi
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Go to Your Profile**
 
 From the Menu, click on your profile at the top of the screen.
@@ -251,19 +247,11 @@ Here, log in to your Facebook account.
 
 ![Log in to your account](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Search for the "Saved” tab.**
 
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Click on Saved**
 
@@ -485,10 +473,6 @@ In the Menu, scroll down to see the "Saved" tab. Click on it.
 
 ![Go to Saved](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Click on “See All”**
 
 In order to view the saved video quickly, click on “See All” under the Most Recent tab.
@@ -506,10 +490,6 @@ Click on the Filter icon, and a dropdown list will appear. To view all the video
 Scroll through the videos to find the one you want.
 
 The steps given above will lead you to your Saved videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Find Videos on Facebook You Recently Watched?
 
@@ -553,10 +533,6 @@ From the list of activities, select “Videos you’ve watched.” This will dis
 
 ![Select “Videos you’ve watched”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Finding Recently Watched Videos on Phone
 
 Now, let's see how it works on the mobile. Follow the step-by-step guideline.
@@ -570,10 +546,6 @@ Open the Facebook app and log in if you are not already logged in from your home
 On the top right corner of the screen, click on the three bars that you see. This will take you to the Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-13.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Go to Your Profile**
 
@@ -592,10 +564,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6: Click on “Videos you’ve watched.”**
 
@@ -681,19 +649,11 @@ From your home screen or apps list, open the Facebook app.
 
 ![Open the Facebook App](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Go to Menu**
 
 From the News Feed, click on the three bars at the bottom right corner of the screen to go to Menu.
 
 ![Go to Menu](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-5.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Go to Saved**
 
@@ -838,21 +798,22 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-elevate-your-digital-footprint-with-effective-fb-page-management/"><u>[New] 2024 Approved Elevate Your Digital Footprint with Effective FB Page Management</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-crafting-podcast-episodes-essential-writing-techniques-and-examples/"><u>[New] Crafting Podcast Episodes Essential Writing Techniques & Examples</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-4-simplified-ways-to-screen-record-lenovo/"><u>[New] In 2024, 4 Simplified Ways to Screen Record Lenovo</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-perfecting-the-chorus-of-visual-content-on-facebook-through-music/"><u>[New] In 2024, Perfecting the Chorus of Visual Content on Facebook Through Music</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-profit-maximizers-playlist-8-tools-and-products-to-elevate-your-business-game/"><u>[New] In 2024, Profit Maximizers Playlist 8 Tools & Products to Elevate Your Business Game</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-best-writers-workshop-online/"><u>[Updated] In 2024, Best Writer’s Workshop Online</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-setting-up-facebook-viewing-for-smooth-apple-tv-experience/"><u>[Updated] In 2024, Setting Up Facebook Viewing for Smooth Apple TV Experience</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-innovative-approaches-to-efficiently-capture-and-save-your-screens-with-mobizen-for-2024/"><u>[Updated] Innovative Approaches to Efficiently Capture and Save Your Screens with Mobizen for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-securing-social-media-memories-the-latest-on-downloading-fb-statuses-for-2024/"><u>[Updated] Securing Social Media Memories The Latest on Downloading Fb Statuses for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-11-pro-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from 11 Pro</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-leveraging-facebook-for-automatic-video-views/"><u>In 2024, Leveraging Facebook for Automatic Video Views</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/instant-media-transformation-enhance-fb-videos-to-hdmp4-on-the-fly-for-2024/"><u>Instant Media Transformation Enhance FB Videos to HD/MP4 on the Fly for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/journey-from-bootstrap-to-global-platform-the-story-of-a-stack-overflow-leader-on-zdnet/"><u>Journey From Bootstrap to Global Platform: The Story of a Stack Overflow Leader on ZDNet</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-accessible-vocal-isolation-equipment-for-all-voice-levels-for-2024/"><u>New Accessible Vocal Isolation Equipment for All Voice Levels for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/pclaptop-editors-without-relying-on-inshot-for-2024/"><u>PC/Laptop Editors without Relying on Inshot for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-google-pixel-7a-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Google Pixel 7a? Fixed | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-ultimate-tutorial-for-uploading-to-instagram-tv/"><u>[New] In 2024, The Ultimate Tutorial for Uploading to Instagram TV</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-essential-steps-to-auto-starting-facebook-vids-for-2024/"><u>[New] The Essential Steps to Auto-Starting Facebook Vids for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-prime-video-converter-for-social-media-platforms/"><u>[Updated] 2024 Approved Prime Video Converter for Social Media Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-spotting-social-scene-shifters-videos-shared-across-platforms/"><u>[Updated] 2024 Approved Spotting Social Scene-Shifters Videos Shared Across Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-a-compreranly-approach-to-high-quality-ps3-video-capture/"><u>[Updated] A Compreranly Approach to High-Quality PS3 Video Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-directface-vidcutter-utility-for-2024/"><u>[Updated] DirectFace VidCutter Utility for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-the-potential-of-your-facebook-profile-with-covers-for-2024/"><u>[Updated] Unlock the Potential of Your Facebook Profile with Covers for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-revolutionize-your-social-media-strategy-use-free-video-creation-kit/"><u>2024 Approved Revolutionize Your Social Media Strategy – Use Free Video Creation Kit</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ai-powered-vr-retail-navigation-for-2024/"><u>AI-Powered VR Retail Navigation for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/augment-canon-imagery-unlimited-freebies-and-customized-purchases-for-2024/"><u>Augment Canon Imagery Unlimited Freebies & Customized Purchases for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-whats-next-for-your-timepiece-the-leading-advantages-of-upgrading-to-watchos/"><u>Discover What's Next for Your Timepiece: The Leading Advantages of Upgrading to WatchOS</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-ultimate-guide-to-adjusting-to-new-facebook-ranking-criteria/"><u>In 2024, The Ultimate Guide to Adjusting to New Facebook Ranking Criteria</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-tracing-influence-the-quest-for-your-passionate-pioneers/"><u>In 2024, Tracing Influence The Quest for Your Passionate Pioneers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-360-videos-for-fb-creation-and-sharing-guide-for-2024/"><u>Mastering 360 Videos for FB Creation & Sharing Guide for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/sj7-unveils-its-ultimate-4k-action-camera-a-comprehensive-report-for-2024/"><u>SJ7 Unveils Its Ultimate 4K Action Camera - A Comprehensive Report for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-next-phase-of-tech-tools-staying-ahead-in-an-age-dominated-by-ai-insights-from-zdnet/"><u>The Next Phase of Tech Tools: Staying Ahead in an Age Dominated by AI | Insights From ZDNet</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ogg-mov-movavi/"><u>영화 비디오를 인터넷을 통해 OGG 형식으로 제공할 수 있는 격지 없이 MOV 대상의 무료 변환기 - Movavi</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Check What You've Liked on Facebook Lately for 2024"
-date: 2025-02-12T18:08:57.595Z
-updated: 2025-02-17T01:00:58.225Z
+date: 2025-02-28T16:24:57.860Z
+updated: 2025-03-05T20:57:20.831Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,6 @@ This means that you cannot access your watch history using someone else's Facebo
 * On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
 * This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Find Recently Watched Videos on Facebook App?
 
 Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
@@ -112,10 +108,6 @@ Keep note that your watch history is accessible by you only. However, if you are
 
 ![delete watch history on facebook](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Within the Categories, look for "Videos you've watched."
 * From there, you can delete the videos one-by-one or clear the complete watch history.
 
@@ -131,10 +123,6 @@ Some people may wonder whether anyone else can see what they watch on Facebook. 
 
 * **Post Shares:**Your name is also visible if you share a video to your timeline or in case of direct messages.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How Does Facebook Decide the Suggested Videos?
 
 The videos suggested on Facebook appear because of liked pages and video popularity. You can customize the same through the below steps:
@@ -142,10 +130,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 * Go to the left menu and click on "Watch" from your News Feed.
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -277,10 +261,6 @@ Part 1: [How Can I Find Facebook Watched Videos on Desktop or Web?](#step1)
 
 Part 2: [How to Find Recently Watched Videos on Facebook App?](#step2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How Can I Find Facebook Watched Videos on Desktop or Web?
 
 At first, we will discuss the method on how you can find Facebook-watched videos on the desktop. Keep note that the video will be listed in the watch history, even if it's played for a second or two. All you require to do is access them through your profile. Another thing that's important to know is that the videos of your Facebook history are accessible through your account only.
@@ -309,10 +289,6 @@ However, make sure you have the Facebook application installed on your device. I
 * Look for the "Videos You've Watched" filter. Tap on the same.
 
 ![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
 
@@ -346,10 +322,6 @@ If you have a slow/dull internet connection there are chances that your video is
 
 Sometimes a quick restart can ensure a swift Facebook video play. So, close the Facebook application on your device and relaunch it. Alternatively, check if there are any recent updates available for the app. If you see any, update the app accordingly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Delete Watch History on Facebook?
 
 Keep note that your watch history is accessible by you only. However, if you are still skeptical (due to privacy issues), delete the watch history of Facebook. Here's how you can do so:
@@ -382,10 +354,6 @@ The videos suggested on Facebook appear because of liked pages and video popular
 * Go to the left menu and click on "Watch" from your News Feed.
 
 * Click on the right side of the video top and select "Hide Video." This will ensure you do not see similar videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -421,10 +389,6 @@ This means that you cannot access your watch history using someone else's Facebo
 * On doing so, you will be able to see a list of filters. From the list, click on "Videos You've Watched."
 * This will open the list of videos that you have watched on Facebook. Make sure to select the ones that you want to watch again.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to Find Recently Watched Videos on Facebook App?
 
 Facebook application is one of the most common media to watch Facebook videos. That's why we will be mentioning the way to find recently watched videos through the Facebook app. Just like the web version, the process here is simple.
@@ -437,10 +401,6 @@ However, make sure you have the Facebook application installed on your device. I
 * Look for the "Videos You've Watched" filter. Tap on the same.
 
 ![watched videos on facebook app](https://images.wondershare.com/filmora/article-images/2021/watched-videos-on-facebook-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * This filter will open the list of all the videos you have watched through your account. Look for the one that you want and watch the same.
 
@@ -534,20 +494,22 @@ So, that's how you can find watched videos on Facebook. The steps are pretty eas
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-advice-on-crafting-effective-youtube-video-tags/"><u>[New] 2024 Approved Expert Advice on Crafting Effective YouTube Video Tags</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-fb-video-extraction-creating-mp3s-in-minutes/"><u>[New] FB Video Extraction Creating MP3s in Minutes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-enriching-listening-activities-for-the-modern-ear-podder/"><u>[New] In 2024, Enriching Listening Activities for the Modern Ear-Podder</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-resolve-non-playing-facebook-video-issues-androidios-for-2024/"><u>[New] Resolve Non-Playing Facebook Video Issues (Android/iOS) for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-syncing-fb-vids-with-whatsapp-a-step-by-step-guide/"><u>[New] Syncing FB Vids with WhatsApp A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-correcting-failed-video-delivery-on-mobile-platforms-social-network-apps/"><u>[Updated] 2024 Approved Correcting Failed Video Delivery on Mobile Platform's Social Network Apps</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/1716118410024-updated-2024-approved-facebook-videos-vertical-or-horizontal/"><u>[Updated] 2024 Approved Facebook Videos Vertical or Horizontal?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-connect-and-entertain-stream-xbox-games-on-the-worlds-stage-facebook/"><u>[Updated] Connect & Entertain Stream Xbox Games on the World's Stage - Facebook</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-androids-animated-adventures-top-game-list/"><u>[Updated] In 2024, Android’s Animated Adventures – Top Game List</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-instagram-video-sharing-essentials/"><u>[Updated] In 2024, Instagram Video Sharing Essentials</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-embark-on-a-metaverse-adventure-with-these-top-8-helmets-and-headsets/"><u>2024 Approved Embark on a Metaverse Adventure with These Top 8 Helmets & Headsets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-hues-and-highlights-editing-techniques-for-impact/"><u>2024 Approved Hues & Highlights Editing Techniques for Impact</u></a></li>
-<li><a href="https://win11.techidaily.com/clearing-up-win-error-31-restoring-seamless-internet-access/"><u>Clearing Up WIN Error 31: Restoring Seamless Internet Access</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/digital-identity-crafting-a-convenient-metaverse-approach/"><u>Digital Identity Crafting A Convenient Metaverse Approach</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-fixing-multiversus-crashes-unveiling-8-ultimate-strategies-for-a-smooth-gaming-experience/"><u>Master Fixing MultiVersus Crashes: Unveiling 8 Ultimate Strategies for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ai-enhanced-naming-mastery-for-podcast-creatives/"><u>[New] AI-Enhanced Naming Mastery for Podcast Creatives</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-facebooks-10-best-music-clips-making-them-happen-for-2024/"><u>[New] Facebook's 10 Best Music Clips Making Them Happen for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-authenticating-your-youtube-username-and-email/"><u>[New] In 2024, Authenticating Your YouTube Username & Email</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-innovative-approaches-for-enhancing-audience-interaction-through-fb-lives-multi-view-features/"><u>[Updated] 2024 Approved Innovative Approaches for Enhancing Audience Interaction Through FB Live's Multi-View Features</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-breakthrough-backdoor-facebook-access-restored/"><u>[Updated] Breakthrough Backdoor Facebook Access Restored</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-captivating-your-network-streamlining-content-via-wirecast-to-facebook/"><u>[Updated] Captivating Your Network Streamlining Content via Wirecast to Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-best-8-private-video-downloaders/"><u>[Updated] In 2024, Best 8 Private Video Downloaders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quick-tips-for-overcoming-adobe-premieres-srt-export-issues/"><u>[Updated] Quick Tips for Overcoming Adobe Premiere's SRT Export Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seeking-entertainment-a-guide-to-watching-fb-videos/"><u>[Updated] Seeking Entertainment A Guide to Watching FB Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-image-trimming-techniques-apples-ios-solutions/"><u>2024 Approved Image Trimming Techniques Apple's iOS Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-itel-p55-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Itel P55 Phone When You Forget the Password</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/avoid-data-theft-expose-fraudulent-chatgpt-sites-now/"><u>Avoid Data Theft: Expose Fraudulent ChatGPT Sites Now</u></a></li>
+<li><a href="https://win11.techidaily.com/concealing-clock-and-dates-on-window-11s-bar/"><u>Concealing Clock & Dates on Window 11'S Bar</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/harness-the-power-of-fb-lives-selecting-the-top-5-downloading-apps-for-2024/"><u>Harness the Power of FB Lives Selecting the Top 5 Downloading Apps for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-oppo-a1x-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Oppo A1x 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/humor-in-captivity-top-20-memes-from-jail-to-joys-of-online-life/"><u>Humor in Captivity Top 20 Memes From Jail to Joys of Online Life</u></a></li>
 </ul></div>
 

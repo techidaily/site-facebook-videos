@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Time Travel on FB  Accessing Historical Posts\""
-date: 2024-12-31T20:20:22.343Z
-updated: 2025-01-07T02:24:04.772Z
+date: 2025-03-04T19:15:17.837Z
+updated: 2025-03-05T18:44:06.092Z
 tags:
   - ai video
   - ai facebook
@@ -53,10 +53,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 
 ![facebook old stories more](https://images.wondershare.com/filmora/article-images/2021/facebook-old-stories-more.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Now just tap on the “Story Archive” option from the list.
 
 ![facebook story archive](https://images.wondershare.com/filmora/article-images/2021/facebook-story-archive.jpg)
@@ -64,10 +60,6 @@ Are you looking at how to see old stories on Facebook desktop? Let’s look at e
 **Step 4:** After this, you would be shown all the stories sequentially in the Story Archives section.
 
 Thus how to view old stories on Facebook desktop is very easy with above above-mentioned easy steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Watch Old Stories on Facebook on your Mobile?
 
@@ -88,10 +80,6 @@ You can find and see the old stories on Facebook with the help of the archived s
 **Step 5:** Now you would get to see all the old stories you have created sequentially from newest to oldest order.
 
 We assure you that with the above effective and easy steps your doubt of how to see old stories on Facebook would be solved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: Can you See Friends' Old Stories on Facebook?
 
@@ -139,10 +127,6 @@ You can crop, trim, cut, split, and merge your video in a few clicks in Wondersh
 
 Also, you can add various text effects and add Lower 3rds and subtitles. It has nearly 300 filters, overlays, and elements embedded in Filmora that you can use for your Facebook video and make it look amazing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Export and Share
 
 Once you are done with the video editing you need to do is to export and publish it on Facebook. You need to click on Export and you would get few saving options. You can save it to your smartphone or in .mp4 format and upload it to Facebook later. Wondershare Filmora let you share your video to platforms such YouTube, Vimeo, or burn it to the DVD collection.
@@ -159,10 +143,6 @@ Happy editing!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -178,22 +158,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-best-camcorders-for-deer-stalking-success/"><u>[New] 2024 Approved Best Camcorders for Deer Stalking Success</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-reclaim-your-social-space-after-a-hack/"><u>[New] 2024 Approved Reclaim Your Social Space After a Hack</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-dive-deep-into-facebooks-in-stream-ad-strategies-setup-and-analysis-insights-for-2024/"><u>[New] Dive Deep Into Facebook's In-Stream Ad Strategies Setup and Analysis Insights for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-social-stream-top-8-viral-videos/"><u>[New] Social Stream Top 8 Viral Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-converting-videos-easily-send-facebook-media-to-whatsapp/"><u>[Updated] In 2024, Converting Videos Easily Send Facebook Media to WhatsApp</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-digital-replay-engine-how-to-download-and-preserve-lives/"><u>[Updated] In 2024, Digital Replay Engine How to Download and Preserve Lives</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-from-vertical-vistas-to-virtual-viewers-fb-live-streaming-w-dji/"><u>[Updated] In 2024, From Vertical Vistas to Virtual Viewers FB Live Streaming W/ DJI</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-live-from-the-cloud-effective-dji-drone-broadcasting-tips-for-2024/"><u>[Updated] Live From the Cloud Effective DJI Drone Broadcasting Tips for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-key-to-captivating-audiences-crafting-fb-slideshows-for-2024/"><u>[Updated] The Key to Captivating Audiences Crafting FB Slideshows for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/effortless-techniques-to-edit-multisnapping-videos/"><u>Effortless Techniques to Edit Multisnapping Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/embarking-on-adventures-using-vision-pros-travel-features-uncover-essential-tips-and-what-to-prepare-for-ahead-of-time-zdnet/"><u>Embarking on Adventures Using Vision Pro's Travel Features? Uncover Essential Tips & What to Prepare for Ahead of Time | ZDNET</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/how-to-cut-video-length-for-instagram-on-mac-for-2024/"><u>How To Cut Video Length For Instagram On Mac for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-download-epson-scanner-drivers-for-windows-11/"><u>How to Download Epson Scanner Drivers for Windows 11</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-recorders-companion-for-clear-notes/"><u>In 2024, The Ultimate Recorder's Companion for Clear Notes</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-analysis-of-pc-gear-by-toms-hardware-team/"><u>In-Depth Analysis of PC Gear by Tom's Hardware Team</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y56-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y56 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-iphone-xs-max-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking iPhone XS Max i Do? Get Answers here</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-maximizing-screen-real-estate-on-fb-media/"><u>[New] 2024 Approved Maximizing Screen Real Estate on Fb Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-elevating-engagement-tips-to-share-your-screen-on-facebook-lives/"><u>[New] Elevating Engagement Tips to Share Your Screen on Facebook Lives</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhance-live-footage-overcoming-blurry-video-issues-in-chrome-for-2024/"><u>[New] Enhance Live Footage Overcoming Blurry Video Issues in Chrome for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-outstanding-20-anime-opening-melodies/"><u>[New] Outstanding 20 Anime Opening Melodies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-revitalizing-screenshots-the-ultimate-top-10-iphoneandroid-sticker-tools/"><u>[New] Revitalizing Screenshots - The Ultimate Top 10 iPhone/Android Sticker Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-virtual-ventures-dive-into-wins11s-game-selection-for-2024/"><u>[New] Virtual Ventures Dive Into Wins11's Game Selection for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-how-to-access-hidden-social-media-recommendations-for-2024/"><u>[Updated] How to Access Hidden Social Media Recommendations for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-secret-sound-scribes-hidden-audio-logging-for-mobile-devices-for-2024/"><u>[Updated] Secret Sound Scribes Hidden Audio Logging for Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-blueprint-to-youtube-wealth-smart-strategies-for-facebook-video-marketing/"><u>[Updated] The Blueprint to YouTube Wealth Smart Strategies for Facebook Video Marketing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/embracing-the-night-sky-with-iphone-lengthy-exposures/"><u>Embracing the Night Sky with iPhone Lengthy Exposures</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/revenue-streaming-star-across-the-globe/"><u>High Revenue Streaming Star Across the Globe</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-instantaneously-enhance-your-facebook-page-with-songs/"><u>In 2024, Instantaneously Enhance Your Facebook Page with Songs</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-lego-stop-motion-mavens-the-top-creators/"><u>New 2024 Approved Lego Stop Motion Mavens The Top Creators</u></a></li>
+<li><a href="https://driver-install.techidaily.com/unlocking-efficiency-printer-driver-updates-in-windows-78/"><u>Unlocking Efficiency: Printer Driver Updates in Windows 7/8</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2023 Insights  How to Hunt Down Cool Vids on FB\""
-date: 2025-02-11T03:58:32.838Z
-updated: 2025-02-16T23:49:27.445Z
+date: 2025-03-01T16:40:35.494Z
+updated: 2025-03-05T16:55:12.892Z
 tags:
   - ai video
   - ai facebook
@@ -109,10 +109,6 @@ Click on the Filter icon, and a dropdown list will appear. To view all the video
 
 ![Filter the Items](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-8.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Watch the Video**
 
 Scroll through the videos to find the one you want.
@@ -134,10 +130,6 @@ To find Facebook videos that you have watched recently on the computer, follow t
 Open the browser and then go to the Facebook website. Log into your account.
 
 ![Log in to your Facebook ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-9.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2: Go to Your Profile**
 
@@ -202,10 +194,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 From the list of activities, tap on “Videos you’ve watched.”
 
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
 
@@ -395,15 +383,7 @@ From the list of activities, tap on “Videos you’ve watched.”
 
 ![Click on “Videos you’ve watched.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-17.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The screen will display all the videos you have watched recently. Watch the one you were looking for and enjoy!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Side note
 
@@ -449,10 +429,6 @@ From your browser, access Facebook by going to the [website](https://www.faceboo
 
 ![Go to Facebook website](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Log in to Your Account**
 
 Here, log in to your Facebook account.
@@ -464,10 +440,6 @@ Here, log in to your Facebook account.
 Once you log in, you will see your News Feed. On the left side of your screen, a panel is visible. In that panel, you will see a “Saved” tab.
 
 ![Search for the “Saved” tab](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Click on Saved**
 
@@ -555,10 +527,6 @@ On the left of your screen, you will see an Activity log panel. Click on "Logged
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6: Select “Videos you’ve watched”**
 
 From the list of activities, select “Videos you’ve watched.” This will display all the videos you’ve watched recently.
@@ -596,10 +564,6 @@ From the Profile Settings, click on “Activity Log” and then scroll down. Cli
 ![Go to “Activity Log”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-15.png)
 
 ![Click on “Logged actions and other activity.” ](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-16.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6: Click on “Videos you’ve watched.”**
 
@@ -750,10 +714,6 @@ From the dropdown menu, click on “Activity Log.”
 On the left of your screen, you will see an Activity log panel. Click on "Logged actions and other activity."
 
 ![Select “Logged actions and other activity”](https://images.wondershare.com/filmora/article-images/2021/find-videos-on-facebook-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6: Select “Videos you’ve watched”**
 
@@ -838,18 +798,21 @@ We hope it helps!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unveiling-the-art-of-social-media-video-magic-on-fb/"><u>[New] 2024 Approved Unveiling the Art of Social Media Video Magic on FB</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-creating-engaging-content-through-discord-streams/"><u>[New] In 2024, Creating Engaging Content Through Discord Streams</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-strategic-application-of-hashtags-in-fb-advertising-for-2024/"><u>[New] Strategic Application of Hashtags in FB Advertising for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-a-full-overview-of-adobe-cloud-workflow-and-alternative-methods/"><u>[Updated] 2024 Approved A Full Overview of Adobe Cloud Workflow & Alternative Methods</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unlimited-dji-mini-and-air-2-luts-buy-or-free-for-2024/"><u>[Updated] Unlimited DJI Mini & Air 2 LUTs - Buy or Free for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/a-closer-look-at-facebooks-video-transformation-for-2024/"><u>A Closer Look at Facebook’s Video Transformation for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210362383-9781800960701-awaken-your-power-within/"><u>Awaken Your Power Within | Free Book</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/boosting-your-fb-following-top-10-strategies-unveiled-for-2024/"><u>Boosting Your FB Following Top 10 Strategies Unveiled for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/gamelog-analysts-guide-for-2024/"><u>GameLog Analyst's Guide for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-samsung-galaxy-a24-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Samsung Galaxy A24?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-2023s-elite-fb-content-collectors-ranked-8/"><u>In 2024, 2023'S Elite FB Content Collectors Ranked 8</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme GT Neo 5 | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-mc-maps-downloading-and-setup-guide/"><u>Mastering MC Maps: Downloading & Setup Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-dominate-your-digital-space-with-these-10-follower-boosting-hacks-for-2024/"><u>[New] Dominate Your Digital Space with These 10 Follower-Boosting Hacks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-guide-to-hilarious-memes/"><u>[Updated] 2024 Approved Step-by-Step Guide to Hilarious Memes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-efficient-methodology-for-deleting-obscuring-background-elements-for-2024/"><u>[Updated] Efficient Methodology for Deleting Obscuring Background Elements for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-essential-fb-video-plays-top-10-choices/"><u>[Updated] Essential FB Video Plays Top 10 Choices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebook-fix-reappear-hidden-watch-video-icon-for-2024/"><u>[Updated] Facebook Fix Reappear Hidden Watch Video Icon for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-soundscape-scrutiny-listening-insights/"><u>[Updated] In 2024, Soundscape Scrutiny Listening Insights</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-virtual-gathering-film-cutter/"><u>[Updated] In 2024, Virtual Gathering Film Cutter</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-top-tier-phone-apps-evolving-how-you-communicate/"><u>[Updated] The Top-Tier Phone Apps Evolving How You Communicate</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-visualizing-your-vision-the-art-of-using-luts-in-photos-for-2024/"><u>[Updated] Visualizing Your Vision The Art of Using LUTs in Photos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-download-on-the-fly-best-free-tools-for-pinterest-vids-online/"><u>2024 Approved Download on the Fly Best Free Tools for Pinterest Vids Online</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-professional-framing-adding-bb-and-letterbox-overlays-to-fb-videos/"><u>2024 Approved Professional Framing Adding BB and Letterbox Overlays to FB Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-z-flip-5-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy Z Flip 5</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/reinvent-storytelling-the-path-to-better-narratives-starts-here-for-2024/"><u>Reinvent Storytelling – The Path to Better Narratives Starts Here for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tips-to-rank-facebook-page-better-for-2024/"><u>Tips to Rank Facebook Page Better for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-affordable-collegiate-laptop-a-great-alternative-to-macbook-and-lenovo-thinkpad-now-with-200-discount-insider-review-by-zdnet/"><u>Top-Rated Affordable Collegiate Laptop: A Great Alternative to MacBook and Lenovo ThinkPad, Now with $200 Discount - Insider Review by ZDNet</u></a></li>
 </ul></div>
 

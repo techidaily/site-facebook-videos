@@ -1,7 +1,7 @@
 ---
 title: "\"Video Frame Techniques  Applying Letterboxing & Black Bars to FB Media\""
-date: 2025-02-12T18:10:57.528Z
-updated: 2025-02-16T20:10:34.856Z
+date: 2025-03-02T19:43:02.324Z
+updated: 2025-03-05T17:56:17.342Z
 tags:
   - ai video
   - ai facebook
@@ -33,10 +33,6 @@ First let us start with the question, what is a letterbox for a Facebook video?
 
 Want to have a try? Come on!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Get Started with Filmora
 
 A square video in a **1:1 aspect ratio** is preferred by Facebook. There are varieties of video editing apps available in the market that allows you to create a square video and add a letterbox on it. But most of them have a complicated interface and you might need to watch a lot of video tutorials to make head and tail of it. If you want to add such a letterbox for your Facebook video, Wondershare Filmora may be a good choice for you. Currently, Filmora offers two ways to add a letterbox for your square Facebook video.
@@ -49,17 +45,9 @@ This method is suitable for users whose source videos are not in square format (
 
 ![start-filmora9](https://images.wondershare.com/filmora/article-images/start-filmora9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. Go to **File**\-**Import Media** and import the source file to the Media library (let’s say it’s 1920\*1080 at 16:9)
 
 ![import-sample-video](https://images.wondershare.com/filmora/article-images/import-sample-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 3\. Drag and drop the source video to the timeline, and a black letterbox will be created automatically in the preview window, cause the source file didn’t match the 1:1 ratio you set for the project
 
@@ -89,17 +77,9 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![import-square-video](https://images.wondershare.com/filmora/article-images/import-square-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 2\. Then drag and drop your source video to the timeline. No black bars will appear automatically like in Method 1
 
 ![no-letterbox](https://images.wondershare.com/filmora/article-images/no-letterbox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 3\. To create a letterbox, choose the option **Titles**. Now you will be shown a variety of subtitles and credit styles
 * 4\. Select **Subtitles**, then add a subtitle style that has a black background to your video, such as Subtitle 1,2,3, etc.
@@ -114,10 +94,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 
 ![add-subtitle-again](https://images.wondershare.com/filmora/article-images/add-subtitle-again.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 7\. You can input your own texts in the box or delete the text as you want, and you will be left with a video that has black bars on the top and bottom
 
 ![get-both-letterbox](https://images.wondershare.com/filmora/article-images/get-both-letterbox.jpg)
@@ -131,10 +107,6 @@ This method is suitable for the source videos in a 1:1 ratio (e.g. 1080\*1080). 
 Adding a letterbox, then designing your own texts, elements and filters will bring great creativity to your video on Facebook. Creativity will connect people and you will create your own magic! Filmora now offers 2 effective ways to add a letterbox to any videos and a variety of attractive filters, overlays, and elements. This is why we recommend you all to try and use Filmora for all your editing needs. Here you go!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -153,24 +125,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-effortlessly-access-fb-beats/"><u>[New] 2024 Approved Effortlessly Access FB Beats</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-transform-your-content-expert-techniques-for-facebook-lives/"><u>[New] 2024 Approved Transform Your Content Expert Techniques for Facebook Lives</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-everlasting-impressions-save-instagram-stories-endlessly/"><u>[New] Everlasting Impressions Save Instagram Stories Endlessly</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-from-static-to-spectaculous-the-yi-hero-video-journey/"><u>[New] In 2024, From Static to Spectaculous The Yi Hero Video Journey</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-seamless-podcast-experience-for-iphone-users-for-2024/"><u>[New] Seamless Podcast Experience for iPhone Users for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlock-the-secrets-of-facebook-live-a-beginners-manual-for-2024/"><u>[New] Unlock the Secrets of Facebook Live A Beginner's Manual for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-dissecting-facebook-short-videos-a-comprehensive-overview/"><u>[Updated] 2024 Approved Dissecting Facebook Short Videos A Comprehensive Overview</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-best-mp4-to-facebook-converter/"><u>[Updated] Best MP4 to Facebook Converter</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-boosting-your-fb-following-top-10-strategies-unveiled-for-2024/"><u>[Updated] Boosting Your FB Following Top 10 Strategies Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dynamic-and-simple-building-a-subscriber-button-for-youtube-using-filmora/"><u>[Updated] In 2024, Dynamic and Simple Building a Subscriber Button for YouTube Using Filmora</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-prevent-freezing-of-streamed-videos-in-chrome/"><u>[Updated] In 2024, Prevent Freezing of Streamed Videos in Chrome</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-real-time-streaming-on-facebook-simplified-2023/"><u>[Updated] Real-Time Streaming on Facebook, Simplified 2023</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-stop-ff-videos-from-not-rendering-on-android/"><u>[Updated] Stop FF Videos From Not Rendering on Android</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-the-best-wireless-solution-for-your-home-with-netgee-orbi/"><u>Decoding the Best Wireless Solution for Your Home with Netgee Orbi</u></a></li>
-<li><a href="https://games-able.techidaily.com/essential-tips-for-efficient-use-of-ea-play-on-ps5/"><u>Essential Tips for Efficient Use of EA Play on PS5</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-6s-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 6s Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Vivo V29e? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-xr-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your iPhone XR</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-list-of-affordable-powerhouse-gaming-laptops-for-less-than-1500/"><u>Ultimate List of Affordable Powerhouse Gaming Laptops for Less than $1,500</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-experts-rankings-top-social-media-viewers/"><u>[New] Expert's Rankings Top Social Media Viewers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-solutions-to-decipher-muted-facebook-videos-for-2024/"><u>[New] Solutions to Decipher Muted Facebook Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-list-of-popular-videos-online-for-2024/"><u>[New] The Ultimate List of Popular Videos Online for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-achieve-stardom-in-the-digital-world-by-growing-your-facebook-followers/"><u>[Updated] In 2024, Achieve Stardom in the Digital World by Growing Your Facebook Followers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-finest-unboxing-content-15-top-ranked-youtube-vids-for-2024/"><u>[Updated] The Finest Unboxing Content 15 Top-Ranked YouTube Vids for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/getting-unstuck-troubleshooting-absent-fb-vids-for-2024/"><u>Getting Unstuck Troubleshooting Absent FB Vids for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-vivo-y77t-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Vivo Y77t with Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-vivo-y100a-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Vivo Y100A Phone that is Locked?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-yokus-island-express-where-great-odysseys-begin/"><u>In-Depth Look at Yoku's Island Express: Where Great Odysseys Begin</u></a></li>
+<li><a href="https://extra-information.techidaily.com/smartest-top-10-free-image-platforms-for-endless-memories/"><u>Smartest Top 10 Free Image Platforms for Endless Memories</u></a></li>
 </ul></div>
 
